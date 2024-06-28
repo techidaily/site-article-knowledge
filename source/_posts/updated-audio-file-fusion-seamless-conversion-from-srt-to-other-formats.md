@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Audio File Fusion  Seamless Conversion From SRT to Other Formats\""
-date: 2024-06-12T00:30:48.046Z
-updated: 2024-06-13T00:30:48.046Z
+date: 2024-06-27T10:02:17.947Z
+updated: 2024-06-28T10:02:17.947Z
 tags: 
   - screen-recording
   - ai video
@@ -99,7 +99,7 @@ There are effective steps that could also come in handy if you want to convert S
 
 To convert SRT to SCC, you need an online converter, and here, we've explained the step-by-step process to convert SRT to SCC using REV online converter. It’s a reliable tool for the job.
 
-Step1 Visit REV's[official website](https://www.rev.com/captionconverter)
+Step1 Visit REV's [official website](https://www.rev.com/captionconverter)
 
 Step2 Click on Select.SRT Files to upload the SRT file you want to convert to SCC.
 
@@ -199,7 +199,7 @@ There are effective steps that could also come in handy if you want to convert S
 
 To convert SRT to SCC, you need an online converter, and here, we've explained the step-by-step process to convert SRT to SCC using REV online converter. It’s a reliable tool for the job.
 
-Step1 Visit REV's[official website](https://www.rev.com/captionconverter)
+Step1 Visit REV's [official website](https://www.rev.com/captionconverter)
 
 Step2 Click on Select.SRT Files to upload the SRT file you want to convert to SCC.
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Transforming YI 4K Capture with Ideal Adjuncts"
-date: 2024-06-19T23:49:53.471Z
-updated: 2024-06-20T23:49:53.471Z
+date: 2024-06-27T10:02:16.160Z
+updated: 2024-06-28T10:02:16.160Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1
 
 ### Section 1: Protective Case
 
-#### 1.[Waterproof Case:](<https://www.amazon.com/gp/product/B016I5VQJE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B016I5VQJE&linkId=1fe5d9a62a2d51f7afceab6b6ca27770>)
+#### 1. Waterproof Case:
 
 [Yi 4K Action Camera original Waterproof Case](https://images.wondershare.com/filmora/article-images/yi-4k-original-waterproof-case.png) ](https://www.amazon.com/gp/product/B016I5VQJE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B016I5VQJE&linkId=1fe5d9a62a2d51f7afceab6b6ca27770)
 

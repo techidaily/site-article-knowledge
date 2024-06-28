@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Save Photo From Video in Windows 10 Photos App"
-date: 2024-06-12T00:27:22.524Z
-updated: 2024-06-13T00:27:22.524Z
+date: 2024-06-27T10:02:18.130Z
+updated: 2024-06-28T10:02:18.130Z
 tags: 
   - screen-recording
   - ai video
@@ -45,7 +45,7 @@ Creating a living image:
 * Open the folder containing your video and search the particular video. Right-click video > ‘Open With’ > ‘Photos’ > allow the video to play.
 * Right-click within the player > Edit and create > Save photos.
 
-![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
+![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 * Now, you can see the living picture by tapping ‘Play’ button.
 

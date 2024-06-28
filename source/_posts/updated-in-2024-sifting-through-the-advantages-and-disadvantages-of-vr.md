@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Sifting Through the Advantages and Disadvantages of VR"
-date: 2024-06-12T00:28:35.452Z
-updated: 2024-06-13T00:28:35.452Z
+date: 2024-06-27T10:02:14.865Z
+updated: 2024-06-28T10:02:14.865Z
 tags: 
   - screen-recording
   - ai video
@@ -29,9 +29,9 @@ thumbnail: https://thmb.techidaily.com/40d4b8ee7a20cbf9725c025acb55ef566e92109bc
 [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) is a technology that uses software for creating an artificial environment. It makes some artificial senses such as touching, hear and sight. The world of virtual reality merges the power of 3D graphics. Virtual reality technology is widely used for various purposes. Such as video games, engineering, entertainment, education, design, films, media, medicine and many more.Virtual reality makes various important changes in life of humans and their day to day activities. There are mainly three types of VR systems:Video Mapping VR, Immersive VR and Desktop VR.
 
  **_You may also like:_**
-_[History of Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[VR Application in Entertainment](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
+_ [History of Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [VR Application in Entertainment](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/) _
 
 ### Pros and cons of Virtual Reality
 

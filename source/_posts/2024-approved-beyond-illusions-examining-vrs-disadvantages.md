@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Beyond Illusions  Examining VR's Disadvantages\""
-date: 2024-06-19T23:50:00.093Z
-updated: 2024-06-20T23:50:00.093Z
+date: 2024-06-27T10:02:14.418Z
+updated: 2024-06-28T10:02:14.418Z
 tags: 
   - screen-recording
   - ai video
@@ -29,8 +29,8 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
  When many of us think of [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) there is two thoughts, the first is the high heaven of VR which is the holodeck featured on the several TV versions of “Star Trek” and a crucial part of the show's flagship the starship Enterprise. The holodeck was what true Virtual Reality should be, full body tactile immersion both narrative immersion, which occurs “when the viewer becomes emotionally invested in the story” and the feeling of “really being there”, called spatial immersion.
 
  **_You may also like:_**
-_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
+_ [Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/) _
 
 ## The equipment used for VR is very expensive
 
