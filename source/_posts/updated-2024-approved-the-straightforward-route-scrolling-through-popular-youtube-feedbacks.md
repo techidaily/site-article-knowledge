@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Straightforward Route  Scrolling Through Popular YouTube Feedbacks\""
-date: 2024-06-12T00:32:57.274Z
-updated: 2024-06-13T00:32:57.274Z
+date: 2024-06-19T23:49:53.765Z
+updated: 2024-06-20T23:49:53.765Z
 tags: 
   - screen-recording
   - ai video
@@ -155,9 +155,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -255,9 +253,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Beyond Illusion  The Three Pillars of Virtual Immersion (VR, AR, & MR)\""
-date: 2024-06-12T00:32:13.939Z
-updated: 2024-06-13T00:32:13.939Z
+date: 2024-06-19T23:49:53.821Z
+updated: 2024-06-20T23:49:53.821Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,9 @@ thumbnail: https://thmb.techidaily.com/01781fffdf7ecc74eaf5b3cf4180716493ded8344
 
  Mar 27, 2024• Proven solutions
 
-[VR](https://tools.techidaily.com/wondershare/filmora/download/), [AR]( https://filmora.wondershare.com/virtual-reality/what-is-augmented-reality.html ) and [MR](https://tools.techidaily.com/wondershare/filmora/download/) are all acronyms used to describe gaming and simulation to allow people to feel as though they are joining part of a virtual world at different levels. Thanks to the acronyms, many people are becoming confused as to how each differs. Hopefully the following information will clear that up for you.
+[VR](https://tools.techidaily.com/wondershare/filmora/download/), [AR](https://filmora.wondershare.com/virtual-reality/what-is-augmented-reality.html) and [MR](https://tools.techidaily.com/wondershare/filmora/download/) are all acronyms used to describe gaming and simulation to allow people to feel as though they are joining part of a virtual world at different levels. Thanks to the acronyms, many people are becoming confused as to how each differs. Hopefully the following information will clear that up for you.
 
-![difference between VR AR MR]( https://images.wondershare.com/filmora/article-images/difference-between-vr-ar-mr.jpg
-)
+![difference between VR AR MR](https://images.wondershare.com/filmora/article-images/difference-between-vr-ar-mr.jpg)
 
 ## About VR
 

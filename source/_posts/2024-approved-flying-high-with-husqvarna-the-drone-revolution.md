@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Flying High with Husqvarna  The Drone Revolution\""
-date: 2024-06-12T00:23:32.237Z
-updated: 2024-06-13T00:23:32.237Z
+date: 2024-06-19T23:49:52.645Z
+updated: 2024-06-20T23:49:52.645Z
 tags: 
   - screen-recording
   - ai video
@@ -31,11 +31,9 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 **You may also like:**
 [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[![hubsan h501S x4](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4.jpg) ](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
-)
+[![hubsan h501S x4](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4.jpg) ](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa)
 
 ## Pros and Cons
 

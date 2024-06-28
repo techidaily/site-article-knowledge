@@ -1,7 +1,7 @@
 ---
 title: "\"Garmin VIRB Ultra 30  An Insider Look at an Adventure Staple\""
-date: 2024-06-12T00:25:47.146Z
-updated: 2024-06-13T00:25:47.146Z
+date: 2024-06-19T23:49:52.487Z
+updated: 2024-06-20T23:49:52.487Z
 tags: 
   - screen-recording
   - ai video
@@ -32,8 +32,7 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
 
 ## Complete Review for Garmin Virb Ultra 30
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8)
 
 #### Design
 
