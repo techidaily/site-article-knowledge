@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Optimizing Your Periscope Stream Experience\""
-date: 2024-06-12T00:31:25.453Z
-updated: 2024-06-13T00:31:25.453Z
+date: 2024-07-05T02:51:42.723Z
+updated: 2024-07-06T02:51:42.723Z
 tags: 
   - screen-recording
   - ai video
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 
 **Step 2** – To share your location, go to the ‘Broadcast’ tab and then tap the ‘Compass icon’ to toggle it on.
 
-![periscope location]( https://images.wondershare.com/filmora/article-images/periscope-share-location.JPG)
+![periscope location](https://images.wondershare.com/filmora/article-images/periscope-share-location.JPG)
 
 ## Part 3: Tips of having better broadcast experience
 

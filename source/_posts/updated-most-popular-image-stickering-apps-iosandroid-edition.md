@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Most Popular Image Stickering Apps – iOS/Android Edition"
-date: 2024-06-12T00:33:05.198Z
-updated: 2024-06-13T00:33:05.198Z
+date: 2024-07-05T02:51:41.548Z
+updated: 2024-07-06T02:51:41.548Z
 tags: 
   - screen-recording
   - ai video
@@ -172,7 +172,7 @@ In addition, it has versions that can be downloaded on iOS and Android devices.
 * Vintage
 * Drawing tools
 
-**Download:** You can download this app on [Apple](https://apps.apple.com/us/app/photofunia/id321240709)and [Google](https://play.google.com/store/apps/details?id=com.photofunia.android) stores.
+**Download:** You can download this app on [Apple](https://apps.apple.com/us/app/photofunia/id321240709) and [Google](https://play.google.com/store/apps/details?id=com.photofunia.android) stores.
 
 ### Camera 360-Funny Stickers
 
@@ -436,7 +436,7 @@ In addition, it has versions that can be downloaded on iOS and Android devices.
 * Vintage
 * Drawing tools
 
-**Download:** You can download this app on [Apple](https://apps.apple.com/us/app/photofunia/id321240709)and [Google](https://play.google.com/store/apps/details?id=com.photofunia.android) stores.
+**Download:** You can download this app on [Apple](https://apps.apple.com/us/app/photofunia/id321240709) and [Google](https://play.google.com/store/apps/details?id=com.photofunia.android) stores.
 
 ### Camera 360-Funny Stickers
 
