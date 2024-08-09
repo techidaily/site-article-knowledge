@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Transitioning Video Content Into Stills with Windows 11\""
-date: 2024-07-10T19:22:46.656Z
-updated: 2024-07-11T19:22:46.656Z
+date: 2024-08-08T02:01:12.331Z
+updated: 2024-08-09T02:01:12.331Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/4c1fc861d688eb17793358701272fcb990bfc9516
 
 # How to Save Photo from Video in Windows 10 Photos App
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,6 +37,9 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 * [**Part2: Why I can’t save photo from video**](#part2)
 * [**Part3: Alternative way to save photo from video**](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -54,6 +60,9 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * Tap on a living image > press the ‘right arrow’ and ‘left arrow’ to advance or reverse the frames.
 * Hit the ‘slider’ for manually adjusting the frames > tap ‘Save a photo’ for a desired frame you need to save.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
@@ -64,10 +73,22 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
@@ -87,6 +108,9 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
@@ -117,3 +141,41 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-virtual-reality-capture-heres-the-best-software/"><u>[New] 2024 Approved  Virtual Reality Capture? Here's the Best Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-transform-your-snaps-from-basic-to-stunning-on-snapchat-for-2024/"><u>[New] Transform Your Snaps From Basic to Stunning on Snapchat for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-a-deep-dive-into-panasonics-hx-a1-camera-features/"><u>2024 Approved  A Deep Dive Into Panasonic's HX-A1 Camera Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-breaking-records-olympics-showcase-for-short-tracks/"><u>2024 Approved  Breaking Records  Olympics Showcase for Short Tracks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-budget-videography-choosing-the-best-panoramic-cameras/"><u>2024 Approved  Budget Videography  Choosing the Best Panoramic Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-camera-essentials-for-rookie-filmmakers/"><u>2024 Approved  Camera Essentials for Rookie Filmmakers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-customizing-your-windows-photos-app-filters-and-music-sync-feature/"><u>2024 Approved  Customizing Your Window's Photos App  Filters & Music Sync Feature</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dial-in-on-details-the-essentials-of-google-meet-zooming/"><u>2024 Approved  Dial In on Details  The Essentials of Google Meet Zooming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discover-the-best-15-free-image-editing-programs-for-now/"><u>2024 Approved  Discover the Best 15 FREE Image Editing Programs for Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dissecting-the-disparities-apples-m1-pro-and-m1-max/"><u>2024 Approved  Dissecting the Disparities  Apple's M1 Pro and M1 Max</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-easy-steps-for-harvesting-free-video-frames/"><u>2024 Approved  Easy Steps for Harvesting Free Video Frames</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-mac-tips-unlocking-your-srt-files/"><u>2024 Approved  Essential Mac Tips  Unlocking Your SRT Files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-expert-techniques-for-perfect-green-screen-cinematography/"><u>2024 Approved  Expert Techniques for Perfect Green-Screen Cinematography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-expertise-in-mobile-lut-apps/"><u>2024 Approved  Expertise in Mobile LUT Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-first-steps-in-film-making-top-8-recommended-cameras/"><u>2024 Approved  First Steps in Film Making  Top 8 Recommended Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution/"><u>2024 Approved  How To Create a Memorable Podcast Name  From Brainstorming to Execution</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximize-your-cam-flagship-gear-with-ease/"><u>2024 Approved  Maximize Your Cam Flagship Gear with Ease</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-pro-level-clarity-top-8k-cameras-for-the-ultimate-picture/"><u>2024 Approved  Pro-Level Clarity  Top 8K Cameras for the Ultimate Picture</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-professional-touch-applying-filters-to-pcmobile-videos/"><u>2024 Approved  Professional Touch  Applying Filters to PC/Mobile Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-steps-to-clear-the-exterior-of-your-photos-in-affinity/"><u>2024 Approved  Quick Steps to Clear the Exterior of Your Photos in Affinity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-revolutionizing-image-capture-with-ios-11-updates/"><u>2024 Approved  Revolutionizing Image Capture with iOS 11 Updates</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-supreme-graphics-power-for-4k-gamers-only/"><u>2024 Approved  Supreme Graphics Power  For 4K Gamers Only</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-phone-for-4k-enthusiasts-sony-xperia-xz/"><u>2024 Approved  The Ultimate Phone for 4K Enthusiasts - Sony Xperia XZ</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-10-gimbals-elevating-dsrl-cinematic-results/"><u>2024 Approved  Top 10 Gimbals Elevating DSRL Cinematic Results</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-5-vr-sets-elevating-uav-experience/"><u>2024 Approved  Ultimate 5 VR Sets Elevating UAV Experience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-snow-adventure-equipment-list-for-cameras/"><u>2024 Approved  Ultimate Snow Adventure Equipment List for Cameras</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-vivo-y78plus-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Vivo Y78+ to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-our-expert-selection-of-4-premium-quality-free-cad-programs-available-now/"><u>Explore Our Expert Selection of 4 Premium-Quality, Free CAD Programs Available Now</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-15-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 15 Pro Max Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-vivo-y36i-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-master-the-monitor-game-samsungs-ue590-review-inside-out/"><u>In 2024, Master the Monitor Game - Samsung's UE590 Review Inside Out</u></a></li>
+<li><a href="https://games-able.techidaily.com/play-under-the-sun-8-summer-ar-games/"><u>Play Under the Sun: 8 Summer AR Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/leshooting-your-video-shorts-invisible-thumbnail/"><u>Troubleshooting  Your Video Short's Invisible Thumbnail</u></a></li>
+</ul></div>

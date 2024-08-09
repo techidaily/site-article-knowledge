@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Power of Azure Voice Recognition API\""
-date: 2024-07-10T19:20:40.003Z
-updated: 2024-07-11T19:20:40.003Z
+date: 2024-08-08T02:02:04.372Z
+updated: 2024-08-09T02:02:04.372Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,9 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -56,16 +59,26 @@ Step5Now enter the Azure regional identifier and subscription key on Windows Ter
 
 Step6Now it's time to convert speech to text using Azure STT Service. To do that, run “**spx recognize -microphone**” on Terminal or PowerShell. Azure Speech CLI will listen to sound input and convert it to text. And there is that!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
 We should all agree that using Microsoft Azures Speech Service is not a walk in the park. You need some knowledge of programming and Windows Command Prompt. Even worse, you'll have to pay each time you want to convert speech to text after depleting the free credits.
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Wondershare Filmora
 
 Let's start with the best offline speech-to-text converter for macOS and Windows systems - Filmora. It's a video editor for creating award-winning videos without prior editing skills. Just upload your local video and edit it as you please. And yes, it works with a host of video formats.
@@ -84,6 +97,14 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use Filmora To Make STT videos
 
 ##### Step 1
@@ -98,8 +119,14 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Google Docs - Free
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
@@ -114,6 +141,9 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. Audtext
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
@@ -162,3 +192,49 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails-for-2024/"><u>[New] From Ordinary to Outstanding  Crafting Unique Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-mastering-the-art-of-play-navigating-switch-pro-and-steam-games/"><u>[New] Mastering the Art of Play  Navigating Switch Pro and Steam Games</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gender-diversity-in-streaming-celebrating-top-10-females/"><u>[Updated] 2024 Approved  Gender Diversity in Streaming  Celebrating Top 10 Females</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tips-on-finding-optimal-free-srt-translator-services/"><u>[Updated] Expert Tips on Finding Optimal Free SRT Translator Services</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-essential-techniques-for-vimeo-video-submission-from-mmc/"><u>[Updated] In 2024, Essential Techniques for Vimeo Video Submission From MMC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovative-daily-vlog-themes/"><u>[Updated] Innovative Daily Vlog Themes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-instagram-mastery-top-10-gadgets/"><u>[Updated] The Ultimate Guide to Instagram Mastery  Top 10 Gadgets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-spectrum-perfection-color-grading-basics/"><u>2024 Approved  Spectrum Perfection  Color Grading Basics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-youtube-conversion-mastery-top-10-strategies-revealed/"><u>2024 Approved  YouTube Conversion Mastery  Top 10 Strategies Revealed</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/acid-pro-reviewed-comparable-professional-tools-explored-for-2024/"><u>ACID Pro Reviewed  Comparable Professional Tools Explored for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/advanced-tools-for-broadcasting-professionals-for-2024/"><u>Advanced Tools for Broadcasting Professionals for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/aerial-vistas-at-their-best-xiaomi-drone-4k-analysis/"><u>Aerial Vistas at Their Best – Xiaomi Drone 4K Analysis</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/affordable-aethervault-substantial-file-safekeeping-for-2024/"><u>Affordable AetherVault  Substantial File Safekeeping for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/affordable-full-hd-cameras-for-stunts-and-sports/"><u>Affordable Full HD Cameras for Stunts and Sports</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/airborne-warriors-meet-dji-mavic-2-and-hero5-black-for-2024/"><u>Airborne Warriors Meet  DJi Mavic 2 & HERO5 Black for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/all-round-kinetics-examination-2023-for-2024/"><u>All-Round Kinetics Examination 2023 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/androidiphone-mastery-discover-the-ultimate-top-8-app-set/"><u>Android/iPhone Mastery  Discover the Ultimate Top 8 App Set</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/androidiphones-ultimate-arvr-game-list/"><u>Android/iPhone's Ultimate AR/VR Game List</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/annual-compilation-of-premium-free-lut-choices-for-2024/"><u>Annual Compilation of Premium Free LUT Choices for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/apex-design-suite-assessment-for-2024/"><u>Apex Design Suite Assessment for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better-in-2024/"><u>Apple MacBook Air Vs. MacBook Pro  Which M1 Laptop Is Better, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/balancing-act-weaving-b-roll-into-main-scenes-for-2024/"><u>Balancing Act  Weaving B Roll Into Main Scenes for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/behind-the-scenes-how-to-remove-background-in-picsart-for-2024/"><u>Behind the Scenes  How to Remove Background in Picsart for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/behind-the-scenes-with-vlc-player-features-for-2024/"><u>Behind the Scenes with VLC Player Features for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-budget-friendly-ticking-clocks-online/"><u>Best Budget-Friendly Ticking Clocks Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-drone-buddies-kids-most-enjoyed-toy-companions-for-2024/"><u>Best Drone Buddies  Kids' Most Enjoyed Toy Companions for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-of-the-best-photo-overlays-and-text-editors-review-for-2024/"><u>Best of the Best  Photo Overlays & Text Editors Review for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-tools-and-techniques-adding-frames-to-digital-images-2023-edition/"><u>Best Tools & Techniques - Adding Frames to Digital Images, 2023 Edition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/bestiary-of-no-cost-iphone-enhancement-apps-for-ultimate-selfies/"><u>Bestiary of No-Cost iPhone Enhancement Apps for Ultimate Selfies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/boosting-collaboration-mastery-of-zoom-capabilities-in-win10/"><u>Boosting Collaboration  Mastery of Zoom Capabilities in Win10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/boosting-zoom-image-resolution-expert-advice-for-2024/"><u>Boosting Zoom Image Resolution  Expert Advice for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/breaking-down-the-best-starter-drone-a-syma-x5c-review/"><u>Breaking Down the Best Starter Drone – A Syma X5C Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/brief-blueprints-sending-ios-videos-and-images/"><u>Brief Blueprints  Sending iOS Videos & Images</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/chilling-celebrations-beijings-winter-sports-spectacle-for-2024/"><u>Chilling Celebrations  Beijing's Winter Sports Spectacle for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/choreographing-gripping-podcast-endings/"><u>Choreographing Gripping Podcast Endings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/chuckle-craft-ranking-the-top-10-memes-by-wow-factor/"><u>Chuckle Craft  Ranking the Top 10 Memes by Wow Factor</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-viewing-game-with-concurrent-channel-watches-for-2024/"><u>Elevate Your Viewing Game with Concurrent Channel Watches for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elevate-your-visual-storytelling-ios-and-androids-best-image-stickers/"><u>Elevate Your Visual Storytelling  IOS & Android's Best Image Stickers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-realme-c67-4gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Realme C67 4GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-iphone-12-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From iPhone 12 without Password?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Tecno Camon 20 | Dr.fone</u></a></li>
+</ul></div>
