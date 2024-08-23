@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Complete Preview Control Essentials for Mac Users\""
-date: 2024-07-10T18:54:54.846Z
-updated: 2024-07-11T18:54:54.846Z
+date: 2024-08-22T14:31:30.522Z
+updated: 2024-08-23T14:31:30.522Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,9 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -92,6 +95,9 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -108,6 +114,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -124,6 +134,9 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -140,6 +153,9 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -186,6 +202,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -212,3 +232,52 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-editorial-expertise-revitalize-iphone-hdr-videos-with-top-4-strategies-in-premiere/"><u>[New] 2024 Approved  [Editorial Expertise] Revitalize iPhone HDR Videos with Top 4 Strategies in Premiere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-15-must-see-investment-channels-online/"><u>[New] 2024 Approved  15 Must-See Investment Channels Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-creative-overhaul-with-tiktok-effects/"><u>[New] 2024 Approved  Creative Overhaul with TikTok Effects</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-audio-extraction-simplified-with-pazera-tools-in-the-new-era/"><u>[New] Audio Extraction Simplified with Pazera Tools in the New Era</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-highlighted-14-examples-of-motion-texts-for-2024/"><u>[New] Highlighted 14 Examples of Motion Texts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-4k-monitor-buying-guide-how-to-choose-the-right-monitor/"><u>[New] In 2024, 4K Monitor Buying Guide  How to Choose the Right Monitor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-a-beginners-tutorial-on-using-luts-in-ar/"><u>[New] In 2024, A Beginner's Tutorial on Using LUTs in AR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-keeping-memories-above-ground-selecting-the-best-cloud-storage/"><u>[New] In 2024, Keeping Memories Above Ground  Selecting the Best Cloud Storage</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-premium-matchmakers-15-perfect-gear-compatible-with-gopro/"><u>[New] In 2024, Premium Matchmakers  15 Perfect Gear Compatible with GoPro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-ultimate-top-8-converter-list-for-sub-to-srt/"><u>[New] In 2024, Ultimate Top 8 Converter List for Sub to SRT</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-master-multi-screen-video-streaming-with-microsoft-edges-pip-for-2024/"><u>[New] Master Multi-Screen Video Streaming with Microsoft Edge's PIP for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-select-vhs-visuals-perfect-for-video-editors-for-2024/"><u>[New] Select VHS Visuals Perfect for Video Editors for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-start-making-money-today-top-13-easy-methods-for-newbies-for-2024/"><u>[New] Start Making Money Today! Top 13 Easy Methods for Newbies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-rokus-potential-engaging-with-facebook-live/"><u>[New] Unveiling Roku's Potential  Engaging with Facebook Live</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-10-must-know-iphone-photography-tips-today-for-2024/"><u>[Updated] 10 Must-Know iPhone Photography Tips Today for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>[Updated] 2024 Approved  Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-captivating-conversations-opening-lines-in-audios/"><u>[Updated] 2024 Approved  Captivating Conversations  Opening Lines in Audios</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-premium-gaming-systems-high-performance-meets-style/"><u>[Updated] 2024 Approved  Premium Gaming Systems  High Performance Meets Style</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-tune-treasure-hunt-finding-the-perfect-audio/"><u>[Updated] 2024 Approved  Tune Treasure Hunt  Finding the Perfect Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ancestral-aesthetics-art-without-restrictive-rights-for-2024/"><u>[Updated] Ancestral Aesthetics  Art Without Restrictive Rights for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-behind-stock-image-memes-stories-that-stood-the-test-for-2024/"><u>[Updated] Behind Stock Image Memes  Stories That Stood the Test for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-excellent-zooid-formats-for-creation/"><u>[Updated] Excellent Zooid Formats for Creation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hue-mastery-interface/"><u>[Updated] Hue Mastery Interface</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-brisk-blueprints-for-scribing-presentations/"><u>[Updated] In 2024, Brisk Blueprints for Scribing Presentations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-tactical-steps-to-download-securely-free-vlc-media-on-mac/"><u>[Updated] In 2024, Tactical Steps to Download Securely Free VLC Media on MAC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-premier-ringtone-makers-for-iphone-users-for-2024/"><u>[Updated] Premier Ringtone Makers for iPhone Users for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-sync-systems-swiftly-fastest-file-methods-for-2024/"><u>[Updated] Sync Systems Swiftly  Fastest File Methods for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-5-pro-level-photovideo-creators-with-soundtracks/"><u>[Updated] Top 5 Pro-Level Photo/Video Creators with Soundtracks</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-oppo-find-x6-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Oppo Find X6 Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-online-sources-for-high-quality-vector-illustrations/"><u>2024 Approved  Top Online Sources for High-Quality Vector Illustrations</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Xiaomi has native MKV support?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-insight-on-the-samsung-ru7300-is-its-design-a-game-changer-for-your-viewing-experience/"><u>Expert Insight on the Samsung RU7300 - Is Its Design a Game-Changer for Your Viewing Experience?</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-xiaomi-redmi-13c-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Xiaomi Redmi 13C 5G Phone | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-best-practices-for-capturing-vimeo-content/"><u>In 2024, Best Practices for Capturing Vimeo Content</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-xs-max-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone XS Max for Free</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/incorporating-background-scenes-for-visual-depth/"><u>Incorporating Background Scenes for Visual Depth</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/iphone-android-which-has-the-better-youtube-experience-in-2024/"><u>IPhone, Android  Which Has the Better YouTube Experience, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/reinventing-data-redemption-insights-from-vishakha-singh/"><u>Reinventing Data Redemption: Insights From Vishakha Singh</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-quiet-problem-solved-boosting-facebook-video-sounds-on-desktop-top-tricks-of-2024/"><u>The Quiet Problem Solved: Boosting Facebook Video Sounds on Desktop - Top Tricks of 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-7-free-dvd-player-software-for-laptop-windowsmac/"><u>Top 7 Free DVD Player Software for Laptop [Windows/Mac]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-tips-for-picking-out-your-dream-smartphone-cover/"><u>Ultimate Tips for Picking Out Your Dream Smartphone Cover</u></a></li>
+<li><a href="https://driver-download.techidaily.com/upgrade-and-enhance-performance-with-official-dell-wd19-graphics-drivers-download-guide/"><u>Upgrade & Enhance Performance with Official Dell WD19 Graphics Drivers - Download Guide</u></a></li>
+</ul></div>

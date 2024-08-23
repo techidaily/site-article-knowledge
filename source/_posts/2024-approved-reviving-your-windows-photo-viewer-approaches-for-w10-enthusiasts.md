@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Reviving Your Windows Photo Viewer  Approaches for W10 Enthusiasts\""
-date: 2024-07-10T19:07:47.698Z
-updated: 2024-07-11T19:07:47.698Z
+date: 2024-08-22T14:25:04.063Z
+updated: 2024-08-23T14:25:04.063Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,9 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -83,18 +86,33 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -121,3 +139,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ignite-interest-a-list-of-30-video-themes/"><u>[New] 2024 Approved  Ignite Interest  A List of 30 Video Themes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-photo-funnies-the-ultimate-guide-to-chuckles-and-tech/"><u>[New] 2024 Approved  Photo Funnies  The Ultimate Guide to Chuckles & Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-prime-selection-top-ranked-gopro-case-models/"><u>[New] 2024 Approved  The Prime Selection  Top-Ranked GoPro Case Models</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-list-of-superior-live-streaming-services/"><u>[New] 2024 Approved  The Ultimate List of Superior Live Streaming Services</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-android-time-lapse-techniques-elevate-your-videos/"><u>[New] Android Time-Lapse Techniques  Elevate Your Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-digital-media-screening-an-insightful-critique/"><u>[New] Digital Media Screening - An Insightful Critique</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-dive-into-the-world-of-books-top-5-captivating-vtts-revealed/"><u>[New] Dive Into the World of Books  Top 5 Captivating VTTs Revealed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-bidfarewelltomycam-the-quest-for-improved-options/"><u>[New] In 2024, BidFarewellToMyCam  The Quest for Improved Options</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-elite-list-8-amazing-3d-websites-and-glittering-text/"><u>[New] In 2024, Elite List  8 Amazing 3D Websites & Glittering Text</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-reducing-excessive-encoding-obs-broadcast/"><u>[New] In 2024, Reducing Excessive Encoding (OBS Broadcast)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-syncing-visual-elements-across-platforms/"><u>[New] In 2024, Syncing Visual Elements Across Platforms</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2023-roundup-premier-professionals-360-cameras/"><u>[Updated] 2023 Roundup  Premier Professionals’ 360 Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-expand-your-online-presence-with-larger-youtube-content/"><u>[Updated] 2024 Approved  Expand Your Online Presence with Larger YouTube Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-expert-analysis-on-slomo-video-softwares-performance/"><u>[Updated] 2024 Approved  Expert Analysis on SloMo Video Software's Performance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-access-unlimited-ringtones-our-top-4-online-spots-for-2024/"><u>[Updated] Access Unlimited Ringtones  Our Top 4 Online Spots for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-aural-elegance-selecting-high-quality-ringtones-online/"><u>[Updated] Aural Elegance  Selecting High-Quality Ringtones Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-discovering-top-10-sites-where-pristine-images-are-abundant-and-free/"><u>[Updated] Discovering Top 10 Sites Where Pristine Images Are Abundant and Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-elite-5-background-swap-apps-compatible-with-iphones-x-7-8/"><u>[Updated] Elite 5 Background Swap Apps Compatible with iPhones (X, 7, 8)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-full-analysis-powerdirector-app-2024/"><u>[Updated] Full Analysis  PowerDirector App - 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-building-captivating-visual-puzzles-a-mosaic-journey/"><u>[Updated] In 2024, Building Captivating Visual Puzzles  A Mosaic Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-high-end-drones-expert-buyers-choices-top-5/"><u>[Updated] In 2024, High-End Drones - Expert Buyers' Choices, Top 5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros/"><u>[Updated] In 2024, Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-tuneful-texts-musical-infusion-on-whatsapp/"><u>[Updated] In 2024, Tuneful Texts  Musical Infusion on WhatsApp</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-incremental-sound-diminishment-guidebook/"><u>[Updated] Incremental Sound Diminishment Guidebook</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-close-up-views-in-minecraft-for-2024/"><u>[Updated] Mastering Close-Up Views in Minecraft for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-perfect-your-skype-screen-record-with-obs/"><u>[Updated] Perfect Your Skype Screen Record with OBS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-practice-empathy-put-yourself-in-the-speakers-shoes-and-try-to-understand-their-perspective-emotions-and-motivations/"><u>[Updated] Practice Empathy  Put Yourself in the Speaker's Shoes and Try to Understand Their Perspective, Emotions, and Motivations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-premium-fourteen-high-res-full-frame-selection/"><u>[Updated] Premium Fourteen  High Res Full Frame Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-shake-free-video-post-capture-tips-and-tricks-for-2024/"><u>[Updated] Shake-Free Video  Post-Capture Tips & Tricks for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-roadmap-to-becoming-an-excellent-interviewer-for-2024/"><u>[Updated] The Roadmap To Becoming An Excellent Interviewer for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://win11.techidaily.com/are-excel-files-opening-in-windows-notepad-try-these-solutions/"><u>Are Excel Files Opening in Windows Notepad? Try These Solutions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/domescope-discussion-piece/"><u>DomeScope Discussion Piece</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-video-editing-in-windows-11-your-movie-maker-primer/"><u>In 2024, Mastering Video Editing in Windows 11 - Your Movie Maker Primer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-telegram-edge-advanced-tactics-for-effective-promotion/"><u>In 2024, The Telegram Edge  Advanced Tactics for Effective Promotion</u></a></li>
+<li><a href="https://win-blog.techidaily.com/navigating-through-persistent-game-crashes-in-final-chapters-on-your-computer/"><u>Navigating Through Persistent Game Crashes in Final Chapters on Your Computer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pleasurable-stream-capture-evaluation/"><u>Pleasurable Stream Capture Evaluation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/portable-cinematic-vibration-reliever-kit/"><u>Portable Cinematic Vibration Reliever Kit</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-unlimited-space-service-catalogue-for-2024/"><u>Prime Unlimited Space Service Catalogue for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/tailoring-text-features-in-ae-compositions/"><u>Tailoring Text Features in AE Compositions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-future-of-search-can-gpt-disrupt-it/"><u>The Future of Search: Can GPT Disrupt It?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-unsung-heroes-of-canvas-open-source-paintings/"><u>The Unsung Heroes of Canvas  Open-Source Paintings</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Transitions in Audition  Fade-In Basics\""
-date: 2024-07-10T19:02:56.503Z
-updated: 2024-07-11T19:02:56.503Z
+date: 2024-08-22T14:27:29.178Z
+updated: 2024-08-23T14:27:29.178Z
 tags: 
   - screen-recording
   - ai video
@@ -72,16 +72,28 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
@@ -90,6 +102,9 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -111,6 +126,9 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -125,6 +143,9 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -158,3 +179,38 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ignite-interest-a-list-of-30-video-themes/"><u>[New] 2024 Approved  Ignite Interest  A List of 30 Video Themes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-photo-funnies-the-ultimate-guide-to-chuckles-and-tech/"><u>[New] 2024 Approved  Photo Funnies  The Ultimate Guide to Chuckles & Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-prime-selection-top-ranked-gopro-case-models/"><u>[New] 2024 Approved  The Prime Selection  Top-Ranked GoPro Case Models</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-list-of-superior-live-streaming-services/"><u>[New] 2024 Approved  The Ultimate List of Superior Live Streaming Services</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-digital-media-screening-an-insightful-critique/"><u>[New] Digital Media Screening - An Insightful Critique</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-dive-into-the-world-of-books-top-5-captivating-vtts-revealed/"><u>[New] Dive Into the World of Books  Top 5 Captivating VTTs Revealed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-your-insta-game-with-flawless-picture-borders/"><u>[New] In 2024, Elevate Your Insta Game with Flawless Picture Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-premiered-top-8-crowd-pleasing-ae-setups/"><u>[New] In 2024, Premiered  Top 8 Crowd-Pleasing AE Setups</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-structure-your-storytelling-with-chapter-tags-in-vimeo-videos/"><u>[New] Structure Your Storytelling with Chapter Tags in Vimeo Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2023-roundup-premier-professionals-360-cameras/"><u>[Updated] 2023 Roundup  Premier Professionals’ 360 Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-access-unlimited-ringtones-our-top-4-online-spots-for-2024/"><u>[Updated] Access Unlimited Ringtones  Our Top 4 Online Spots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dance-directives-finding-ideal-dj-templates-for-2024/"><u>[Updated] Dance Directives  Finding Ideal DJ Templates for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-discovering-top-10-sites-where-pristine-images-are-abundant-and-free/"><u>[Updated] Discovering Top 10 Sites Where Pristine Images Are Abundant and Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-building-captivating-visual-puzzles-a-mosaic-journey/"><u>[Updated] In 2024, Building Captivating Visual Puzzles  A Mosaic Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-high-end-drones-expert-buyers-choices-top-5/"><u>[Updated] In 2024, High-End Drones - Expert Buyers' Choices, Top 5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros/"><u>[Updated] In 2024, Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-tuneful-texts-musical-infusion-on-whatsapp/"><u>[Updated] In 2024, Tuneful Texts  Musical Infusion on WhatsApp</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-close-up-views-in-minecraft-for-2024/"><u>[Updated] Mastering Close-Up Views in Minecraft for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-palette-strategies-utilizing-color-science-in-art/"><u>[Updated] Palette Strategies  Utilizing Color Science in Art</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-practice-empathy-put-yourself-in-the-speakers-shoes-and-try-to-understand-their-perspective-emotions-and-motivations/"><u>[Updated] Practice Empathy  Put Yourself in the Speaker's Shoes and Try to Understand Their Perspective, Emotions, and Motivations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-premium-fourteen-high-res-full-frame-selection/"><u>[Updated] Premium Fourteen  High Res Full Frame Selection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>[Updated] Your Guide to Making Millions on YouTube  From Novice to Big Earnings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-windows-phone-apps-for-your-cinematic-journey/"><u>Best Windows Phone Apps for Your Cinematic Journey</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-pet-care-enjoy-peace-of-mind-with-petsafes-6-meal-automatic-feeder/"><u>Effortless Pet Care: Enjoy Peace of Mind with PetSafe's 6-Meal Automatic Feeder</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-13-miniipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock from Apple iPhone 13 mini/iPad/iPod</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-iphone-13-mini-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra iPhone 13 mini</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-telegram-edge-advanced-tactics-for-effective-promotion/"><u>In 2024, The Telegram Edge  Advanced Tactics for Effective Promotion</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pleasurable-stream-capture-evaluation/"><u>Pleasurable Stream Capture Evaluation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/tailoring-text-features-in-ae-compositions/"><u>Tailoring Text Features in AE Compositions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-unsung-heroes-of-canvas-open-source-paintings/"><u>The Unsung Heroes of Canvas  Open-Source Paintings</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-7-best-mac-video-viewing-tools/"><u>Top 7 Best Mac Video Viewing Tools</u></a></li>
+</ul></div>

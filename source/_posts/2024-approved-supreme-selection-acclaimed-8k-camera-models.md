@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Supreme Selection  Acclaimed 8K Camera Models\""
-date: 2024-07-10T19:06:06.835Z
-updated: 2024-07-11T19:06:06.835Z
+date: 2024-08-22T14:25:53.636Z
+updated: 2024-08-23T14:25:53.636Z
 tags: 
   - screen-recording
   - ai video
@@ -64,6 +64,9 @@ The rumors that Canon is working on its first 8K camera surfaced in early 2019, 
 
 ![Canon EOS 5DS R DSLR Camera](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Cannon
 
 This camera should be capable of recording **8K footage at 60 fps**, as well as 4K footage at 120 fps, but whether or not this will turn out to be true still remains to be seen. However, a number of Canon’s models are already equipped with **50MP** sensors that can capture still images in resolutions that go as high as **8712 x 5813** or record videos in 4K resolution at 60fps.
@@ -78,6 +81,9 @@ At the moment the [Nikon D850](https://www.nikonusa.com/en/nikon-products/produc
 
 ![Nikon D850 8K Timelapse Camera](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 Image resource: Nikon
 
 This Nikon’s camera has also 7fps continuous shooting mode as well as the capability to record 4K UHD videos at 30, 25 and 24 fps. Nikon D850 has an FX CMOS sensor that can capture images that have 8256 x 5504 pixels and the ISO sensitivity that ranges from ISO 64 to ISO 25,600.
@@ -94,6 +100,9 @@ A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and 
 
 It features two **AUDIO IN XLR type 3 pins** and one **MIC IN XLR type 5 pin**. The camcorder doesn’t have batteries and it is powered through a **130W 13V DC output AC/DC adapter XLR 4-pin**. The Sharp’s 8C-B60A 8K camcorder is undoubtedly one of the best 8K cameras you can buy in 2024, despite the hefty price tag.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Sony
 
 Professional cinematographers don’t need an introduction to Sony’s cameras, as the Japanese camera manufacturer has been at the forefront of the digital camera market for decades. Their [F65 CineAlta](https://pro.sony/ue%5FUS/products/digital-cinema-cameras/f65#SATD501220TheF65Cinealta-f65) was released in 2016, but it is still one of the best 8K cameras you can buy in 2024\. This speaks volumes about the F65’s capabilities, much like the fact that professional cinematographers have nothing but praise for this Sony’s camera model.
@@ -106,24 +115,42 @@ The **1-chip 20MP Super 35mm type** **24.7mm X 13.1mm** **CMOS sensor** enables 
 
 The camera has **14 stops of exposure latitude**, so if you are shooting RAW video files F65 will utilize the **S-Log3/S-Gamut3 gamma curve** to ensure accurate color depiction. In addition, this 8K camera can capture **275,000,000,000,000 color variations** even while you are shooting in full resolution at 60fps. Unsurprisingly, F65 CineAlta costs more than $60.000, but it is still a great investment for all professional filmmakers in need of a camera that can deliver great performances regardless of the available light.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 5\. Ikegami
 
 Ikegami is a well-known manufacturer of professional broadcast cameras, so it comes as no surprise that the first handheld 8K UHD Television Camera System was produced by this Japanese television equipment manufacturer. Their [SHK-810 8K Super Hi-Vision Camera System](https://www.ikegami.com/archives/menu1/shk-810) features a **Super 35mm 33 million-pixel CMOS Sensor** as well as **4,000 TV lines** which enables the camera to capture highly-detailed images.
 
 ![ikegami 8K Super Hi-Vision Camera System](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 Image resource: ikegami
 
 This broadcast camera has **a PL lens mount with a back-focus adjusting mechanism** that helps the camera operator to keep the image sharp even while recording rapidly moving figures and objects. The SHK-810’s output signal features are equally impressive since you can choose between **SHV Dual Green SDI Interface, 4K SMPTE 424M (3G-SDI) Level B and HD SMPTE 292M** options.
 
 In addition, you can choose between **2-channel x 4K and 4-channel HD** return signals or opt for **Tri-Level Sync** or **VBS** external sync signals. However, SHK-810 is bulky and heavy, as it weighs 9kg or 19.6 lbs without a viewfinder which makes it difficult to use without a tripod during events that last for several hours. Moreover, the camera is aimed at large television networks rather than filmmakers and cinematographers, and at the moment Ikegami doesn’t offer any 8K camera models that are designed for filmmaking purposes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### 6\. Red
 
 The list of TV shows and movies shot on RED cameras is seemingly endless and it includes some of the best movies made over the last ten years. Models like [Monstro 8K VV](https://www.red.com/DSMC2-BRAIN?quantity=1?sensor=1), [Helium 8K S35](https://www.red.com/DSMC2-BRAIN?quantity=1&sensor=2) [Helium 8K S35 Monochrome](https://www.red.com/DSMC2-MONOCHROME-BRAIN?quantity=1&sensor=2) are all **modular DSMC2 cameras** that can be used with different types of lenses. Each of these 8K cameras has a **35.4 MP CMOS sensor**, however, the size of the sensor depends on the model. All RED’s 8K DSMC2 cameras can write data at **300 MB/s** and they have an incredibly high dynamic range that varies from **16.5+ to 17+ stops**, which enables them to capture a broad spectrum of colors.
 
 ![Red DSMC2 BRAIN](https://images.wondershare.com/filmora/article-images/red-dsmc2-brain-monstro-8k-w.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 Image resource: red
 
 Furthermore, each of the Red’s 8K cameras can record 8K videos at **60fps** while they also offer the possibility to capture **7K, 6K, 5K or 4K** videos at different frame rates. In addition, these modular cameras are equipped with the **Apple ProRes codecs** that ensure high image quality throughout the video recording and editing processes.
@@ -168,3 +195,44 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-elevate-your-social-media-game-post-tiktoks-on-twitter/"><u>[New] 2024 Approved  Elevate Your Social Media Game  Post TikToks on Twitter</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prime-platforms-3d-models-in-animation/"><u>[New] 2024 Approved  Prime Platforms  3D Models in Animation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-techniques-selecting-audioscapes-for-unveiling-videos/"><u>[New] 2024 Approved  Techniques  Selecting Audioscapes for Unveiling Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-expert-strategies-for-finding-no-cost-art/"><u>[New] Expert Strategies for Finding No-Cost Art</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fast-lanes-migrating-iphone-media-to-a-desktop/"><u>[New] In 2024, Fast Lanes  Migrating iPhone Media to a Desktop</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-world-of-hand-gesture-recognition/"><u>[New] Navigating the World of Hand Gesture Recognition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-synthesize-sounds-and-images-in-ppts-for-2024/"><u>[New] Synthesize Sounds and Images in PPTS for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unmatched-fast-picture-viewer-experience-for-2024/"><u>[New] Unmatched Fast Picture Viewer Experience for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-innovative-dialogues-the-key-to-listener-retention/"><u>[Updated] 2024 Approved  Innovative Dialogues  The Key to Listener Retention</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-superior-vr-equipment-for-drone-flight/"><u>[Updated] 2024 Approved  Superior VR Equipment for Drone Flight</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-step-by-step-approach-to-professional-ps4-gaming-recordings/"><u>[Updated] A Step-by-Step Approach to Professional PS4 Gaming Recordings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-expert-psd-borderline-elegance/"><u>[Updated] Expert PSD Borderline Elegance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exploring-5-engaging-book-promo-videos/"><u>[Updated] Exploring 5 Engaging Book Promo Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-high-performance-windows-editing-tools-roundup-reviewed/"><u>[Updated] High Performance Windows Editing Tools Roundup Reviewed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-desktop-recording-head-to-head-obs-vs-shadowplay/"><u>[Updated] In 2024, Desktop Recording Head-to-Head  OBS Vs. ShadowPlay</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-htcs-immersive-revolution-a-deep-dive-into-vr-headset-magic/"><u>2024 Approved  HTC's Immersive Revolution  A Deep Dive Into VR Headset Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/evaluating-hdr-tvs-does-aurora-hit-the-mark-in-2024/"><u>Evaluating HDR TVs  Does Aurora Hit the Mark, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-virtual-mirror-to-profile-spotlight-crafting-the-perfect-fb-cover-photo-with-you/"><u>From Virtual Mirror to Profile Spotlight: Crafting the Perfect FB Cover Photo with You</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/game-on-with-premium-screens-for-your-xbox-series-x-console/"><u>Game on with Premium Screens for Your Xbox Series X Console</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uch-money-does-mr-beast-make-for-2024/"><u>How Much Money Does Mr. Beast Make for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-nubia-z50s-pro-easily-by-drfone-android/"><u>How To Unlock a Nubia Z50S Pro Easily?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-xs-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock iPhone XS Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-laserjet-5200-driver-download-for-optimal-printing-on-windows-108sx-systems/"><u>HP LaserJet 5200 Driver Download for Optimal Printing on Windows 10/8/SX Systems</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-iphone-12-mini-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For iPhone 12 mini</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-xiaomi-13t-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Xiaomi 13T to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-htc-vives-diving-into-depth-a-vr-experience-review/"><u>In 2024, HTC Vive's Diving Into Depth  A VR Experience Review</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-the-ultimate-guide-to-boosting-sale-traffic-top-15-fb-analysis-tools-reviewed/"><u>In 2024, The Ultimate Guide to Boosting Sale Traffic  Top 15 FB Analysis Tools Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-video-directors-ultimate-companion-powerdirector-full-review/"><u>In 2024, Video Directors' Ultimate Companion - PowerDirector Full Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-whatsapp-voice-dialogues-explained/"><u>In 2024, WhatsApp Voice Dialogues Explained</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/instant-illusions-mastering-time-lapse-photography-on-samsung-for-2024/"><u>Instant Illusions  Mastering Time-Lapse Photography on Samsung for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/jumping-into-higher-performance-upgrading-windows-11s-bitness/"><u>Jumping Into Higher Performance: Upgrading Windows 11'S Bitness</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>Perfecting Visual Output  Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/quantum-leap-in-photography-understanding-hdr-for-2024/"><u>Quantum Leap in Photography  Understanding HDR for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/revolutionary-slim-form-factor-explore-minisforums-latest-mini-pc-with-powerful-amd-processor-and-enhanced-gaming-gpu-options/"><u>Revolutionary Slim Form Factor: Explore Minisforum's Latest Mini PC with Powerful AMD Processor and Enhanced Gaming GPU Options</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/solved-how-to-transfer-from-apple-iphone-se-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>Solved How To Transfer From Apple iPhone SE to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamlining-the-photo-date-addition-process/"><u>Streamlining the Photo Date-Addition Process</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-deleted-contacts-in-android-comprehensive-strategies-revealed/"><u>Unveiling Deleted Contacts in Android: Comprehensive Strategies Revealed</u></a></li>
+</ul></div>
