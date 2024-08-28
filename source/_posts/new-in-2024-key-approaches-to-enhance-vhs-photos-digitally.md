@@ -1,0 +1,427 @@
+---
+title: "[New] In 2024, Key Approaches to Enhance VHS Photos Digitally"
+date: 2024-08-27T07:19:00.107Z
+updated: 2024-08-28T07:19:00.107Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] In 2024, Key Approaches to Enhance VHS Photos Digitally"
+excerpt: "This Article Describes [New] In 2024, Key Approaches to Enhance VHS Photos Digitally"
+keywords: "IPhone SEO Tips,Android SEO Hacks,IOS SEO Strategies,Android Optimization,Digital Enhancement,IPhone SEO Guide,Android SEO Update"
+thumbnail: https://thmb.techidaily.com/e04a9e5f3764ad02106bedbd9d5d7455103ba03869a73a825a4ebe2566d36218.jpg
+---
+
+## Key Approaches to Enhance VHS Photos Digitally
+
+Effects and overlays can transform ordinary content into something extraordinary. In the age of content creation, people tend to use such elements to make their content look good. Even professionals and influencers use effects to make their content better. These effects range from subtle color grading adjustments to elaborate visual transformations.
+
+One popular effect that has gained significant attention is the **VHS photo effect**. Inspired by the nostalgic aesthetics of VHS tapes, this effect gives videos a vintage look. It adds grainy textures, distorted colors, and other elements that take viewers back in time. You might be thinking about how to use these effects in your videos. However, there are multiple tools to apply these effects to your content.
+
+## Part 1: Best Computer Software For Applying VHS Photo Effects
+
+You can install many software and offline tools on your PC to add effects to your videos. However, choosing the right one to apply **a VHS filter for photos** and videos is important. There are 3 most popular tools to apply VHS effects on your videos.
+
+1. [Wondershare Filmora](#1.1)
+2. [Adobe Premiere Pro](#1.2)
+3. [Final Cut Pro X](#1.3)
+
+### 1\. Wondershare Filmora
+
+When it comes to video editing and other amazing effects, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is the best bet. It features some of the most unique and quickest operations for effective video editing. You can easily apply filters, effects, and overlays to your media files. If you want to create your filter or effect, you can create using this tool. However, choosing an overlay over a manually created preset is always accessible.
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmora vhs](https://images.wondershare.com/filmora/article-images/2023/wondershare-filmora-vhs.jpg)
+
+**Key Features**
+
+* It offers a comprehensive set of advanced color correction tools. This option includes color grading, curves, and matching. With this option, you can color professionally grade your video.
+* Wondershare Filmora includes filters, effects, transitions, and much more. With this much to explore, you can edit, change, and transform your video in many ways.
+* This tool offers multiple AI features as well. You can automatically remove silence or even awkward moments from your video. This makes your video look more professional and seamless.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2\. Adobe Premiere Pro
+
+[Adobe Premiere Pro](https://www.adobe.com/products/premiere.html#mini-plans-web-cta-premiere-pro-card) is a professional video editing software with powerful editing options. This tool is a favorite among content creators and professionals worldwide. With this tool, you can add popular effects, including VHS effects, to your videos. Moreover, you can also create your own preset and save it for future edits. You can add glitch effects, noise, and more elements to your content.
+
+![adobe premiere pro vhs](https://images.wondershare.com/filmora/article-images/2023/adobe-premiere-pro-vhs.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+**Key Features**
+
+* Adobe Premiere Pro allows you to precisely trim, cut, and arrange your video clips. You have full control over your edits with features like multi-cam editing and dynamic timeline.
+* One of the standout features of this tool is its extensive effects library. You can access a large collection of effects, from color correction to motion graphics.
+* This tool integrates with the Adobe Creative Cloud ecosystem. This feature allows you to collaborate with other Adobe applications easily.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Final Cut Pro X
+
+If you're an Apple user seeking a powerful video editing tool, you can't go better than [Final Cut Pro X](https://www.apple.com/final-cut-pro/trial/). It is designed specifically for macOS by offering some amazing editing options. Final Cut Pro X provides an effects library where you can choose from a vast range. Using this tool, you can download different **VHS photo filter** overlays to your Mac to apply them to your video.
+
+![ fcpx vhs effects](https://images.wondershare.com/filmora/article-images/2023/fcpx-vhs-effects.jpg)
+
+**Key Features**
+
+* Final Cut Pro X features a unique Magnetic Timeline that automatically organizes your clips. This timeline also eliminates the need for manual track management.
+* It provides a comprehensive collection of high-quality video and audio effects. You can choose from keying to audio noise reduction options to improve your video.
+* This tool utilizes optimized rendering and exporting techniques for your edits. This feature ensures faster processing and efficient output.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2: Best Online Tools For Applying Quick VHS Photo Effects
+
+Apart from offline software and tools, there are many online solutions too to apply effects too. These three amazing software lets you apply your desired **VHS photo effects** to your videos.
+
+1. [Veed.io](#2.1)
+2. [CreatorKit](#2.2)
+3. [Fastreel](#2.3)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+### 1\. Veed.io
+
+[Veed.io](https://www.veed.io/tools/video-editor-effects/vhs-overlay) is a platform that offers many incredible solutions to the user. When it comes to video editing, this online tool provides some amazing editing features. This tool provides many effects and filters that you can apply and create an impressive video. You can even add subtitles, texts, and emoji to your videos. Additionally, you can even add photos to create an impressive video slideshow.
+
+![veed.io vhs effects](https://images.wondershare.com/filmora/article-images/2023/veed-io-vhs-effects.jpg)
+
+**Key Features**
+
+* This tool can convert your texts and transform your words into engaging videos. It uses the power of artificial intelligence to generate a video.
+* You can add a virtual green screen to your videos to add VFX and other effects. Using this green screen effect, you can take your edits to a whole new level.
+* Veed.io also offers many adjustments and enhancements options. You can change the background or even remove the background using this tool.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
+### 2\. CreatorKit
+
+[CreatorKit](https://creatorkit.com/video-effects-filters/) is a great tool if you're looking for an easy editing solution. This tool is for those who don't want to get into the complications of video editing. It provides simple drag-and-drop options, which makes this tool more fun and easy to use. You can also change the aspect ratio of your videos to your preferred size. It will help you to conveniently upload your VHS videos with the correct aspect ratio to different platforms.
+
+![creatorkit vhs effects](https://images.wondershare.com/filmora/article-images/2023/creatorkit-vhs-effects.jpg)
+
+**Key Features**
+
+* This tool provides some basic features, including trimming and merging your video. You can trim multiple videos and merge them to create one long video.
+* Another unique feature of CreatorKit is that it makes your words live. This incredible tool can easily transform any written script into a professional-looking video.
+* CreatorKit provides many templates that you can use for content creation. Moreover, if you want to add your video's watermark, you can with this tool.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Fastreel
+
+[Fastreel](https://www.fastreel.com/video-filters.html) is a great video editor that lets you avoid the trouble of installation. This tool provides you with essential editing options, including adjustments and enhancements. You can edit your video and add text and music to it using this tool. Additionally, this tool allows you to add your favorite filter to your video, like a **glitch photo filter**.
+
+![fastreel vhs effects](https://images.wondershare.com/filmora/article-images/2023/fastreel-vhs-effects.jpg)
+
+**Key Features**
+
+* This tool provides you with an opportunity to turn your images into a video. You can quickly transform your pictures and create an impressive slideshow with this tool.
+* If you want to add a video to a video, then this is the right tool for you. This tool enables you to create a split-screen video with its features.
+* In addition, Fastreel allows you to play with its incredible features. You can add a bespoke watermark with this tool. Moreover, you can even compress your video using this online tool.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Wondershare Filmora: The Perfect Alternative For Professional and Quick Results
+
+If you're looking for an alternative tool to add a **VHS filter photo effect**, Filmora can do it. This tool has many available presets in its library that you can choose from. Before selecting your favorite effect, learn how to apply these effects to your video. These easy-to-learn steps will show you how to apply effects using Wondershare Filmora.
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+##### Step 1Open Wondershare Filmora to Import Your Media
+
+To initiate the process, open Wondershare Filmora on your computer. Look for the "New Project" tab in the main interface and click on it to open a new window. Then, import your video into the software by dragging and dropping it. Further, drag and drop the imported video into the timeline area to start working on it.
+
+![launch filmora and import](https://images.wondershare.com/filmora/article-images/2023/launch-filmora-and-import-video-for-apply-vhs.jpg)
+
+##### Step 2Apply VHS Photo Effect to Your Media
+
+Apply the **VHS photo filter** by finding the "Effects" option located in the top bar of the software. Next. in the tab, search for "VHS" to discover the different VHS effects available. Proceed next by selecting the effect you want to apply and dragging it onto your video in the timeline.
+
+![add vhs to video](https://images.wondershare.com/filmora/article-images/2023/add-vhs-to-video-on-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Step 3Change the Opacity of the Effect
+
+If you want to change the intensity of the applied effect, you can adjust its opacity. To do so, on the right side of the screen, you'll find the "Effects" tab. Further, modify the effect's "Opacity" by moving the slider. Finally, click "Export" at the top left of the screen to save your video with the applied effect.
+
+![change vhs parameters and export](https://images.wondershare.com/filmora/article-images/2023/change-vhs-parameters-and-export-on-filmora.jpg)
+
+## Conclusion
+
+Content creation has opened many doors of creativity and artistic expression for everyone. Now, almost everyone thinks of ways to make their content look unique and impressive. Similarly, many tools and apps offer overlays and filters to make the content look good. Wondershare Filmora is an amazing tool that lets you create your own or apply the inbuilt presets to your videos. So, apply VHS photo filters to your video using this tool.
+
+1\. Wondershare Filmora
+
+When it comes to video editing and other amazing effects, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is the best bet. It features some of the most unique and quickest operations for effective video editing. You can easily apply filters, effects, and overlays to your media files. If you want to create your filter or effect, you can create using this tool. However, choosing an overlay over a manually created preset is always accessible.
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmora vhs](https://images.wondershare.com/filmora/article-images/2023/wondershare-filmora-vhs.jpg)
+
+**Key Features**
+
+* It offers a comprehensive set of advanced color correction tools. This option includes color grading, curves, and matching. With this option, you can color professionally grade your video.
+* Wondershare Filmora includes filters, effects, transitions, and much more. With this much to explore, you can edit, change, and transform your video in many ways.
+* This tool offers multiple AI features as well. You can automatically remove silence or even awkward moments from your video. This makes your video look more professional and seamless.
+
+### 2\. Adobe Premiere Pro
+
+[Adobe Premiere Pro](https://www.adobe.com/products/premiere.html#mini-plans-web-cta-premiere-pro-card) is a professional video editing software with powerful editing options. This tool is a favorite among content creators and professionals worldwide. With this tool, you can add popular effects, including VHS effects, to your videos. Moreover, you can also create your own preset and save it for future edits. You can add glitch effects, noise, and more elements to your content.
+
+![adobe premiere pro vhs](https://images.wondershare.com/filmora/article-images/2023/adobe-premiere-pro-vhs.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Key Features**
+
+* Adobe Premiere Pro allows you to precisely trim, cut, and arrange your video clips. You have full control over your edits with features like multi-cam editing and dynamic timeline.
+* One of the standout features of this tool is its extensive effects library. You can access a large collection of effects, from color correction to motion graphics.
+* This tool integrates with the Adobe Creative Cloud ecosystem. This feature allows you to collaborate with other Adobe applications easily.
+
+### 3\. Final Cut Pro X
+
+If you're an Apple user seeking a powerful video editing tool, you can't go better than [Final Cut Pro X](https://www.apple.com/final-cut-pro/trial/). It is designed specifically for macOS by offering some amazing editing options. Final Cut Pro X provides an effects library where you can choose from a vast range. Using this tool, you can download different **VHS photo filter** overlays to your Mac to apply them to your video.
+
+![ fcpx vhs effects](https://images.wondershare.com/filmora/article-images/2023/fcpx-vhs-effects.jpg)
+
+**Key Features**
+
+* Final Cut Pro X features a unique Magnetic Timeline that automatically organizes your clips. This timeline also eliminates the need for manual track management.
+* It provides a comprehensive collection of high-quality video and audio effects. You can choose from keying to audio noise reduction options to improve your video.
+* This tool utilizes optimized rendering and exporting techniques for your edits. This feature ensures faster processing and efficient output.
+
+## Part 2: Best Online Tools For Applying Quick VHS Photo Effects
+
+Apart from offline software and tools, there are many online solutions too to apply effects too. These three amazing software lets you apply your desired **VHS photo effects** to your videos.
+
+1. [Veed.io](#2.1)
+2. [CreatorKit](#2.2)
+3. [Fastreel](#2.3)
+
+### 1\. Veed.io
+
+[Veed.io](https://www.veed.io/tools/video-editor-effects/vhs-overlay) is a platform that offers many incredible solutions to the user. When it comes to video editing, this online tool provides some amazing editing features. This tool provides many effects and filters that you can apply and create an impressive video. You can even add subtitles, texts, and emoji to your videos. Additionally, you can even add photos to create an impressive video slideshow.
+
+![veed.io vhs effects](https://images.wondershare.com/filmora/article-images/2023/veed-io-vhs-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Key Features**
+
+* This tool can convert your texts and transform your words into engaging videos. It uses the power of artificial intelligence to generate a video.
+* You can add a virtual green screen to your videos to add VFX and other effects. Using this green screen effect, you can take your edits to a whole new level.
+* Veed.io also offers many adjustments and enhancements options. You can change the background or even remove the background using this tool.
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2\. CreatorKit
+
+[CreatorKit](https://creatorkit.com/video-effects-filters/) is a great tool if you're looking for an easy editing solution. This tool is for those who don't want to get into the complications of video editing. It provides simple drag-and-drop options, which makes this tool more fun and easy to use. You can also change the aspect ratio of your videos to your preferred size. It will help you to conveniently upload your VHS videos with the correct aspect ratio to different platforms.
+
+![creatorkit vhs effects](https://images.wondershare.com/filmora/article-images/2023/creatorkit-vhs-effects.jpg)
+
+**Key Features**
+
+* This tool provides some basic features, including trimming and merging your video. You can trim multiple videos and merge them to create one long video.
+* Another unique feature of CreatorKit is that it makes your words live. This incredible tool can easily transform any written script into a professional-looking video.
+* CreatorKit provides many templates that you can use for content creation. Moreover, if you want to add your video's watermark, you can with this tool.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### 3\. Fastreel
+
+[Fastreel](https://www.fastreel.com/video-filters.html) is a great video editor that lets you avoid the trouble of installation. This tool provides you with essential editing options, including adjustments and enhancements. You can edit your video and add text and music to it using this tool. Additionally, this tool allows you to add your favorite filter to your video, like a **glitch photo filter**.
+
+![fastreel vhs effects](https://images.wondershare.com/filmora/article-images/2023/fastreel-vhs-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Key Features**
+
+* This tool provides you with an opportunity to turn your images into a video. You can quickly transform your pictures and create an impressive slideshow with this tool.
+* If you want to add a video to a video, then this is the right tool for you. This tool enables you to create a split-screen video with its features.
+* In addition, Fastreel allows you to play with its incredible features. You can add a bespoke watermark with this tool. Moreover, you can even compress your video using this online tool.
+
+## Part 3: Wondershare Filmora: The Perfect Alternative For Professional and Quick Results
+
+If you're looking for an alternative tool to add a **VHS filter photo effect**, Filmora can do it. This tool has many available presets in its library that you can choose from. Before selecting your favorite effect, learn how to apply these effects to your video. These easy-to-learn steps will show you how to apply effects using Wondershare Filmora.
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Apply VHS Photo Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+##### Step 1Open Wondershare Filmora to Import Your Media
+
+To initiate the process, open Wondershare Filmora on your computer. Look for the "New Project" tab in the main interface and click on it to open a new window. Then, import your video into the software by dragging and dropping it. Further, drag and drop the imported video into the timeline area to start working on it.
+
+![launch filmora and import](https://images.wondershare.com/filmora/article-images/2023/launch-filmora-and-import-video-for-apply-vhs.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Step 2Apply VHS Photo Effect to Your Media
+
+Apply the **VHS photo filter** by finding the "Effects" option located in the top bar of the software. Next. in the tab, search for "VHS" to discover the different VHS effects available. Proceed next by selecting the effect you want to apply and dragging it onto your video in the timeline.
+
+![add vhs to video](https://images.wondershare.com/filmora/article-images/2023/add-vhs-to-video-on-filmora.jpg)
+
+##### Step 3Change the Opacity of the Effect
+
+If you want to change the intensity of the applied effect, you can adjust its opacity. To do so, on the right side of the screen, you'll find the "Effects" tab. Further, modify the effect's "Opacity" by moving the slider. Finally, click "Export" at the top left of the screen to save your video with the applied effect.
+
+![change vhs parameters and export](https://images.wondershare.com/filmora/article-images/2023/change-vhs-parameters-and-export-on-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Content creation has opened many doors of creativity and artistic expression for everyone. Now, almost everyone thinks of ways to make their content look unique and impressive. Similarly, many tools and apps offer overlays and filters to make the content look good. Wondershare Filmora is an amazing tool that lets you create your own or apply the inbuilt presets to your videos. So, apply VHS photo filters to your video using this tool.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-achieving-million-sub-milestone-the-youtube-guide/"><u>[New] 2024 Approved  Achieving Million-Sub Milestone  The YouTube Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-affordable-android-chat-top-free-app-alternatives-for-2024/"><u>[New] Affordable Android Chat  Top Free App Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-historical-knowledge-at-your-fingertips-best-yt-history-channels/"><u>[New] Historical Knowledge at Your Fingertips  Best YT History Channels</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-a-comprehensive-handbook-for-recording-live-hulu-on-pcmacosandroid/"><u>[New] In 2024, A Comprehensive Handbook for Recording Live Hulu on PC/MacOS/Android</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-essential-guide-converting-youtube-videos-to-mpegmp4/"><u>[New] In 2024, Essential Guide  Converting YouTube Videos to MPEG/MP4</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-finding-friends-films-and-snapshots-on-the-social-web/"><u>[New] In 2024, Finding Friends’ Films & Snapshots on the Social Web</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-snappyscreen-recording-suite/"><u>[New] In 2024, SnappyScreen Recording Suite</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-the-art-of-trimming-tamil-melodies-best-practices/"><u>[New] Mastering the Art of Trimming Tamil Melodies  Best Practices</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-personalize-twitter-video-thumbnail/"><u>[New] Personalize Twitter Video Thumbnail</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-fast-lane-olympic-highlights-in-short-track-speed-skating-for-2024/"><u>[New] The Fast Lane  Olympic Highlights in Short-Track Speed Skating for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-turbo-speed-for-snapchat-newcomers-video-edition/"><u>[New] Turbo Speed for Snapchat Newcomers  Video Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-core-auditory-stimulation-channels/"><u>[Updated] 2024 Approved  Core Auditory Stimulation Channels</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-premier-recorder-clean-and-clear-android-edition/"><u>[Updated] 2024 Approved  Premier Recorder  Clean and Clear Android Edition</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-ranking-the-best-third-place-recording-tools-for-ipad/"><u>[Updated] 2024 Approved  Ranking the Best Third-Place Recording Tools for iPad</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-focusing-the-lens-advanced-cinematic-techniques/"><u>[Updated] Focusing the Lens  Advanced Cinematic Techniques</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-essential-list-of-premium-free-srt-translators/"><u>[Updated] The Essential List of Premium FREE SRT Translators</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unearthing-the-best-free-mac-apps-for-speech-to-text/"><u>[Updated] Unearthing the Best Free Mac Apps for Speech to Text</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-achieve-sharp-footage-with-best-rated-camera-gimbals/"><u>2024 Approved  Achieve Sharp Footage with Best-Rated Camera Gimbals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-after-effects-textwork-essentials-the-10-best-presets/"><u>2024 Approved  After Effects Textwork Essentials  The 10 Best Presets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-bridging-photos-and-video-in-pixiz-a-comprehensive-guide/"><u>2024 Approved  Bridging Photos & Video in Pixiz  A Comprehensive Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cost-free-webm-viewing-a-list-of-industry-standouts/"><u>2024 Approved  Cost-Free WebM Viewing  A List of Industry Standouts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-crafting-visual-stories-in-minutes-using-windows-8-movie-maker/"><u>2024 Approved  Crafting Visual Stories in Minutes Using Window's 8 Movie Maker</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cutting-through-the-noise-top-15-non-gopro-cameras/"><u>2024 Approved  Cutting Through the Noise  Top 15 Non-GoPro Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-data-size-and-time-coefficient-in-video-files-20mb/"><u>2024 Approved  Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-decoding-video-compression-excellence-av1-vs-vp9/"><u>2024 Approved  Decoding Video Compression Excellence  AV1 vs VP9</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-detailed-close-ups-made-easy-in-videoleap-editing/"><u>2024 Approved  Detailed Close-Ups Made Easy in Videoleap Editing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dynamic-dialogue-driven-decks/"><u>2024 Approved  Dynamic Dialogue Driven Decks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-engaging-audiences-full-rotational-cinematography/"><u>2024 Approved  Engaging Audiences  Full Rotational Cinematography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-exceptional-book-video-examples/"><u>2024 Approved  Exceptional Book Video Examples</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-filmoras-peers-the-best-slide-show-template-collections/"><u>2024 Approved  Filmora's Peers  The Best Slide Show Template Collections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-fiscal-football-freedom-capturing-contests-without-cash/"><u>2024 Approved  Fiscal Football Freedom  Capturing Contests Without Cash</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-garmin-virb-ultra-30-action-camera-review/"><u>2024 Approved  Garmin VIRB Ultra 30 Action Camera Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-gopro-hero-session-vs-polaroid-cubeplus-which-one-is-better-for-you/"><u>2024 Approved  GoPro Hero Session Vs Polaroid Cube+  Which One Is Better for You?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-guide-to-correcting-and-confirming-your-age-information-on-tiktok/"><u>2024 Approved  Guide to Correcting & Confirming Your Age Information on TikTok</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-hdr-tech-review-auroras-place-among-leaders/"><u>2024 Approved  HDR Tech Review  Aurora's Place Among Leaders</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-many-seconds-is-a-20mb-video/"><u>2024 Approved  How Many Seconds Is a 20Mb Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-leverage-slug-lines-in-articles/"><u>2024 Approved  How to Leverage Slug Lines in Articles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-record-professional-audio-in-audacity/"><u>2024 Approved  How To Record Professional Audio In Audacity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-image-ingenuity-optimal-apps-and-platforms-for-frames-to-photos/"><u>2024 Approved  Image Ingenuity  Optimal Apps and Platforms for Frames to Photos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-impact-of-visual-client-reviews-on-business-image/"><u>2024 Approved  Impact of Visual Client Reviews on Business Image</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-in-depth-analysis-and-exploration-adobe-storage-vs-competitors-options/"><u>2024 Approved  In-Depth Analysis & Exploration  Adobe Storage Vs. Competitors' Options</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-insider-strategies-free-access-to-professional-imagery/"><u>2024 Approved  Insider Strategies  Free Access to Professional Imagery</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-audience-reach-prime-dissemination-days/"><u>2024 Approved  Maximizing Audience Reach  Prime Dissemination Days</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-video-collection-on-tiktok-efficiently/"><u>2024 Approved  Maximizing Video Collection on TikTok Efficiently</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-miro-extreme-8-pro-wmps-elite-alternative/"><u>2024 Approved  Miro Extreme 8 Pro  WMP's Elite Alternative</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-outstanding-unlimited-space-service-index/"><u>2024 Approved  Outstanding Unlimited Space Service Index</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-podcastpathfinder-charting-new-courses/"><u>2024 Approved  PodcastPathfinder  Charting New Courses</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-premier-digital-hubs-seamless-ringtones-acquisition/"><u>2024 Approved  Premier Digital Hubs  Seamless Ringtones Acquisition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-simplify-satire-funniest-memes-made-simple/"><u>2024 Approved  Simplify Satire  Funniest Memes Made Simple</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-art-of-monitors-reimagined-an-insight-into-the-z32x/"><u>2024 Approved  The Art of Monitors Reimagined  An Insight Into the Z32X</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-peak-of-data-preservation-cloud-service-guide/"><u>2024 Approved  The Peak of Data Preservation  Cloud Service Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-wmm-tutorial-for-aspiring-animators/"><u>2024 Approved  The Ultimate WMM Tutorial for Aspiring Animators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-10-most-affordable-cloud-vendors-listed/"><u>2024 Approved  Top 10 Most Affordable Cloud Vendors Listed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-vr-headset-companies/"><u>2024 Approved  Top VR Headset Companies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-best-metaverse-vr-headsets-and-wearables/"><u>2024 Approved  Unveiling the Best Metaverse VR Headsets & Wearables</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-visual-prowess-top-5-camera-techniques-for-the-year-filmographys-review-of-24/"><u>2024 Approved  Visual Prowess  Top 5 Camera Techniques for the Year - Filmography's Review of '24</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-quality-steadicam-equipment-for-drone-filmmaking/"><u>Best-Quality Steadicam Equipment for Drone Filmmaking</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/cant-connect-to-the-internet-on-your-apple-watch-heres-what-to-do/"><u>Can't Connect to the Internet on Your Apple Watch? Here's What to Do!</u></a></li>
+<li><a href="https://win11.techidaily.com/chronicles-unveiled-diving-into-windows-11-history/"><u>Chronicles Unveiled: Diving Into Windows 11 History</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/cyberpunk-2077-muted-troubleshoot-game-sounds-for-a-perfect-gaming-experience-on-windows-11/"><u>Cyberpunk 2077 Muted? Troubleshoot Game Sounds for a Perfect Gaming Experience on Windows 11</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862816787-elevate-your-gaming-setup-the-sale-of-a-lifetime-acer-nitros-24-curved-monitor-at-an-unbeatable-price-of-81/"><u>Elevate Your Gaming Setup: The Sale of a Lifetime - Acer Nitro's 24 Curved Monitor at an Unbeatable Price of $81!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/explore-the-finest-ios-solutions-for-psp-emulation/"><u>Explore the Finest iOS Solutions for PSP Emulation</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-y100t-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo Y100t</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smart-shopping-for-quality-budget-friendly-4k-cameras/"><u>In 2024, Smart Shopping for Quality  Budget-Friendly 4K Cameras</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-depth-analysis-leading-tv-streaming-providers/"><u>In-Depth Analysis  Leading TV Streaming Providers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-zoom-in-on-powerpoint-easy-ways-for-2024/"><u>New How to Zoom in on PowerPoint Easy Ways for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/orb-shaper-essentials/"><u>Orb Shaper Essentials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ble-success-lawful-techniques-for-video-visibility-for-2024/"><u>Scalable Success  Lawful Techniques for Video Visibility for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-phoenix-the-ultimate-solution-for-macs-torn-videos/"><u>Stellar Phoenix: The Ultimate Solution for Mac's Torn Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-retrieving-deleted-messages-in-microsoft-outlook/"><u>Ultimate Guide: Retrieving Deleted Messages in Microsoft Outlook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-the-censorship-mechanisms-in-your-virtual-assistants/"><u>Understanding the Censorship Mechanisms in Your Virtual Assistants</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-from-forward-to-reverse-the-ultimate-tiktok-video-tutorial/"><u>Updated 2024 Approved From Forward to Reverse The Ultimate TikTok Video Tutorial</u></a></li>
+</ul></div>

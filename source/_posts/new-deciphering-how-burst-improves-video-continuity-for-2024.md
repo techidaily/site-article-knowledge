@@ -1,0 +1,122 @@
+---
+title: "[New] Deciphering How Burst Improves Video Continuity for 2024"
+date: 2024-08-27T07:22:07.363Z
+updated: 2024-08-28T07:22:07.363Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Deciphering How Burst Improves Video Continuity for 2024"
+excerpt: "This Article Describes [New] Deciphering How Burst Improves Video Continuity for 2024"
+keywords: "Video Continuity Enhancement,Burst Tech Video Quality,Seamless Video Flow,Frame Interpolation Technique,Reducing Video Pause,Improved Visual Stream,Burst Algorithm Impact"
+thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
+---
+
+## Deciphering How Burst Improves Video Continuity
+
+# Explaining the GoPro Burst Mode
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ The burst mode in GoPro cameras can be used for shooting a number of images in a go. This would allow you to select the image which has been most perfectly captured. Burst Mode is nothing but a sequence of still photos which have been captured just like a video footage.The Hero5 Black cameras are capable of recording videos up to 240 fps which means it can take about 240 images per second. In this article we are going to discuss everything you need to know about the GoPro Burst Mode.
+
+![文字](https://images.wondershare.com/filmora/article-images/gopro-hero5-black-1.jpg)
+
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
+
+## Turning the burst mode on your GoPro on
+
+1. First you have to switch on your camera and press the 'mode' to see the shooting mode menu
+2. Now you need to hit the 'mode' button twice to go to Burst mode
+3. Finally just click on 'rate' to choose the burst rate
+
+ The GoPro Hero5 Black models can capture between 30 frame per second to 3 frame per second. Use the touch screen to select your frame rate. Once the burst rate has been selected you need to attend to a few more settings-
+
+4. Click the FOV to choose field of view
+5. Click the 'mode' button again to choose the metering preference – full frame or spot
+
+ Regular full frame metering: Metering or light metering needs to be selected so as to adjust the level of brightness of the image. Your GoPro cam would automatically adjust the brightness level according to the subject in the frame.
+
+ Spot Metering: This option supersedes the regular metering style. Here the whole picture is metered on the basis of a hypothetical spot in the middle of the picture. This can come in handy while capturing a specific object like people in crowd or an animal from a distance.
+
+6. The 'mode' button has to be clicked once more to turn on/off the ProTune You don't have to bother about ProTune unless you are considering creating a video out of the images. If you just want to view your clips then there is no reason to turn on ProTune. ProTune is known to affect some of the factors linked with the captured images such as colour, FOV, sharpness etc. It allows the professional editors to play with a number of editing options for adjusting the footage.
+
+## The Burst Mode in your GoPro is all ready to use
+
+ Now that you have learned everything about using the Burst Mode on your GoPro, you just need to select the 'exit' button or click on the 'setting tag' button (which is just to the left of the 'mode' button) for saving the present settings and then exit. The GoPro Burst Mode is now all set up in your camera. All you need to do is select your resolution, speed and the metering before you hit the shutter. Now that you know everything about the Burst Mode on your action camera all you have to do is hit the road and keep shooting.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-beginning-creators-guide-top-8-free-youtube-tutorials/"><u>[New] 2024 Approved  Beginning Creator's Guide  Top 8 Free YouTube Tutorials</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-learn-the-solution-to-instagram-video-issues/"><u>[New] In 2024, Learn the Solution to Instagram Video Issues</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-pcs-best-of-breed-ps1-emulation-titles/"><u>[Updated] 2024 Approved  PC's Best of Breed  PS1 Emulation Titles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-first-flight-drones-for-youngsters-and-new-pilots/"><u>2024 Approved  Best First Flight Drones for Youngsters & New Pilots</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-chronological-tagging-adding-times-to-youtube-vids/"><u>2024 Approved  Chronological Tagging  Adding Times to YouTube Vids</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cutting-edge-moves-simple-steps-to-edit-videos-in-windows-10/"><u>2024 Approved  Cutting-Edge Moves  Simple Steps to Edit Videos in Windows 10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-expert-tips-for-effortless-access-to-youtube-comments/"><u>2024 Approved  Expert Tips for Effortless Access to YouTube Comments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-find-your-favorite-skype-ringtones-with-these-4-websites/"><u>2024 Approved  Find Your Favorite Skype Ringtones with These 4 Websites</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-flawless-pixel-processor-windowsmac/"><u>2024 Approved  Flawless Pixel Processor (Windows/Mac)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-how-to-download-vimeo-videos-withwithout-software-100-useful/"><u>2024 Approved  How to Download Vimeo Videos With/Without Software [100%% Useful]</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-iphone-lens-exploration-key-angles-to-elevate-your-photo-game/"><u>2024 Approved  IPhone Lens Exploration  Key Angles to Elevate Your Photo Game</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-leading-photo-editing-apps-for-iphone-and-android-guide/"><u>2024 Approved  Leading Photo Editing Apps for iPhone & Android Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-adventure-the-best-6-gopro-mounts-revealed/"><u>2024 Approved  Mastering Adventure  The Best 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mplayer-xtreme-next-gen-media-player/"><u>2024 Approved  MPlayer Xtreme  Next-Gen Media Player</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-photographers-guide-top-editing-and-writing-apps/"><u>2024 Approved  Photographer's Guide  Top Editing & Writing Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-pinnacle-stock-for-premium-vector-designs/"><u>2024 Approved  Pinnacle Stock for Premium Vector Designs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-prime-16-free-video-software-revealed-here/"><u>2024 Approved  Prime 16 Free Video Software, Revealed Here</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-proven-iphone-tips-effortless-video-length-and-size-control/"><u>2024 Approved  Proven iPhone Tips  Effortless Video Length & Size Control</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-simplified-explanation-of-stories-art/"><u>2024 Approved  Simplified Explanation of Stories' Art</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-skyrocket-space-utilization-top-20-cost-free-storage-providers-up-to-1tb/"><u>2024 Approved  Skyrocket Space Utilization - Top 20 Cost-Free Storage Providers (Up To 1TB)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-spectrum-signatures-filmmakers-guide-to-adjustment/"><u>2024 Approved  Spectrum Signatures  Filmmaker's Guide to Adjustment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-standout-literary-book-videos/"><u>2024 Approved  Standout Literary Book Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-testing-titans-in-depth-comparison-of-gopros-hero5b-and-session/"><u>2024 Approved  Testing Titans  In-Depth Comparison of GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-finest-videography-tools/"><u>2024 Approved  The Finest Videography Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-trailblazers-in-auditory-and-visual-creation-list/"><u>2024 Approved  Trailblazers in Auditory & Visual Creation List</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-secrets-of-excellent-interview-and-journey-audio-recordings/"><u>2024 Approved  Unveiling the Secrets of Excellent Interview and Journey Audio Recordings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-vrs-elite-accessories-top-10/"><u>2024 Approved  Unveiling VR's Elite Accessories (Top 10)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-your-image-picsart-bg-erasure-technique/"><u>2024 Approved  Unveiling Your Image  Picsart Bg Erasure Technique</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-itel-a05s-to-mac-drfone-by-drfone-android/"><u>How to Mirror Itel A05s to Mac? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-best-of-the-best-10-acclaimed-online-vimeo-downloaders/"><u>In 2024, Best of the Best  10 Acclaimed Online Vimeo Downloaders</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-download-samsung-m2070fw-drivers-installed-in-no-time/"><u>Quick Download: Samsung M2070FW Drivers Installed in No Time</u></a></li>
+<li><a href="https://win-blog.techidaily.com/rust-graphics-glitch-patched-what-you-need-to-know/"><u>Rust Graphics Glitch Patched – What You Need to Know</u></a></li>
+<li><a href="https://techtrends.techidaily.com/sneak-peek-into-the-future-samsung-galaxy-z-flip-ns-arrival-value-and-innovations/"><u>Sneak Peek Into the Future: Samsung Galaxy Z Flip N's Arrival, Value & Innovations</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-or-install-dell-network-drivers-for-win7-operating-system/"><u>Update or Install Dell Network Drivers for Win7 Operating System</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
