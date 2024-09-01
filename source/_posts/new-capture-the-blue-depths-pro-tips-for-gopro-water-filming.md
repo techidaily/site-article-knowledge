@@ -1,0 +1,187 @@
+---
+title: "\"[New] Capture the Blue Depths  Pro Tips for GoPro Water Filming\""
+date: 2024-08-31T11:52:51.842Z
+updated: 2024-09-01T11:52:51.842Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] Capture the Blue Depths: Pro Tips for GoPro Water Filming\""
+excerpt: "\"This Article Describes [New] Capture the Blue Depths: Pro Tips for GoPro Water Filming\""
+keywords: "GoPro WaveTaking,GoPro H2O Shooting,Professional POV Dive,Underwater GoPro Guide,Blue Depth ProFilming,Waterproof POV Tips,Capture ClearWaters"
+thumbnail: https://thmb.techidaily.com/d27bd20369a0206f3a047b7bb4f9e0b9ec6c2aca32544460f90baebbc95c9231.jpg
+---
+
+## Capture the Blue Depths: Pro Tips for GoPro Water Filming
+
+# GoPro Tips: Shooting Underwater Video with GoPro
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+The [GoPro Hero](https://tools.techidaily.com/wondershare/filmora/download/) series cameras are used to capture acute videos in high-speed action during adventure sports like snowboarding, rock climbing, journeys, water sports like [surfboarding](https://tools.techidaily.com/wondershare/filmora/download/), scuba [diving](https://tools.techidaily.com/wondershare/filmora/download/), kayak races and much more. Moisture contact is a regular problem during such action photography shooting. GoPro is equipped with protective waterproof housing but it requires some care and preparations to ensure better durability of your device while ensuring to achieve optimal video clarity every time. If you frequently shoot under water videos, here are some easy GoPro underwater tips to protect your camera.
+
+**You may also like:**  
+[How to Improve GoPro Battery Life >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[Action Camera Accessories Buying Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Best Underwater Shooting Tips with GoPro Camera
+
+Depending on the care measures needed to protect your camera, we have categorized the GoPro tips and suggestions under different sections viz. early preparations, while shooting etc.
+
+* [Part 1: Early Preparations before Shooting](#part1)
+* [Part 2: During Underwater Video Shooting](#part2)
+
+#### Early Preparations before Shooting
+
+#### 1.Dive Housing Case
+
+It is always necessary to use the GoPro with waterproof casing when shooting underwater videos. There are different cases for your camera depending on the water contact that you expect your device to encounter. The Dive housing case is an extra protective waterproofing solution for deep-water adventures like scuba diving.
+
+#### 2.Prevent fog inserts
+
+Fogging on the lenses occur due to the condensation of moisture inside the camera. You can either employ some DIY method or place some anti-fog inserts inside the camera casing from all sides. This will completely absorb the moisture in the camera making it ready for shooting. Without removing the fog, you will not be able to shoot crystal clear videos as per desire.
+
+#### 3.Use LCD Touch BacPac
+
+You will not be able to operate the touchscreen to adjust the settings under the water. You can adjust the jump settings on the touchscreen before placing the camera into the waterproof housing. Using the LCD Touch BacPac is one of the very essential GoPro underwater tips for framing and controlling different shots. Always remember to avoid using the skeleton door or the touch door provided with the LCD Touch BacPac as it can utterly lead to flow of water inside the camera ruining the device.
+
+#### 4. Use the [Filter](https://tools.techidaily.com/wondershare/filmora/download/) for Deep Water Diving
+
+If you want to capture error-free videos in deep water, it is extremely necessary to use a good quality filter. For shooting in shallow water with the depth less than 30 feet under the water, you do not need a filter. The divers going beyond the depth of 30 feet should use the DEEP Flip 3.1 Filter for capturing best quality video.
+
+#### 5.Choose the Right [Mounting Support](https://tools.techidaily.com/wondershare/filmora/download/)
+
+It is not possible to hold your GoPro with hands during underwater diving. Using the proper mount will help to keep the hands free while diving and take photos without any shakes or other interruptions.
+
+There are various types of mounting accessories to choose depending on your convenience and requirement. You can use a selfie stick or a camera rig or similar mount support. The divers using the GoPro Reach can choose the Octamask Diving Scuba Mask to capture best photography underwater. The position of the camera taking the video will be from the head so you can shoot everything you see right away. If you want to capture everything below, the chest mount is a great option.
+
+#### 6.Adjust the Resolution Settings
+
+The default resolution settings in most GoPro cameras is 1080p, field of view is wide and framerate as 60fps. This is a standard setting to follow if you are novice diver looking to capture high-resolution videos. However, the experienced divers can experiment with faster or slower framerate settings to control the motion of the video as per desire. Skilled photographers often shoot with 4k resolution to ease the processing during zoom, cropping etc.
+
+#### During Underwater Video Shooting
+
+#### 1.Shoot Videos in Shallow Water to Capture the Finest Color Effect
+
+During snorkeling or diving, if swim across the shallow reefs preferably within the 5m deep underwater, you will be able to capture the full spectrum colors without using flash.
+
+#### 2. Shoot under the Bright Sunlight for Enhanced Video Quality
+
+Choose a sunny day to get brighter visibility of the subject. This is one of the most popular GoPro tips; photographers commonly assort to shoot clear magnificent videos. You will also get the full spectrum light effect to make your video beautiful. You can also shoot from the flip side to get the solar flare effects in your video.
+
+#### 3. Maintain Appropriate Distance from the Subject
+
+To click sharp images, you must maintain a distance of at least 12 inches or more between the camera lenses and the subject.
+
+#### 4.Stay Steady
+
+Remain steady to the maximum of your efforts while pressing the shutter button to prevent blurs.
+
+#### 5. Use Video Lights at Greater Depth
+
+Use the video lights if you are shooting at greater depth of 10ft or more. The brighter lights you have, the better will be the results.
+
+## GoPro Tips for After Shooting
+
+#### 1. Dry your camera
+
+It is quite likely that some water may flood into the camera housing during shooting underwater. If you feel that water is bubbling inside the housing, come out to dry the camera first. First, remove the battery and dispose it. Remove the memory card and leave it for drying.
+
+#### 2. Wash the Housing and Accessories in Fresh Water
+
+Your housing and accessories contact salt residue underwater. Such remnants can cause corrosion on the housing material in due course. Remove the housing/ accessories immediately after getting out of water and wash them in fresh water. Wipe them with permissible paper towel and leave for drying.
+
+Following all of the GoPro underwater tips will help you to capture great videos while keeping your camera in good condition for years.
+
+#### 3.Video editing software – [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Do you want easy editing solution to give your videos a documentary style?
+
+Wondershare Filmora now has the latest Instant Cutter feature strategically designed to ease the processes while trimming, merging, cropping and other editing works without losing the quality of your original video. You can use this feature for processing all types of videos captured by AVCHD cameras, Smartphones, action cameras etc. Filmora also has the new and improved Action Cam Tool allowing the users to perform actions including:
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+* Lens distortion correction
+* Color correction
+* Video Stabilization
+* Audio De-noise
+* Advanced Speed Control (employ effects like slow-motion, fast-motion, freeze frame, replay and reverse)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-conduct-a-symphony-on-the-ppt-stage/"><u>[New] 2024 Approved  Conduct a Symphony on the PPT Stage</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-converting-personal-memories-from-stillness-to-motion/"><u>[New] 2024 Approved  Converting Personal Memories  From Stillness to Motion</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-metaverse-chronicles-exploring-infinite-worlds-through-film/"><u>[New] 2024 Approved  Metaverse Chronicles  Exploring Infinite Worlds Through Film</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-instagram-blocking-basics/"><u>[New] 2024 Approved  Navigating Instagram Blocking Basics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pioneering-techniques-in-hand-based-tracking/"><u>[New] 2024 Approved  Pioneering Techniques in Hand-Based Tracking</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-cutting-edge-obs-use-in-android-broadcasting/"><u>[New] Cutting-Edge OBS Use in Android Broadcasting</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-easy-process-how-to-save-twitter-videos-on-an-android-device/"><u>[New] Easy Process  How to Save Twitter Videos on an Android Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-find-your-favorite-screen-an-in-depth-review-of-top-6-hdmi-tvs-for-2024/"><u>[New] Find Your Favorite Screen  An In-Depth Review of Top 6 HDMI TVs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-demystifying-the-process-of-high-dynamic-range-in-photoshop/"><u>[New] In 2024, Demystifying the Process of High Dynamic Range in Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-expert-tips-on-choosing-top-9-webcam-enhancement-tools/"><u>[New] In 2024, Expert Tips on Choosing Top 9 Webcam Enhancement Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-jumpstart-connections-winning-tinder-bios-at-a-glance/"><u>[New] In 2024, Jumpstart Connections  Winning Tinder Bios at a Glance</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-perfect-virtual-screens-choosing-best-meet-backgrounds/"><u>[New] In 2024, Perfect Virtual Screens  Choosing Best Meet Backgrounds</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-transform-every-moment-top-activities-to-do-while-listening-to-your-favorite-talk-shows/"><u>[New] In 2024, Transform Every Moment  Top Activities to Do While Listening to Your Favorite Talk Shows</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-app-review-with-az-screenshotter/"><u>[New] In 2024, Ultimate App Review with AZ Screenshotter</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-metaverse-marketing-techniques/"><u>[New] Mastering Metaverse Marketing Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfect-your-passport-portrait-a-compilation-of-top-10-free-tools/"><u>[New] Perfect Your Passport Portrait  A Compilation of Top 10 Free Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-sharpen-your-viewing-experience-mastering-camera-focus-online/"><u>[New] Sharpen Your Viewing Experience  Mastering Camera Focus Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-cutting-edge-of-cinematography-kinemasters-zoom-excellence-for-2024/"><u>[New] The Cutting Edge of Cinematography  Kinemaster’s Zoom Excellence for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-beyond-entertainment-vrs-utility/"><u>[Updated] Beyond Entertainment  VR's Utility</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-hubs-for-high-quality-vr-watching-for-2024/"><u>[Updated] Hubs for High-Quality VR Watching for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-superior-drones-at-your-fingertips/"><u>[Updated] In 2024, Superior Drones at Your Fingertips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-the-art-of-podcast-rss-mastery/"><u>[Updated] In 2024, Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-maximize-your-gains-highest-earning-instagram-tactics/"><u>[Updated] Maximize Your Gains  Highest Earning Instagram Tactics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-complete-untapped-potential-of-dji-phantom-4/"><u>2024 Approved  The Complete Untapped Potential of DJI Phantom 4</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/5-outstanding-mkv-tools-for-macos-users-for-2024/"><u>5 Outstanding MKV Tools for macOS Users for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-reset-nubia-red-magic-8s-pro-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Nubia Red Magic 8S Pro Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/garmin-virb-ultra-30-an-insider-look-at-an-adventure-staple/"><u>Garmin VIRB Ultra 30  An Insider Look at an Adventure Staple</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6 Plus to other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cyber-health-solutions-for-modern-medicine/"><u>In 2024, Cyber-Health Solutions for Modern Medicine</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-photo-editing-removing-backdrops-with-picsart/"><u>In 2024, Mastering Photo Editing  Removing Backdrops with Picsart</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-understanding-periscope-features-pricing-and-how-to-join/"><u>In 2024, Understanding Periscope  Features, Pricing & How To Join</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-iphone-13-pro-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock From your iPhone 13 Pro</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/prevent-data-extraction-by-online-bots/"><u>Prevent Data Extraction by Online Bots</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/safest-and-cutest-toy-drones-for-children-for-2024/"><u>Safest and Cutest Toy Drones for Children for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solutions-when-your-lenovos-webcam-wont-work/"><u>Step-by-Step Solutions: When Your Lenovo's Webcam Won't Work</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-the-ultimate-guide-to-computer-components-and-gadgets/"><u>Tom's Tech Reviews: The Ultimate Guide to Computer Components and Gadgets</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/triple-caption-magic-for-compelling-ig-videographies/"><u>Triple Caption Magic for Compelling IG Videographies</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
