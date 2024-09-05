@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Basics of Zoom Meeting Setup"
-date: 2024-08-31T11:59:38.666Z
-updated: 2024-09-01T11:59:38.666Z
+date: 2024-09-04T17:10:25.221Z
+updated: 2024-09-05T17:10:25.221Z
 tags: 
   - screen-recording
   - ai video
@@ -46,20 +46,20 @@ Next, under "My Video" click "touch up my appearance." This will add a slider yo
 
 ![touch up my appearance zoom](https://images.wondershare.com/filmora/article-images/2022/11/touch-up-my-appearance-zoom.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Adjust for Low Light
 
 Not everyone has a ring light, but nearly every scene could benefit from the low light adjustment. This uses AI technology to boost the light making a better quality recording in the vast majority of situations.
 
 ![adjust for low light zoom](https://images.wondershare.com/filmora/article-images/2022/11/adjust-for-low-light-zoom.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 People tend to underestimate the power of good lighting in improving your video quality. Not only is brighter usually better when it comes to lighting but if you record with better light, it gives you more options for adjusting the video quality later on in post-production.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimize Video Quality
 
 Under the advanced settings, there is a toggle called "Optimize video quality with de-noise." Make sure this is toggled on. This uses AI software-based noise removal to help improve the video quality.
@@ -67,15 +67,20 @@ Under the advanced settings, there is a toggle called "Optimize video quality wi
 ![optimize video quality zoom](https://images.wondershare.com/filmora/article-images/2022/11/optimize-video-quality-zoom.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Use a USB mic
 
 Have you ever seen a video with really poor sound quality? It makes a huge difference in how you judge the quality of that video. So if you have a USB mic, use that instead of the built-in microphone. Viewers will subconsciously judge the quality of the video not only on video quality, but also on sound quality. It makes a massive difference to the final video recording.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Use a Virtual Background
 
@@ -100,7 +105,10 @@ There is also a “Highlight” feature where you can manually select a particip
 Here's another tip. You can choose to hide the participants who don't have a video stream by adjusting one of the video settings Check "Hide non-video participants."
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Wipe your webcam
 
@@ -108,17 +116,26 @@ Webcams can pick up dust and oil from time to time. So before important recordin
 
 I use the same type of cloth that I use for cleaning my eyeglasses. Keep it simple and clean!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Upgrade your camera
 
 You can add a better webcam or even a mirrorless camera, like the Canon M50 that is popular with YouTubers as a webcam input. Once you have added the camera, you can select which webcam you want to use from the dropdown menu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Organize your Zooms
 
 If you do use your Zooms in your video editing, I would recommend renaming the video file or Zoom folder after your meeting. This doesn't affect the video quality, but it sure allows the experience of video editing to go much smoother when you know exactly which file you are looking for.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final bonus tip
 
 Remember, bring energy to what you say. Good energy will raise the quality of ANY video recording. It doesn't matter if you are giving a lecture, teaching on your Zoom, or giving a sales pitch. Energy is what makes video impactful.
