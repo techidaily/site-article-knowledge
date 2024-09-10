@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Basics of Evolving Media and Graphics\""
-date: 2024-09-04T17:17:03.329Z
-updated: 2024-09-05T17:17:03.329Z
+date: 2024-09-09T05:50:11.460Z
+updated: 2024-09-10T05:50:11.460Z
 tags: 
   - screen-recording
   - ai video
@@ -16,31 +16,43 @@ keywords: "Media Evolution Basics,Graphic Design Fundamentals,Digital Media Lear
 thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Basics of Evolving Media and Graphics
 
 If you're thinking, "What is motion graphics?" let me explain that they are a particular kind of animation. It may be described as a hybrid of graphic design and animation. In most cases, motion graphics aim to present information using visual or animated texts to achieve a particular communication purpose. Motion graphics now have a far wider variety of applications because of technological advancements and the prevalence of screens in everyday objects. What was used to deliver technical knowledge and create the tone for a tale today has a variety of uses.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Motion Graphics
 
 Motion graphics is a fantastic tool for presenting stories and mixing animation and graphic design. Animation design is more memorable to viewers than static visuals because it employs not just straightforward visual components like text, forms, or images but also activates audio receptors to express concepts. Animation is motion graphics, although text plays a big part in them. Animated graphic design is what it is. There has been discussion over the boundary between motion graphics and full animation since motion graphics first appeared on the scene.
 
 Stunning motion graphics animation for brand apps and web platforms conveys a lot of information in a short, straightforward, aesthetically appealing film while showcasing complex images, thoughts, and concepts. As a result, it aids in quickly delivering a message and effortlessly grabbing and holding the audience's attention. Any field you choose, including business, marketing, IT solutions, the film industry, education, healthcare, social networks, or entertainment, can benefit from excellent animation design.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## When to use Motion Graphics?
 
 The most pleasing motion graphics outline or emphasize information while demonstrating a point. When a narrative or plot is not required, motion graphics are employed. Motion graphic videos may simplify and make unforgettable your complicated services or goods. Motion graphics are mostly visual aids; hence they are excellent at explaining complex concepts through imagery.
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to make Motion Graphics?
 
@@ -54,10 +66,10 @@ Motion graphics may be used in various situations to add life and humor to a pre
 4. Telling a Story \- you can use motion graphics to create a music video. Like other music videos, the illustrations tell a story that complements the song. It's an exciting concept highlighting the different contexts motion graphics can use. You can use them to create an advertisement or even make a short film.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Benefits of Motion Graphics
 
@@ -66,10 +78,10 @@ Motion graphics may be used in various situations to add life and humor to a pre
 * Brand recognition is increased. Viewers may readily understand if complex images, concepts, and statistics are presented clearly, and excitingly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## The use of Motion Graphics
 

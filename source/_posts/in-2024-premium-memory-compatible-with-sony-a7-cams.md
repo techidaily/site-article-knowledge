@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Premium Memory Compatible with Sony A7 Cams"
-date: 2024-07-10T18:04:06.189Z
-updated: 2024-07-11T18:04:06.189Z
+date: 2024-09-09T05:47:26.595Z
+updated: 2024-09-10T05:47:26.595Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,24 @@ keywords: "\"Sony A7 Memory Upgrade,Sony A7 Premium RAM,Sony A7 Memory Accessori
 thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0107a7a0c827d88713775503.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Premium Memory Compatible with Sony A7 Cams
 
 # Best Memory Card for Sony A7S II
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -30,6 +42,12 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -67,6 +85,12 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -107,6 +131,18 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -133,3 +169,45 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-finns-fiscal-flow-income-insights-from-youtube-icon/"><u>[New] 2024 Approved Finn's Fiscal Flow Income Insights From YouTube Icon</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-crafting-engaging-dialogue-in-screenplays-for-2024/"><u>[New] Crafting Engaging Dialogue in Screenplays for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fabricate-personalized-viral-memes-for-2024/"><u>[New] Fabricate Personalized Viral Memes for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/deal-screenshot-tools-for-live-broadcasts-on-youtube-for-2024/"><u>[New] Ideal Screenshot Tools for Live Broadcasts on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-captivating-channels-spotlight-on-the-most-popular-female-creators/"><u>[New] In 2024, Captivating Channels Spotlight on the Most Popular Female Creators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-extensive-appraisal-hero4-black-capabilities/"><u>[New] In 2024, Extensive Appraisal Hero4 Black Capabilities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fast-track-to-flawless-podcast-live/"><u>[New] In 2024, Fast Track to Flawless Podcast Live</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-gopro-vs-yi-who-will-lead-the-high-quality-action-race/"><u>[New] In 2024, GoPro Vs. YI Who Will Lead the High-Quality Action Race?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-podcast-sharing-instagram-stories-and-posts-tutorial/"><u>[New] In 2024, Podcast Sharing Instagram Stories & Posts Tutorial</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigate-the-maze-of-gopro-4k-an-editors-manual-for-2024/"><u>[New] Navigate the Maze of GoPro 4K An Editor's Manual for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-seamless-downloads-4-prime-ringtones-providers/"><u>[New] Seamless Downloads 4 Prime Ringtones Providers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-complete-srt-reference-manual/"><u>[New] The Complete SRT Reference Manual</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-transition-mastery-in-cinematic-productions-with-kinemaster-for-2024/"><u>[New] Transition Mastery in Cinematic Productions with Kinemaster for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unleash-creativity-with-iphones-top-10-free-aesthetic-photo-composer-tools-for-2024/"><u>[New] Unleash Creativity with iPhone’s Top 10 Free, Aesthetic Photo Composer Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unveiling-the-simple-nature-of-storytelling/"><u>[New] Unveiling the Simple Nature of Storytelling</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-compact-powerful-and-stylish-8-top-5k-monitors/"><u>[Updated] 2024 Approved Compact, Powerful & Stylish #8 Top 5K Monitors</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-user-friendly-guide-to-logging-gotomeeting-events/"><u>[Updated] 2024 Approved User-Friendly Guide to Logging GoToMeeting Events</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[Updated] Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-earning-equation-finns-financial-frequency/"><u>[Updated] Earning Equation Finn's Financial Frequency</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-7-best-nft-generators-to-turn-your-artwork-into-nfts/"><u>[Updated] In 2024, 7 Best NFT Generators to Turn Your Artwork Into NFTs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-ideal-set-17-software-solutions-for-clear-picture-edits/"><u>2024 Approved Ideal Set 17 Software Solutions for Clear Picture Edits</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionizing-your-gaming-with-advanced-controller-software/"><u>2024 Approved Revolutionizing Your Gaming with Advanced Controller Software</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-practices-a-guide-to-optimal-mobile-video-reduction-for-2024/"><u>Best Practices A Guide to Optimal Mobile Video Reduction for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/clearing-the-path-solutions-for-4-common-gpt-3-bans/"><u>Clearing the Path: Solutions for 4 Common GPT-3 Bans</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/diy-tips-for-affordable-youtube-introend-videos/"><u>DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhance-your-pcs-performance-dispose-of-bloatware/"><u>Enhance Your PC's Performance: Dispose of Bloatware</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-drivers-for-your-hp-elitebook-x360-103er-g2-now/"><u>Get the Newest Drivers for Your HP EliteBook X360 103Er G2 Now</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-guide-to-applying-luts-in-professional-production/"><u>In 2024, Expert Guide to Applying LUTs in Professional Production</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-8-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone 8 to Android | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-play-your-srt-files-easily-winmac-tips/"><u>In 2024, Play Your SRT Files Easily Win/Mac Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-price-scale-for-shooting-tunes-in-visual-narratives/"><u>In 2024, Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-art-of-humor-in-minutes-kinemaster-techniques/"><u>In 2024, The Art of Humor in Minutes KineMaster Techniques</u></a></li>
+<li><a href="https://fox-that.techidaily.com/seven-remedies-for-iphone-users-facing-vpn-connections-issues/"><u>Seven Remedies for iPhone Users Facing VPN Connections Issues!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-complete-playbook-for-team-call-recording-desktopmobile/"><u>The Complete Playbook for Team Call Recording (Desktop/Mobile)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-secrets-of-srt-creation-from-text-formats-for-2024/"><u>Unveiling the Secrets of SRT Creation From Text Formats for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-top-10-ai-avatar-generators/"><u>Updated In 2024, The Top 10 AI Avatar Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-advertising-for-2024/"><u>What Is AI Advertising for 2024</u></a></li>
+</ul></div>
