@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Smooth Volume Changes in FL Studio"
-date: 2024-07-10T17:59:43.166Z
-updated: 2024-07-11T17:59:43.166Z
+date: 2024-09-08T02:05:21.219Z
+updated: 2024-09-14T16:32:14.421Z
 tags: 
   - screen-recording
   - ai video
@@ -98,6 +98,13 @@ Your audio, or any particular portion of your audio, may have a variety of trans
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. How do you crossfade MIDI logic?
 
 Unlike audio fades, MIDI fades are not implemented in the same manner. One method is to automate the volume and track automation for the fade out. Move the mouse near the bottom of the track, close to an area border, while using the Smart tool. The pointer will transform into a crossfade-like symbol.
@@ -110,6 +117,19 @@ Due to the likelihood that you have previously downloaded and installed the prog
 
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
 
 ##### Step2 Split the audio track to Fade
@@ -121,6 +141,13 @@ As you did when you imported and moved your audio files across the timeline as p
 In the next step, the two icons will appear above the audio file after you've chosen it in the timeline and selected the audio file you wish to modify. Drag the first one to the time you want the audio fade-in choice to last, as shown:
 
 ![fade the tracks](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click and drag the other icon in Filmora to the required length to complete the fade-out. Playing the file inside the timeline of the Filmora preview layout will allow you to hear the soundtrack.
 
@@ -164,6 +191,20 @@ Unlike audio fades, MIDI fades are not implemented in the same manner. One metho
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-all-you-need-to-know-understanding-video-aspect-ratios-on-youtube/"><u>[New] 2024 Approved All You Need to Know Understanding Video ASPECT RATIOS on YOUTUBE</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premium-timekeeping-for-your-nuptials-appleandroid-selection/"><u>[New] 2024 Approved Premium Timekeeping For Your Nuptials Apple/Android Selection</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-effortless-repetition-replay-your-youtube-videos-via-tv-connection/"><u>[New] In 2024, Effortless Repetition Replay Your YouTube Videos via TV Connection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-simplifying-video-cutting-in-windows-10-a-photoshop-free-guide/"><u>[New] In 2024, Simplifying Video Cutting in Windows 10 A Photoshop-Free Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-laughter-unleashed-a-stepwise-strategy-for-making-impactful-gifs-for-2024/"><u>[New] Laughter Unleashed A Stepwise Strategy for Making Impactful GIFs for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-expert-advice-on-iphone-7-display-recording/"><u>[Updated] 2024 Approved Expert Advice on iPhone 7 Display Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-timeless-80s-effects-boosting-creative-videos/"><u>[Updated] 2024 Approved Timeless 80S Effects Boosting Creative Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-androids-premier-8-apps-harmonizing-free-and-paid-videomosaic-experience/"><u>[Updated] Android's Premier 8 Apps Harmonizing Free & Paid Videomosaic Experience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unravel-the-mystery-of-tempo-control-in-instagram-stories/"><u>[Updated] In 2024, Unravel the Mystery of Tempo Control in Instagram Stories</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-foremost-web-destinations-ranked-by-global-users/"><u>Discover the Foremost Web Destinations Ranked by Global Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-out-membership-and-usage-in-facebook-neighborhoods/"><u>Inside Out: Membership and Usage in Facebook Neighborhoods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sicreactionvids-yt-celebrity-highlights-2023-for-2024/"><u>TopMusicReactionVids YT Celebrity Highlights, 2023 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/vuephoto-masterclass-and-evaluation/"><u>VuePhoto Masterclass and Evaluation</u></a></li>
+</ul></div>
 

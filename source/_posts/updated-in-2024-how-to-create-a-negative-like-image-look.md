@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How to Create a Negative-Like Image Look\""
-date: 2024-09-09T05:56:28.090Z
-updated: 2024-09-10T05:56:28.090Z
+date: 2024-09-12T19:03:03.593Z
+updated: 2024-09-15T12:14:28.298Z
 tags: 
   - screen-recording
   - ai video
@@ -28,12 +28,6 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -64,12 +58,6 @@ Clicking on the **Adjust Color feature** will bring up the color adjustment pane
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
 #### 3. Making Image Negatives Online with [PineTools](https://pinetools.com/)
@@ -80,12 +68,6 @@ You can experiment with the values you assign to each of these sliders in order 
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
 #### 4. Inverting colors in [tjshome](http://tjshome.com/imageconverter.php) Image Editor
@@ -96,12 +78,6 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
 #### 5. Using [Adobe Photoshop](https://www.adobe.com/products/photoshop.html)’s Invert Option
@@ -138,12 +114,6 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
 **Conclusion**
@@ -152,12 +122,6 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -183,56 +147,26 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-all-access-fb-melodic-streaming/"><u>[New] 2024 Approved All-Access FB Melodic Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-on-the-water-fishings-top-5-action-cameras/"><u>[New] 2024 Approved Best on the Water Fishing's Top 5 Action Cameras</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-camera-technology-for-youtube-stars/"><u>[New] 2024 Approved Cutting-Edge Camera Technology For YouTube Stars</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enlightening-epics-and-epochs-the-leading-storytelling-institutions-top-8/"><u>[New] 2024 Approved Enlightening Epics and Epochs The Leading Storytelling Institutions (Top 8)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-the-secrets-of-creative-youtube-channel-names-for-vloggers-and-filmmakers-maximum-length-156-characters/"><u>[New] 2024 Approved Unlocking the Secrets of Creative YouTube Channel Names for Vloggers & Filmmakers (Maximum Length 156 Characters)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-adventure-essentials-top-10-gopro-protectors-reviewed-for-2024/"><u>[New] Adventure Essentials - Top 10 GoPro Protectors Reviewed for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-capture-action-the-complete-technique-for-adding-motion-blur-in-photos/"><u>[New] Capture Action The Complete Technique for Adding Motion Blur in Photos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-accelerating-your-creative-process-a-guide-to-crafting-fast-google-collage-images/"><u>[New] In 2024, Accelerating Your Creative Process A Guide to Crafting Fast Google Collage Images</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-budget-friendly-alternatives-to-premium-vr-headsets/"><u>[New] In 2024, Budget-Friendly Alternatives to Premium VR Headsets</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-easy-tips-to-create-a-funny-meme/"><u>[New] In 2024, Easy Tips to Create a Funny Meme</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-sound-capture-in-windows-11/"><u>[New] In 2024, Mastering Sound Capture in Windows 11</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-journey-through-the-best-7-nft-creation-applications/"><u>[New] Journey Through the Best 7 NFT Creation Applications</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unraveling-the-best-free-srt-translators-your-essential-guidebook-for-2024/"><u>[New] Unraveling the Best Free SRT Translators Your Essential Guidebook for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-win10-screen-grabber-top-tier-video-recorder/"><u>[New] Win10 Screen Grabber - Top-Tier Video Recorder</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-innovative-techniques-for-stunning-hdr-photography/"><u>[Updated] 2024 Approved Innovative Techniques for Stunning HDR Photography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-sony-x1000d-vivid-full-action-cam-test/"><u>[Updated] 2024 Approved Sony X1000D Vivid - Full Action Cam Test</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-syma-x5c-an-in-depth-beginners-guide-for-future-pilots/"><u>[Updated] 2024 Approved Syma X5C An In-Depth Beginner’s Guide for Future Pilots</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unlock-your-editing-potential-the-ultimate-guide-to-background-erasure-in-ps/"><u>[Updated] 2024 Approved Unlock Your Editing Potential The Ultimate Guide to Background Erasure in PS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-closer-look-at-asuss-proart-pa-329q-an-in-depth-review-of-its-professional-standards-for-2024/"><u>[Updated] A Closer Look at Asus's ProArt PA 329Q – An In-Depth Review of Its Professional Standards for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-beat-explorers-playlist-accessible-free-online-tools-for-2024/"><u>[Updated] Beat Explorers' Playlist Accessible, Free Online Tools for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-fine-tuning-focus-a-compreeher-guide-for-videoleap-users/"><u>[Updated] Fine-Tuning Focus A Compreeher Guide for Videoleap Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-harmonizing-services-uniting-your-musical-lists/"><u>[Updated] Harmonizing Services Uniting Your Musical Lists</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-how-to-improve-gopro-battery-life-for-2024/"><u>[Updated] How to Improve GoPro Battery Life for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-flashy-flashes-prime-picks-for-lightning-laptopmobile-games/"><u>[Updated] In 2024, Flashy Flashes Prime Picks for Lightning Laptop/Mobile Games</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-hidden-footage-techniques-redacting-personal-information-effectively/"><u>[Updated] In 2024, Hidden Footage Techniques Redacting Personal Information Effectively</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-illuminating-pathways-through-mixed-realitys-domain/"><u>[Updated] In 2024, Illuminating Pathways Through Mixed Reality's Domain</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-art-of-making-youtube-thumbnails-on-the-go-mobile/"><u>[Updated] In 2024, The Art of Making YouTube Thumbnails on the Go (Mobile)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-intersection-of-real-and-virtual-defining-mixed-reality/"><u>[Updated] In 2024, The Intersection of Real and Virtual Defining Mixed Reality</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-virtual-reality-showdown-ranking-the-top-10-pc-streamers-for-360-videos/"><u>[Updated] In 2024, Virtual Reality Showdown Ranking the Top 10 PC Streamers for 360 Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-pro-level-text-templates-for-adobe-ae-for-2024/"><u>[Updated] Pro-Level Text Templates for Adobe AE for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-rotating-iphone-photos-for-perfect-angles/"><u>[Updated] Rotating iPhone Photos for Perfect Angles</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-2023s-best-cam-recorders-a-curated-selection-of-18/"><u>2024 Approved 2023'S Best Cam Recorders A Curated Selection of 18</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-acer-monitor-drivers-latest-version/"><u>Download Acer Monitor Drivers - Latest Version</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effective-steps-for-deleting-temporary-iso-files-on-winx-dvd-duplication-software/"><u>Effective Steps for Deleting Temporary ISO Files on WinX DVD Duplication Software</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/efficient-methods-to-master-your-phone-memos/"><u>Efficient Methods to Master Your Phone Memos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/expert-choice-top-tier-mp4-gear/"><u>Expert Choice Top-Tier MP4 Gear</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-apple-iphone-13-mini-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>In 2024, Best Apple iPhone 13 mini & iPad Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-from-concept-to-reality-the-vr-story/"><u>In 2024, From Concept to Reality The VR Story</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-streaming-showdown-the-podcast-challenge-to-youtubes-dominance/"><u>In 2024, Streaming Showdown The Podcast Challenge to YouTube’s Dominance</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-app-image-alterations-resizing-photos-made-simple-ios-for-2024/"><u>In-App Image Alterations Resizing Photos Made Simple (iOS) for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/iphone-photo-management-guide-for-albums-and-cloud-storage-for-2024/"><u>IPhone Photo Management Guide for Albums & Cloud Storage for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/iphone-users-guide-to-picture-softening-four-ways-for-2024/"><u>IPhone Users' Guide to Picture Softening (Four Ways) for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-guide-to-instantly-diminish-audio-volume-gently/"><u>New 2024 Approved Guide to Instantly Diminish Audio Volume Gently</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-free-video-compression-made-easy-10-best-online-tools/"><u>New Free Video Compression Made Easy 10 Best Online Tools</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-optimal-siri-acoustics-creator-for-windows-pcs-and-apple-computers-for-2024/"><u>New Optimal Siri Acoustics Creator for Windows PCs and Apple Computers for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/perfect-your-iphone-photo-mosaic-skills-for-2024/"><u>Perfect Your iPhone Photo Mosaic Skills for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/premium-gadgets-to-save-livestreamed-vids-on-youtube/"><u>Premium Gadgets to Save Livestreamed Vids on YouTube</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-realme-11x-5g-by-fonelab-android-recover-data/"><u>Recover lost data from Realme 11X 5G</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-insiders-manual-to-hxtsrexe-errors-in-windows-10-diagnosis-and-solutions-explored/"><u>The Insider's Manual to HxTsr.exe Errors in Windows 10 - Diagnosis and Solutions Explored</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/top-tips-for-flawless-green-screen-cinematography/"><u>Top Tips for Flawless Green-Screen Cinematography</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-interactive-entertainment-the-role-of-ai-in-shaping-tomorrows-games/"><u>Transforming Interactive Entertainment: The Role of AI in Shaping Tomorrow's Games</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-bright-futures-in-film-revolutionary-setup-tips-for-2024/"><u>[New] Bright Futures in Film Revolutionary Setup Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-complete-analysis-of-theta-ss-advanced-tech/"><u>[New] In 2024, Complete Analysis of Theta S's Advanced Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-precision-and-performance-in-the-dell-p2715q-monitor-analysis-for-2024/"><u>[New] Precision and Performance in the Dell P2715Q Monitor Analysis for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-optimal-online-locations-free-quality-alarm-songs/"><u>[Updated] Optimal Online Locations Free, Quality Alarm Songs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>[Updated] Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-checklist-for-transferring-snaps-to-photos-folder/"><u>[Updated] The Ultimate Checklist for Transferring Snaps to Photos Folder</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-ai-powered-frame-refactoring-suite/"><u>2024 Approved AI-Powered Frame Refactoring Suite</u></a></li>
+<li><a href="https://extra-information.techidaily.com/an-ultimate-guide-about-video-resolution-for-beginners-for-2024/"><u>An Ultimate Guide About Video Resolution for Beginners for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/easy-photo-fixes-an-introduction-to-snapseed/"><u>Easy Photo Fixes An Introduction to Snapseed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/focused-frames-eliminating-jitterbugs/"><u>Focused Frames Eliminating Jitterbugs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-a1x-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo A1x 5G online without jailbreak</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual-for-2024/"><u>Navigating the World of FB Instream Ads A Comprehensive Setup Manual for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-tecno-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Tecno FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-youtube-outro-makers-lots-of-free-options-for-2024/"><u>Top 6 YouTube Outro Makers - Lots of FREE Options for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

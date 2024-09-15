@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Seizing Photographic Segments From Videos in Windows 11"
-date: 2024-09-09T05:50:39.782Z
-updated: 2024-09-10T05:50:39.782Z
+date: 2024-09-13T07:14:34.388Z
+updated: 2024-09-15T11:18:40.419Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -62,12 +56,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
@@ -76,25 +64,27 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -111,24 +101,12 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -154,59 +132,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-10-mp4-players-you-cant-miss/"><u>[New] 2024 Approved 10 MP4 Players You Can't Miss</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-5-best-toy-drones/"><u>[New] 2024 Approved 5 Best Toy Drones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-master-list-highest-rated-4k-blu-ray-player-models/"><u>[New] 2024 Approved Master List Highest Rated 4K Blu-Ray Player Models</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-save-big-on-data-stash-with-these-30-no-cost-up-to-1tbplus-cloud-services/"><u>[New] 2024 Approved Save Big on Data Stash with These 30 No-Cost, Up to 1TB+ Cloud Services</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-step-up-your-photo-game-with-these-ingenious-pixlr-techniques/"><u>[New] 2024 Approved Step Up Your Photo Game with These Ingenious Pixlr Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-bring-a-smile-simple-meme-creation-with-kapwing/"><u>[New] Bring a Smile Simple Meme Creation With Kapwing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-a-cash-flow-career-with-content-creation-like-ajey-nagar-for-2024/"><u>[New] Crafting a Cash-Flow Career with Content Creation Like Ajey Nagar for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-deciphering-intermittent-stoppages-in-photobooth-videos/"><u>[New] Deciphering Intermittent Stoppages in Photobooth Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-face-off-frenzy-legendary-sj6-versus-yis-prodigy-4k-for-2024/"><u>[New] Face-Off Frenzy Legendary SJ6 Versus Yi's Prodigy 4K for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-audiovisual-updates-integrating-sounds-with-statuses/"><u>[New] In 2024, Audiovisual Updates Integrating Sounds with Statuses</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-embracing-constructive-feedback-ignoring-the-rest/"><u>[New] In 2024, Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-innovative-methods-for-creating-luts/"><u>[New] In 2024, Innovative Methods for Creating LUTs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>[New] In 2024, The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-zero-to-hero-your-step-by-step-adventure-in-meme-magic-on-9gag/"><u>[New] In 2024, Zero to Hero Your Step-by-Step Adventure in Meme Magic on 9GAG</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-mastering-your-messenger-presence-a-zodiac-guide/"><u>[New] Mastering Your Messenger Presence - A Zodiac Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-step-by-step-guide-maximizing-spotify-ad-reach/"><u>[New] Step-by-Step Guide Maximizing Spotify Ad Reach</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-foremost-techniques-for-transforming-seminars-into-videos-for-2024/"><u>[New] The Foremost Techniques for Transforming Seminars Into Videos for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-the-path-to-connected-playlists-and-channels-for-2024/"><u>[New] The Path to Connected Playlists & Channels for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-androidiphones-best-free-imagery-modification-apps-ranked/"><u>[Updated] 2024 Approved Android/iPhone's Best FREE Imagery Modification Apps Ranked</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-breakthrough-media-tools-to-complement-xsplit/"><u>[Updated] 2024 Approved Breakthrough Media Tools to Complement XSplit</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-capturing-magic-in-microphones-iphoneipad-tactics-for-superior-recordings/"><u>[Updated] Capturing Magic in Microphones IPhone/iPad Tactics for Superior Recordings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dissecting-video-platform-distinctions-youtube-vs-dailymention/"><u>[Updated] Dissecting Video Platform Distinctions YouTube Vs. DailyMention</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-future-filming-top-15-video-cameras-to-watch-for-2024/"><u>[Updated] Future Filming – Top 15 Video Cameras to Watch for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-master-windows-10s-native-features-to-cut-videos-instantly/"><u>[Updated] In 2024, Master Windows 10'S Native Features to Cut Videos Instantly</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-key-players-in-top-6-4k-youtube-to-mp3-conversion-software-for-2024/"><u>[Updated] Key Players in Top 6 4K YouTube-to-MP3 Conversion Software for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-quickly-transform-sluggish-videos-on-android-for-2024/"><u>[Updated] Quickly Transform Sluggish Videos on Android for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-sci-fis-new-dimensions-top-10-films-taking-viewers-beyond-our-reality/"><u>[Updated] Sci-Fi's New Dimensions Top 10 Films Taking Viewers Beyond Our Reality</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-superstar-status-secrets-a-step-by-step-plan-for-lightning-fame-on-social-media-giant-instagram/"><u>[Updated] Superstar Status Secrets A Step-by-Step Plan for Lightning Fame on Social Media Giant Instagram</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/aol-email-service-outage-identifying-the-root-cause-your-guide/"><u>AOL Email Service Outage: Identifying the Root Cause - Your Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>Audio Aesthetics High-Quality DJ Template Videos Downloaded</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/conquering-capture-a-detailed-walkthrough-for-ps4-recordings-for-2024/"><u>Conquering Capture A Detailed Walkthrough for PS4 Recordings for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-clearing-faceprint-database-affect-security-measures-for-fb-users/"><u>Does Clearing Faceprint Database Affect Security Measures for FB Users?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-download-updated-lenovo-t420-drivers-for-windows-systems/"><u>Easy Steps to Download Updated Lenovo T420 Drivers for Windows Systems</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/essential-tips-for-iphone-users-podcasting-guide/"><u>Essential Tips for iPhone Users - Podcasting Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/filmora-guide-efficiently-convert-avi-files-to-gifs-on-both-operating-systems-for-2024/"><u>Filmora Guide Efficiently Convert AVI Files to GIFs on Both Operating Systems for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6 To Other iPhone 12 devices? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-11-proplus-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme 11 Pro+ online without jailbreak</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-a05s-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy A05s to iPhone | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-f14-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy F14 5G</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-frame-it-right-vertical-video-mastery-with-final-cut-pro-x/"><u>In 2024, Frame It Right Vertical Video Mastery with Final Cut Pro X</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-giggle-galaxy-most-shared-content-on-both-platforms/"><u>In 2024, Giggle Galaxy Most Shared Content on Both Platforms</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-masterclass-in-3d-color-grading-with-custom-luts/"><u>In 2024, Masterclass in 3D Color Grading with Custom LUTs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-mobile-gear-enhancing-video-creation/"><u>In 2024, Mobile Gear Enhancing Video Creation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-the-blueprint-to-dominate-with-your-spotify-ad-campaign/"><u>In 2024, The Blueprint to Dominate With Your Spotify Ad Campaign</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-understanding-video-storage-in-24-hours/"><u>In 2024, Understanding Video Storage in 24-Hours</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-uninterrupted-entertainment-with-our-12-live-networks/"><u>In 2024, Uninterrupted Entertainment with Our 12 Live Networks</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-effortless-video-rotation-a-beginners-guide/"><u>New In 2024, Effortless Video Rotation A Beginners Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/precision-and-speed-the-ultimate-guide-to-mac-srt-editing-for-2024/"><u>Precision and Speed The Ultimate Guide to Mac Srt Editing for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/professional-moving-less-imagery-tips-for-2024/"><u>Professional Moving-Less Imagery Tips for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/simplifying-the-complex-an-in-depth-review-of-vida-app/"><u>Simplifying the Complex An In-Depth Review of Vida App</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-installing-updated-amd-radeon-hd-7870-drivers-on-your-pc-running-windows-11/"><u>Step-by-Step Tutorial: Installing Updated AMD Radeon HD 7870 Drivers on Your PC Running Windows 11</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-blue-bands-promise-tips-for-longevity-for-2024/"><u>The Blue Bands Promise Tips for Longevity for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unraveling-drone-technology-mechanisms-and-applications-demystified-for-2024/"><u>Unraveling Drone Technology Mechanisms and Applications Demystified for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unveiling-the-trio-a-deep-dive-into-vr-ar-and-mr-for-2024/"><u>Unveiling the Trio A Deep Dive Into VR, AR, & MR for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/why-does-my-photo-booth-videos-keep-freezing-in-2024/"><u>Why Does My Photo Booth Videos Keep Freezing, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fixed-most-effective-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro-for-2024/"><u>[New] [Fixed] Most-Effective 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-easy-steps-to-change-fins-sounds-in-windows/"><u>[Updated] Easy Steps to Change Fins' Sounds in Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-amplify-your-online-influence-with-these-best-5-youtube-marketing-techniques/"><u>2024 Approved Amplify Your Online Influence with These Best 5 YouTube Marketing Techniques</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-capturing-the-extreme-the-gopro-hero5-black-vs-hero4-silver-duel/"><u>2024 Approved Capturing the Extreme The GoPro Hero5 Black Vs Hero4 Silver Duel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mp3-to-video-stream-mp3-to-youtube-in-3-easy-steps/"><u>2024 Approved MP3 to Video Stream MP3 to YouTube in 3 Easy Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-grammatical-journey-from-lisbon-to-brasilia/"><u>A Grammatical Journey From Lisbon to Brasília</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-samsung-galaxy-a05s-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Samsung Galaxy A05s Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chord-powered-communication-science-backed-music-learning-techniques/"><u>Chord-Powered Communication: Science Backed Music Learning Techniques</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/dissecting-freecapture-a-software-review/"><u>Dissecting FreeCapture A Software Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-xcover-7-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy XCover 7 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-boost-your-files-future-with-these-20-best-in-class-no-cost-services/"><u>In 2024, Boost Your Files' Future with These 20 Best-in-Class No-Cost Services</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/navigating-new-realms-todays-vr-tomorrows-trials/"><u>Navigating New Realms Today's VR, Tomorrow's Trials</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamlined-multitasking-in-safari-with-pip-for-2024/"><u>Streamlined Multitasking in Safari with PIP for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Apple iPhone 6s | Dr.fone</u></a></li>
 </ul></div>
+

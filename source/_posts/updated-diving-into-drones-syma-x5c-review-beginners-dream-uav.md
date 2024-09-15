@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Diving Into Drones? Syma X5C Review  Beginner's Dream UAV\""
-date: 2024-09-09T05:55:18.741Z
-updated: 2024-09-10T05:55:18.741Z
+date: 2024-09-12T01:33:29.940Z
+updated: 2024-09-15T00:54:41.464Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -36,12 +30,6 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
 ![syma x5c explorers](https://images.wondershare.com/filmora/article-images/syma-x5c-explorers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Check at Amazon](https://www.amazon.com/gp/product/B01CNGT0DG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CNGT0DG&linkId=57d2a66ecb7fdd24814d14d9272a2f49)
 
 **You may also like:** [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -72,12 +60,6 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -109,32 +91,14 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
@@ -166,57 +130,28 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-5-rapid-steps-unearthing-disappeared-reddit-posts/"><u>[New] 2024 Approved 5 Rapid Steps Unearthing Disappeared Reddit Posts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-reassessing-the-updates-to-sonys-s6500-bdhd-player/"><u>[New] 2024 Approved Reassessing the Updates to Sony's S6500 BD/HD Player</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-adding-realism-to-portraits-applying-motion-blur-in-picsart/"><u>[New] Adding Realism to Portraits Applying Motion Blur in Picsart</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-augmented-realms-cinemas-evolution-for-2024/"><u>[New] Augmented Realms Cinema's Evolution for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-ensure-video-success-on-twitter-understand-the-aspect-ratio-for-2024/"><u>[New] Ensure Video Success on Twitter Understand the Aspect Ratio for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-how-to-control-your-iphone-image-orientation/"><u>[New] In 2024, How to Control Your iPhone Image Orientation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-streamline-your-podcasts-effective-editing-tips-for-garageband-users/"><u>[New] In 2024, Streamline Your Podcasts Effective Editing Tips for GarageBand Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-pinnacle-of-performance-new-samsung-bdplus-review-for-2024/"><u>[New] Pinnacle of Performance - New Samsung BD+ Review for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-top-10-drawing-apps-for-android-unleash-your-inner-artist-for-2024/"><u>[New] Top 10 Drawing Apps for Android Unleash Your Inner Artist for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-capture-composition-ideal-plugins-and-websites-to-frame-your-images/"><u>[Updated] 2024 Approved Capture Composition Ideal Plugins and Websites to Frame Your Images</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-creating-stunning-time-lapse-videos-on-samsung-devices/"><u>[Updated] 2024 Approved Creating Stunning Time-Lapse Videos on Samsung Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-exploring-vivas-video-experience/"><u>[Updated] 2024 Approved Exploring Viva's Video Experience</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-swift-shadowing-in-1-minute/"><u>[Updated] 2024 Approved Swift Shadowing in 1 Minute</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unraveling-drone-use-in-the-now-and-next-frontier/"><u>[Updated] 2024 Approved Unraveling Drone Use in the Now & Next Frontier</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-bestiary-of-ios-ps2-game-simulators/"><u>[Updated] Bestiary of iOS PS2 Game Simulators</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-craft-your-first-impactful-facebook-phenomenon-giveaway/"><u>[Updated] Craft Your First Impactful Facebook Phenomenon Giveaway</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-expert-review-ricoh-theta-s-unveiled-in-detail/"><u>[Updated] Expert Review Ricoh Theta S Unveiled in Detail</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-high-definition-showdown-sj6-versus-yi-4k-innovator/"><u>[Updated] High Definition Showdown SJ6 Versus Yi 4K Innovator</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-comparative-review-dji-phantom-3-vs-competitors/"><u>[Updated] In 2024, Comparative Review DJI Phantom 3 vs Competitors</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-jumpstarting-your-marketing-the-essentials-of-telegram-advertising-for-2024/"><u>[Updated] Jumpstarting Your Marketing The Essentials of Telegram Advertising for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-navigating-the-digital-space-with-ease-via-onestream-platform-for-2024/"><u>[Updated] Navigating the Digital Space with Ease via OneStream Platform for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-selection-the-best-8-tripods-for-superior-4k-shooting/"><u>[Updated] Premium Selection The Best 8 Tripods for Superior 4K Shooting</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-quick-fixes-for-color-balancing-in-ps/"><u>[Updated] Quick Fixes for Color Balancing in PS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-streamline-your-content-google-podcast-upload-for-2024/"><u>[Updated] Streamline Your Content Google Podcast Upload for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-syncopated-shots-picking-the-best-music-for-social-media/"><u>[Updated] Syncopated Shots Picking the Best Music for Social Media</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-guide-to-freebie-animation-tools/"><u>[Updated] The Ultimate Guide to Freebie Animation Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-windowsmac-execute-srt-files-with-ease-for-2024/"><u>[Updated] Windows/Mac Execute SRT Files with Ease for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-engaging-live-videos-on-smartphones-and-social-networks/"><u>2024 Approved Crafting Engaging Live Videos on Smartphones & Social Networks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-smart-eco-friendly-screen-tech-compilation/"><u>2024 Approved Smart, Eco-Friendly Screen Tech Compilation</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-12-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 12</u></a></li>
-<li><a href="https://games-able.techidaily.com/from-individual-to-team-in-the-new-xbox-era/"><u>From Individual to Team in the New Xbox Era</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-vivo-s17-frp-by-drfone-android/"><u>Full Guide to Bypass Vivo S17 FRP</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-xiaomi-14-ultra-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Xiaomi 14 Ultra Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-y78plus-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo Y78+</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-accelerating-or-slowing-down-video-playback-on-insta-stories/"><u>In 2024, Accelerating or Slowing Down Video Playback on Insta Stories</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-navigating-the-features-of-magix-video-pro-x/"><u>In 2024, Navigating the Features of Magix Video Pro X</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-premiere-pro-for-youtube-cutting/"><u>In 2024, Step-by-Step Guide Premiere Pro for YouTube Cutting</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-the-art-of-straightening-correcting-fisheye-in-gopro-footage/"><u>In 2024, The Art of Straightening Correcting Fisheye in GoPro Footage</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-you-dont-necessarily-have-to-know-a-lot-about-photo-or-video-editing-process-in-order-to-add-a-vignette-to-a-picture-or-adjust-its-color-brightness-or-h/"><u>New You Dont Necessarily Have to Know a Lot About Photo or Video Editing Process in Order to Add a Vignette to a Picture or Adjust Its Color, Brightness or Highlights. In This Article We Are Going to Ta</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/overcoming-common-keyboard-problems-a-comprehensive-guide-to-fixing-unresponsive-keys/"><u>Overcoming Common Keyboard Problems: A Comprehensive Guide to Fixing Unresponsive Keys</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-motorola-edge-2023-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Motorola Edge 2023 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/step-into-the-virtual-realm-with-updated-android-tips-for-2024/"><u>Step Into the Virtual Realm with Updated Android Tips for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-instructions-to-fetch-and-install-updated-epson-xp-440-drivers-fast/"><u>Step-by-Step Instructions to Fetch and Install Updated Epson XP-440 Drivers Fast</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/subtle-harmonies-on-desktop-systems/"><u>Subtle Harmonies on Desktop Systems</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-premier-six-mario-worlds-an-unparalleled-journey-on-pc/"><u>The Premier Six Mario Worlds: An Unparalleled Journey on PC</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshoot-and-repair-how-to-solve-the-problem-of-a-missing-or-inaccessible-msidll-file-on-your-pc/"><u>Troubleshoot and Repair: How to Solve the Problem of a Missing or Inaccessible msi.dll File on Your PC</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ultimate-5-mobile-photo-editing-iphone-x87-background-switch/"><u>Ultimate 5 Mobile Photo Editing IPhone X/8/7 Background Switch</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unveiling-the-secrets-of-sdr-to-hdr-enhancement-techniques-for-2024/"><u>Unveiling the Secrets of SDR-to-HDR Enhancement Techniques for 2024</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-6-must-have-tools-for-successful-game-streaming-for-2024/"><u>Updated 6 Must-Have Tools for Successful Game Streaming for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrade-to-latest-windows-aoc-driver/"><u>Upgrade to Latest Windows AOC Driver</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-stream-your-podcast-with-one-move-only/"><u>[New] 2024 Approved Stream Your Podcast with One Move Only</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>[New] Elevate Your YT Marketing Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-guiding-principles-for-integrating-videos-in-education/"><u>[New] In 2024, Guiding Principles for Integrating Videos in Education</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-voice-to-text-programs/"><u>[New] In 2024, Leading Voice to Text Programs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-showdown-xsplits-efficacy-versus-obs/"><u>[New] In 2024, The Ultimate Showdown XSplit's Efficacy Versus OBS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exquisite-photographic-saga-assembler/"><u>[Updated] Exquisite Photographic Saga Assembler</u></a></li>
+<li><a href="https://article-posts.techidaily.com/crafting-a-connected-collection-across-applications/"><u>Crafting a Connected Collection Across Applications</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/firefox-x-pie-mode-decoded-for-everyday-users/"><u>Firefox X-Pie Mode Decoded for Everyday Users</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-mastering-chatgpt-can-transform-your-job-search-strategies/"><u>How Mastering ChatGPT Can Transform Your Job Search Strategies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-navigating-the-world-of-instagram-and-podcast-sharing/"><u>In 2024, Navigating the World of Instagram & Podcast Sharing</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://extra-support.techidaily.com/omni-angle-equipment-for-immersive-shoots-for-2024/"><u>Omni-Angle Equipment for Immersive Shoots for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-guide-alphabetizing-excel-sheet-tab-names-efficiently/"><u>Step-by-Step Guide: Alphabetizing Excel Sheet Tab Names Efficiently</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/streamline-your-playback-secrets-of-gameye/"><u>Streamline Your Playback Secrets of GamEye</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/tackle-and-triumph-over-the-samsung-blu-ray-player-not-working-dilemma-with-these-tips/"><u>Tackle and Triumph Over the 'Samsung Blu Ray Player Not Working' Dilemma with These Tips</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
