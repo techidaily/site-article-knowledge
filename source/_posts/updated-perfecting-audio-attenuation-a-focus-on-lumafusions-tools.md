@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Audio Attenuation  A Focus on Lumafusion's Tools\""
-date: 2024-09-11T10:44:05.525Z
-updated: 2024-09-15T08:33:44.817Z
+date: 2024-09-19T16:18:09.158Z
+updated: 2024-09-20T16:37:58.928Z
 tags: 
   - screen-recording
   - ai video
@@ -114,10 +114,10 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4 Share and export
@@ -126,24 +126,24 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
@@ -178,17 +178,20 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-renewal-of-photo-viewing-capabilities-in-windows-10-guide/"><u>[New] Renewal of Photo Viewing Capabilities in Windows 10 - Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crown-jewel-ios-recorders-for-phones-for-2024/"><u>[Updated] Crown Jewel iOS Recorders for Phones for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ultimate-guide-choosing-the-best-video-grabber-for-windows-10/"><u>[Updated] In 2024, Ultimate Guide Choosing the Best Video Grabber for Windows 10</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-innovation-unleashed-leading-professionals-360cameras-for-2024/"><u>[Updated] Innovation Unleashed Leading Professionals’ 360°Cameras for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-straightforward-approach-to-mastering-simple-hdr-techniques/"><u>2024 Approved Straightforward Approach to Mastering Simple HDR Techniques</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Vivo S18 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-seconds-life-on-fb-for-2024/"><u>In Seconds, Life On FB for 2024</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/iphone-backup-breaker-swift-and-sure-data-revival/"><u>IPhone Backup Breaker: Swift and Sure Data Revival</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/pioneering-digital-music-management-win-media-and-cds/"><u>Pioneering Digital Music Management Win, Media and Cds</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-c110-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from C110.</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-fast-to-slow-a-comprehensive-guide-to-windows-live-movie-makers-slow-motion-effect/"><u>Updated From Fast to Slow A Comprehensive Guide to Windows Live Movie Makers Slow Motion Effect</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-10-budget-friendly-video-alteration-journeys-explored/"><u>[New] 2024 Approved Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-your-guide-to-affordable-quality-live-streaming-on-smartphones/"><u>[New] 2024 Approved Your Guide to Affordable, Quality Live Streaming on Smartphones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-diving-into-hololens-technology-the-visionary-glimpse-for-2024/"><u>[New] Diving Into HoloLens Technology – The Visionary Glimpse for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-7-dslr-cameras-for-vlogging/"><u>[New] In 2024, Best 7 DSLR Cameras for Vlogging</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigating-the-nuances-of-spotify-advertising/"><u>[New] In 2024, Navigating the Nuances of Spotify Advertising</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-riches-guide-ranking-the-top-earner-posts-for-2024/"><u>[New] Instagram Riches Guide Ranking the Top Earner Posts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pinnacle-selections-prolific-iphone-tone-innovators-for-2024/"><u>[New] Pinnacle Selections Prolific iPhone Tone Innovators for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-advanced-techniques-in-itunes-video-saving/"><u>[Updated] 2024 Approved Advanced Techniques in iTunes Video Saving</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-truth-behind-aurora-hdr-image-clarity/"><u>[Updated] In 2024, The Truth Behind Aurora HDR Image Clarity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-transforming-visual-narratives-with-creative-use-of-luts-in-pro/"><u>[Updated] Transforming Visual Narratives with Creative Use of LUTs in Pro</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-uploading-and-showcasing-videos-on-instagram-made-easy-for-2024/"><u>[Updated] Uploading and Showcasing Videos on Instagram Made Easy for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1-how-to-move-your-data-from-iphone-to-computer-free-without-using-itunes/"><u>1. How to Move Your Data From iPhone to Computer Free Without Using iTunes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-realme-narzo-60-pro-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Realme Narzo 60 Pro 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/money-smart-aerial-explorers-5-best-drones-for-less-than-100-for-2024/"><u>Money-Smart Aerial Explorers 5 Best Drones for Less Than $100 for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-motorola-moto-g-stylus-2023-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Motorola Moto G Stylus (2023) Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

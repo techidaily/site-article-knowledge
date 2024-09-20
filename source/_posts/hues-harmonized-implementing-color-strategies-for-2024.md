@@ -1,7 +1,7 @@
 ---
 title: "\"Hues Harmonized  Implementing Color Strategies for 2024\""
-date: 2024-09-11T06:38:38.915Z
-updated: 2024-09-15T05:48:17.395Z
+date: 2024-09-13T17:25:23.934Z
+updated: 2024-09-20T16:58:16.907Z
 tags: 
   - screen-recording
   - ai video
@@ -55,18 +55,24 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -75,10 +81,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
@@ -117,14 +123,12 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-ace-your-project-advanced-srt-tweaks-on-a-mac-for-2024/"><u>[New] Ace Your Project Advanced SRT Tweaks on a Mac for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-top-tips-for-optimal-frame-rate-manipulation/"><u>[New] Top Tips for Optimal Frame Rate Manipulation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-choosing-a-font-for-impactful-youtube-credits/"><u>[Updated] Choosing a Font for Impactful YouTube Credits</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crafting-vivid-visuals-selecting-the-best-11-tutorials-for-2024/"><u>[Updated] Crafting Vivid Visuals Selecting the Best 11 Tutorials for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-voice-tweaks-simple-methods-for-smooth-adjustments-for-2024/"><u>[Updated] Snapchat Voice Tweaks Simple Methods for Smooth Adjustments for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-guide-to-asus-proart-pa-329q-professionals-features-for-2024/"><u>[Updated] The Complete Guide to Asus ProArt PA 329Q Professional's Features for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/phone-speaker-transcriber-voice-logging-iphone-24/"><u>Phone Speaker Transcriber Voice Logging (iPhone '24)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Spark 10 4G? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719307808288-tackling-windows-glitches-find-solutions-now/"><u>Tackling Windows Glitches: Find Solutions Now!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-premier-collection-of-ae-plugins-unveiled/"><u>[New] 2024 Approved The Premier Collection of AE Plugins Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-an-in-depth-look-at-huawei-p10s-audio-experience/"><u>[New] An In-Depth Look at Huawei P10's Audio Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-immediate-frame-grabbers-help/"><u>[Updated] 2024 Approved Immediate Frame Grabber's Help</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-precision-engagement-elevating-camera-angle-online/"><u>[Updated] Precision Engagement Elevating Camera Angle Online</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-nokia-c12-plus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Nokia C12 Plus by Name | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-honor-90-lite-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Honor 90 Lite FRP</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-to-resolving-pc-grounding-issues-proven-strategies/"><u>Ultimate Guide to Resolving PC Grounding Issues – Proven Strategies</u></a></li>
 </ul></div>
 

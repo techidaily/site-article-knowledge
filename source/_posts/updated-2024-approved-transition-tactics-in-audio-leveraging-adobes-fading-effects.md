@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transition Tactics in Audio  Leveraging Adobe’s Fading Effects\""
-date: 2024-09-11T10:04:38.943Z
-updated: 2024-09-15T08:01:00.863Z
+date: 2024-09-15T17:25:21.310Z
+updated: 2024-09-20T17:20:47.716Z
 tags: 
   - screen-recording
   - ai video
@@ -84,10 +84,10 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -99,10 +99,10 @@ If you want to fade in and fade out two clips at the same time, then controlling
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
@@ -126,6 +126,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -136,27 +143,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -190,16 +190,15 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-scene-stealer-snapshot-study/"><u>[New] 2024 Approved Scene-Stealer Snapshot Study</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-proven-pathway-to-pure-sound/"><u>[Updated] 2024 Approved Proven Pathway to Pure Sound</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-reimagining-receipt-a-new-approach-to-package-revelation/"><u>[Updated] 2024 Approved Reimagining Receipt A New Approach to Package Revelation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-best-memes-with-a-humor-shaper/"><u>[Updated] In 2024, Best Memes with a Humor Shaper</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-direct-syncing-tweeting-videos-onto-snapchat-channels/"><u>2024 Approved Direct Syncing Tweeting Videos Onto Snapchat Channels</u></a></li>
-<li><a href="https://windows11.techidaily.com/audio-visual-verification-a-windows-users-pre-meet-checklist/"><u>Audio Visual Verification: A Windows User’s Pre-Meet Checklist</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-solutions-to-overcome-the-not-ready-gadget-warning/"><u>Effective Solutions to Overcome the 'Not Ready' Gadget Warning</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-14-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 14 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/sprinting-into-the-digital-age-picks-on-vr-treadmills-for-2024/"><u>Sprinting Into the Digital Age Picks on VR Treadmills for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlocking-the-potential-of-windows-10-for-aspiring-filmmakers-for-2024/"><u>Unlocking the Potential of Windows 10 for Aspiring Filmmakers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-strategic-first-impressions-the-unpacking-edge-for-2024/"><u>[New] Strategic First Impressions The Unpacking Edge for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-superb-simple-countdown-apps-for-free/"><u>[New] Superb Simple Countdown Apps for Free</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-how-to-access-hidden-social-media-recommendations/"><u>[Updated] How to Access Hidden Social Media Recommendations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ice-and-elegance-the-2022-winter-olympics-in-china-for-2024/"><u>Ice & Elegance The 2022 Winter Olympics in China for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/innovative-water-world-leading-game-experience-hits-for-2024/"><u>Innovative Water World Leading Game Experience Hits for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leap-into-fitness-a-curated-selection-of-vr-treadmill-pros-for-2024/"><u>Leap Into Fitness A Curated Selection of VR Treadmill Pros for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tap-out-of-high-contrast-in-windows-environment/"><u>Tap Out of High Contrast in Windows Environment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-hustle-free-route-mastering-podcast-live-broadcasting-for-2024/"><u>The Hustle-Free Route Mastering Podcast Live Broadcasting for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-list-of-free-vfx-websites/"><u>The Ultimate List of FREE VFX Websites</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-best-zero-cost-vob-video-editors-a-comprehensive-review/"><u>Updated 2024 Approved Best Zero-Cost VOB Video Editors A Comprehensive Review</u></a></li>
 </ul></div>
 

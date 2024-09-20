@@ -1,7 +1,7 @@
 ---
 title: "\"In-Depth Review  Xiaomi MI Drone 4K Capabilities for 2024\""
-date: 2024-09-13T02:31:44.703Z
-updated: 2024-09-15T01:38:02.237Z
+date: 2024-09-17T16:40:42.053Z
+updated: 2024-09-20T17:36:16.796Z
 tags: 
   - screen-recording
   - ai video
@@ -67,26 +67,26 @@ Like most of the advanced drone units, Xiaomi Mi also features autonomous flying
 
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Control Range
 
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Camera
 
 Xiaomi Mi Drone unit comes with two different variants where the professional one carries 4K camera unit with it and another variant is able to handle 1080P resolution level. Note that the 4K camera comes with 12.4MP sensor from Sony and it works with the Ambarella image processor. You can set its frame rate up to 30fps. Another option is 1080p resolution setting that comes with 16.4 megapixel sensor from Sony along with Ambarella Image Processor. In this case frame rate can go as high as up to 60 fps. The 2.4GHz transmitter further ensures interference free recording in air.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -120,15 +120,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-step-by-step-turn-your-images-darker/"><u>[New] In 2024, Step-by-Step Turn Your Images Darker</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-picks-expert-recommended-8-convertors-from-sub-to-srt/"><u>[New] In 2024, Top Picks Expert-Recommended 8 Convertors From Sub to Srt</u></a></li>
-<li><a href="https://network-issues.techidaily.com/combat-lag-in-virtual-building-game-pc/"><u>Combat Lag in Virtual Building Game PC</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/complete-dji-inspire-1-review-insights/"><u>Complete DJI Inspire 1 Review Insights</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Realme 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effective-solutions-to-address-msstfmtdll-not-detected-problems/"><u>Effective Solutions to Address 'Msstfmt.dll' Not Detected Problems</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtubes-rivalry-the-leading-3-video-streaming-sites/"><u>In 2024, YouTube's Rivalry The Leading 3 Video Streaming Sites</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-pubg-voice-customization-for-2024/"><u>The Ultimate Guide to PUBG Voice Customization for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-ultimate-powerdirector-24-review-a-comprehensive-dive-for-2024/"><u>The Ultimate PowerDirector '24 Review A Comprehensive Dive for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/top-strategies-for-finding-and-using-a-lost-iphone-x-for-2024/"><u>Top Strategies for Finding & Using a Lost iPhone X for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-techniques-for-designing-youtube-video-thumbnails/"><u>[New] 2024 Approved Essential Techniques for Designing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unveiling-the-essence-filmoras-top-10-enchanting-features/"><u>[New] 2024 Approved Unveiling the Essence Filmora’s Top 10 Enchanting Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-concept-to-reality-the-vr-story/"><u>[New] In 2024, From Concept to Reality The VR Story</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-influential-vr-development-studios/"><u>[New] Influential VR Development Studios</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-complete-screenrec-manual-for-laptops-for-2024/"><u>[New] The Complete ScreenRec Manual for Laptops for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-srt-file-open-srt-file-on-windows-or-mac/"><u>[Updated] 2024 Approved SRT File Open SRT File on Windows or Mac</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elevating-impact-refined-techniques-in-ppt-presentation-speaking/"><u>[Updated] In 2024, Elevating Impact Refined Techniques in PPT Presentation Speaking</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-expertly-tailored-shots-with-10-initial-free-customizable-lut-packages/"><u>[Updated] In 2024, Expertly Tailored Shots with 10 Initial Free, Customizable LUT Packages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-what-to-expect-when-boosting-performance/"><u>[Updated] What to Expect When Boosting Performance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-art-of-producing-attention-grabbing-podcast-openers/"><u>2024 Approved The Art of Producing Attention-Grabbing Podcast Openers</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/complete-rotation-recording-versus-stereo-capture-for-2024/"><u>Complete Rotation Recording Versus Stereo Capture for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/expert-tips-for-drone-racing-enthusiasts-and-premium-fpv-units/"><u>Expert Tips for Drone Racing Enthusiasts & Premium FPV Units</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-role-of-background-melody-in-a-cinematic-commercial/"><u>In 2024, The Role of Background Melody in a Cinematic Commercial</u></a></li>
+<li><a href="https://article-helps.techidaily.com/professional-grade-handguns-for-ultimate-video-stability-for-2024/"><u>Professional Grade Handguns for Ultimate Video Stability for 2024</u></a></li>
 </ul></div>
 

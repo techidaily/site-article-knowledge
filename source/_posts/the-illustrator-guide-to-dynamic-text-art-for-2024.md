@@ -1,7 +1,7 @@
 ---
 title: "The Illustrator Guide to Dynamic Text Art for 2024"
-date: 2024-09-10T09:33:19.186Z
-updated: 2024-09-15T02:45:19.023Z
+date: 2024-09-14T17:27:06.751Z
+updated: 2024-09-20T16:29:13.185Z
 tags: 
   - screen-recording
   - ai video
@@ -82,10 +82,10 @@ You might not believe it, but there's an even more accessible and less expensive
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
@@ -97,6 +97,13 @@ Step1 Download Filmora and run the program. Once it opens, click on **New Projec
 Step2 Head to the **Titles** tab and search for the **“3D Illustration**” title. Then, drag it into the Timeline. You can also find several other 3D titles. If you like another one better, drag that one instead of the one we mentioned here.
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
@@ -115,10 +122,10 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
@@ -134,13 +141,6 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -174,19 +174,19 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-apex-level-clarity-convert-high-res-videos/"><u>[New] 2024 Approved Apex-Level Clarity Convert High-Res Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prime-concepts-to-transform-vhs-imagery-on-computers/"><u>[New] 2024 Approved Prime Concepts to Transform VHS Imagery on Computers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-discover-the-best-html5-video-players-around-for-2024/"><u>[New] Discover the Best HTML5 Video Players Around for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unlocking-speedy-streams-the-noobs-snapchat-guide/"><u>[New] Unlocking Speedy Streams The Noob’s Snapchat Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-igtv-star-making-picks-for-your-watchlist/"><u>[Updated] 2024 Approved IGTV Star-Making Picks for Your Watchlist</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-capture-clarity-high-end-gyroscopic-tripod-gear-for-2024/"><u>[Updated] Capture Clarity High-End Gyroscopic Tripod Gear for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-actors-availability-for-video-downloads/"><u>[Updated] In 2024, Actors' Availability for Video Downloads</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-oppo-reno-11f-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Oppo Reno 11F 5G? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/enabling-hyper-v-feature-for-optimal-performance-on-windows-11/"><u>Enabling Hyper-V Feature for Optimal Performance on Windows 11</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/picturecut-pro-for-2024/"><u>PictureCut Pro for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premium-steadicam-brands-for-drones-and-camera-work-for-2024/"><u>Premium Steadicam Brands for Drones and Camera Work for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/uncomplicated-steps-to-record-instagrams-story-feed/"><u>Uncomplicated Steps to Record Instagram's Story Feed</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-tips-for-prolonging-gopros-energy-stamina/"><u>[New] 2024 Approved Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-chuckle-forge-mutant-comedy-creatures/"><u>[New] Chuckle Forge Mutant Comedy Creatures</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-find-the-perfect-personalized-boxed-gift-at-these-online-retailers/"><u>[New] Find the Perfect Personalized Boxed Gift at These Online Retailers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transform-your-recordings-expert-tips-for-zoom-changer/"><u>[New] Transform Your Recordings Expert Tips for Zoom Changer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-4k-laptops-ultimate-gaming-edition-for-2024/"><u>[Updated] Best 4K Laptops - Ultimate Gaming Edition for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-easy-way-to-modify-iphone-photo-dimensions/"><u>[Updated] In 2024, The Easy Way to Modify iPhone Photo Dimensions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-depth-review-of-dji-mavic-pro-eyewear-tech/"><u>[Updated] In-Depth Review of DJI Mavic Pro Eyewear Tech</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/demystifying-the-mechanics-of-predictive-ai-technology/"><u>Demystifying the Mechanics of Predictive AI Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-12-pro-max-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 12 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-s18-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo S18 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, The Easy Way to Remove an Apple ID from Your MacBook For your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/no-cost-all-benefits-with-fcp-downloads-for-2024/"><u>No Cost, All Benefits with FCP Downloads for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-infinix-note-30-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Infinix Note 30 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

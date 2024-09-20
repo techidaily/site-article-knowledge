@@ -1,7 +1,7 @@
 ---
 title: "\"Streamlining Color Correction  Leveraging Look-Up Tables From CG Central\""
-date: 2024-09-12T20:19:33.273Z
-updated: 2024-09-14T18:22:38.253Z
+date: 2024-09-13T17:06:41.438Z
+updated: 2024-09-20T17:40:49.311Z
 tags: 
   - screen-recording
   - ai video
@@ -78,10 +78,17 @@ From the "Free LUTs" page, users can download ten free conversion LUTs and three
 ![ground control color](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. [Color Grading Central: 7 Free LUTs, Color Presets, and Grains](http://www.colorgradingcentral.com/)
@@ -95,17 +102,10 @@ In addition to giving away seven free color LUTs, they're also giving away an as
 ![color grading central](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. [SmallHD: 7 Free LUTs](https://www.smallhd.com/community/movie-looks-download)
@@ -137,10 +137,16 @@ The good news is that you can register, download the LUT, and then cancel. Or he
 ![lutify me](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. How to do color grading in Filmora?
@@ -151,16 +157,16 @@ By clicking **"Effect"** and choosing **"LUT"**, where you can examine a range o
 
 ![lut](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Of course, if you're still dissatisfied with the result you may select **"Advanced"** for a more subtle color correction. White Balance, Vignette, and Enhancement are some of Adjust features. You can also choose a more precise pre-made configuration from the **Preset** option.
 
 ![preset](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -202,20 +208,18 @@ In summary, we've seen some different color grading LUTs that simplify the color
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-speedy-integration-of-voice-input-feature-in-your-powerpoint-shows-for-2024/"><u>[New] Speedy Integration of Voice Input Feature in Your PowerPoint Shows for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-ultimate-list-empowering-film-suggestions/"><u>[Updated] 2024 Approved The Ultimate List Empowering Film Suggestions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeting-trouble-laughter-league/"><u>[Updated] 2024 Approved Tweeting Trouble Laughter League</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-a-journey-through-creativity-using-movie-maker-to-make-animated-dreams/"><u>[Updated] In 2024, A Journey Through Creativity Using Movie Maker to Make Animated Dreams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-affordable-action-cam-top-picks/"><u>[Updated] In 2024, Affordable Action Cam Top Picks</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-pro-tips-for-efficient-message-reactions-on-discord/"><u>2024 Approved Pro Tips for Efficient Message Reactions on Discord</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/advanced-blur-selection-for-digital-imagery-for-2024/"><u>Advanced Blur Selection for Digital Imagery for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/expert-guide-to-mastering-zero-cost-timer-functionality/"><u>Expert Guide to Mastering Zero Cost Timer Functionality</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-innovative-yet-straightforward-home-designs-in-mc/"><u>In 2024, Innovative Yet Straightforward Home Designs in MC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-superior-pcmacos-users-choice-best-8-uhd-video-player/"><u>In 2024, Superior PC/MacOS Users' Choice Best 8 UHD Video Player</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/insights-on-instagram-maximum-video-length/"><u>Insights on Instagram Maximum Video Length</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/instant-downloads-targus-universal-docking-hub-driver-software/"><u>Instant Downloads: Targus Universal Docking Hub Driver Software</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/non-sharex-heroes-for-secure-file-sharing-for-2024/"><u>Non-ShareX Heroes for Secure File Sharing for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/top-6-gopro-helmet-harnesses-tips-and-techniques-unveiled-for-2024/"><u>Top 6 GoPro Helmet Harnesses Tips and Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-tips-for-prolonging-gopros-energy-stamina/"><u>[New] 2024 Approved Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-chuckle-forge-mutant-comedy-creatures/"><u>[New] Chuckle Forge Mutant Comedy Creatures</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-efficient-chromebook-screen-logger/"><u>[New] Efficient Chromebook Screen Logger</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>[New] From Novice to Expert Mastering Movie Maker in Windows 8 Systems</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-non-rooting-methods-to-record-android-sounds/"><u>[New] Non-Rooting Methods to Record Android Sounds</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-future-of-3d-color-grading-tools/"><u>[Updated] 2024 Approved The Future of 3D Color Grading Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-easy-way-to-modify-iphone-photo-dimensions/"><u>[Updated] In 2024, The Easy Way to Modify iPhone Photo Dimensions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-top-value-360-cameras-delivering-cost-effective-coverage/"><u>[Updated] In 2024, Top Value 360° Cameras Delivering Cost-Effective Coverage</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-video-broadcast-software-choice/"><u>2024 Approved Prime Video Broadcast Software Choice</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/a-novices-guide-to-making-unforgettable-snaps-on-snapchat-for-2024/"><u>A Novice's Guide to Making Unforgettable Snaps on Snapchat for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-locked-out-display-configurations-in-nvidia/"><u>Fixing Locked-Out Display Configurations in NVIDIA</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-attention-stirrer-supreme/"><u>In 2024, Attention Stirrer Supreme</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-leap-towards-youtube-dominance-with-proven-innovative-techniques/"><u>In 2024, Leap Towards YouTube Dominance with Proven, Innovative Techniques</u></a></li>
 </ul></div>
 

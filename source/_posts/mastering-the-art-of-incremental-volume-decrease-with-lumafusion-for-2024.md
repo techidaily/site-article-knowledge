@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Art of Incremental Volume Decrease with Lumafusion for 2024"
-date: 2024-09-11T07:16:10.623Z
-updated: 2024-09-14T23:01:37.785Z
+date: 2024-09-18T16:20:14.735Z
+updated: 2024-09-20T16:19:37.125Z
 tags: 
   - screen-recording
   - ai video
@@ -89,19 +89,6 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -126,6 +113,13 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
@@ -133,30 +127,24 @@ After finishing the method for editing audio in Filmora, click the Export button
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -190,18 +178,19 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings-for-2024/"><u>[New] Achieve Social Stardom Essential Tips for Thriving Instagram Unboxings for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-building-your-brand-as-a-reviewer-of-cars-and-automotive-gear-for-2024/"><u>[New] Building Your Brand as a Reviewer of Cars and Automotive Gear for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-pursuit-for-perfection-exploring-4k-with-hps-z32x-for-2024/"><u>[New] Pursuit for Perfection Exploring 4K with HP's Z32X for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/urn-video-to-sound-youtube-to-mp3-with-appleos/"><u>[New] Turn Video to Sound YouTube to MP3 with AppleOS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-full-spectrum-analysis-understanding-xmedia-suite-workshop-details-for-2024/"><u>[Updated] Full Spectrum Analysis Understanding XMedia Suite Workshop Details for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-game-changer-review-dji-mavic-air-takes-on-spark-for-2024/"><u>[Updated] Game Changer Review DJI Mavic Air Takes on Spark for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-filmeditingsuite-assessment-detailed-insights/"><u>2024 Approved FilmEditingSuite Assessment – Detailed Insights</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/create-visual-narratives-install-microsofts-movie-maker-on-w11/"><u>Create Visual Narratives Install Microsoft's Movie Maker on W11</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-y36i-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Vivo Y36i</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/inside-out-with-t5-ultimate-sport-and-action-recorder/"><u>Inside Out with T5 - Ultimate Sport and Action Recorder</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/professional-post-processing-how-to-erase-image-borders-easily/"><u>Professional Post-Processing How to Erase Image Borders Easily</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/unlocking-the-potential-of-your-itunes-recordings-for-2024/"><u>Unlocking the Potential of Your iTunes Recordings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-foremost-6-social-sites-for-corporate-relationships/"><u>[New] 2024 Approved Foremost 6 Social Sites for Corporate Relationships</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-premium-picks-superior-vr-game-choices-for-the-cardboard-enthusiast/"><u>[New] Premium Picks Superior VR Game Choices for the Cardboard Enthusiast</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-generate-humor-picmagic-creation/"><u>[Updated] Generate Humor PicMagic Creation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-syncing-speed-and-quality-in-lunapic-edits/"><u>[Updated] Syncing Speed and Quality in LunaPic Edits</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/bypassing-cinavia-restrictions-for-uninterrupted-gaming-and-movie-experience-on-ps4/"><u>Bypassing Cinavia Restrictions for Uninterrupted Gaming and Movie Experience on PS4</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-honor-magic-vs-2-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Honor Magic Vs 2 is off? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/diagnosing-and-fixing-a-broken-cmos-verification-code-in-minutes/"><u>Diagnosing & Fixing a Broken CMOS Verification Code in Minutes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/digital-renaissance-a-curated-list-of-top-nft-generating-platforms-for-2024/"><u>Digital Renaissance A Curated List of Top NFT-Generating Platforms for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discover-the-joy-of-mobile-podcasts/"><u>Discover the Joy of Mobile Podcasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/entfernung-von-dvd-sicherungen-und-dvd-rippern-fur-disney-filme-einfache-anleitung/"><u>Entfernung Von DVD-Sicherungen Und DVD-Rippern Für Disney Filme: Einfache Anleitung</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-your-pc-when-it-cant-shut-down-on-windows-11-solution-guide/"><u>How To Fix Your PC When It Can’t Shut Down on Windows 11 - SOLUTION GUIDE</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-selecting-superior-sound-10-top-mic-recommendations/"><u>In 2024, Selecting Superior Sound 10 Top Mic Recommendations</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-onestream-playbook-for-live-streamers/"><u>In 2024, The Ultimate OneStream Playbook for Live Streamers</u></a></li>
 </ul></div>
 

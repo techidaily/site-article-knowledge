@@ -1,0 +1,156 @@
+---
+title: "\"[Updated] Pro Video Illumination  Top Strategies for Immaculate Cinematography for 2024\""
+date: 2024-09-19T16:26:06.740Z
+updated: 2024-09-20T16:32:01.802Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] Pro Video Illumination: Top Strategies for Immaculate Cinematography for 2024\""
+excerpt: "\"This Article Describes [Updated] Pro Video Illumination: Top Strategies for Immaculate Cinematography for 2024\""
+keywords: "\"Cinematic Lighting Techniques,Pro Video Shot Quality,Mastering Camera Illumination,Immaculate Filmmaking Tips,Top Film Light Setup Strategies,High-Quality Cinema Lighting,Professional Cinematography Lights\""
+thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a1e199fa6e8f6bfec8524954.jpg
+---
+
+## Pro Video Illumination: Top Strategies for Immaculate Cinematography
+
+Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
+
+Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Part 1\. How-to Guide
+
+**_1) Preparation_**
+
+Before we get started, you may need to prepare some things to set up your lighting:
+
+**1\. Powerful LED Lights**
+
+LED lights are a huge step up from traditional incandescent lighting because they generate much less heat and energy. Also, you can change the color temperature and use different lighting effects.
+
+**2\. Softbox**
+
+Softbox can help you diffuse and spread the light on the subject.
+
+**3\. Fresnel lens**
+
+A Fresnel lens is an optional attachment that can bounce the light off of the ceiling of your studio and diffuses the light to look soft.
+
+**_2) Steps_**
+
+For this tutorial, we will use the Three-Point Lighting technique:
+
+##### Step1 Set the Key Light
+
+![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+
+The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
+
+##### Step2 Set the Fill Light
+
+![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+
+The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
+
+##### Step3 Set the Backlight
+
+![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
+
+##### Step4 Use Practical Lights
+
+Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
+
+![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
+
+Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
+
+![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
+
+![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+After setting up all the lighting above, you can take a look at the comparison below:
+
+**Using Key Light only**
+
+![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
+
+**Using Key Light + Fill + Backlight**
+
+![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
+
+**_3) Pro Tips: The light setting_**
+
+We usually set the lights around 50% brightness and a color temperature of 5600K.
+
+![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+## Summary
+
+Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unveiling-the-essence-filmoras-top-10-enchanting-features/"><u>[New] 2024 Approved Unveiling the Essence Filmora’s Top 10 Enchanting Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-concept-to-reality-the-vr-story/"><u>[New] In 2024, From Concept to Reality The VR Story</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-srt-file-open-srt-file-on-windows-or-mac/"><u>[Updated] 2024 Approved SRT File Open SRT File on Windows or Mac</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-expertly-tailored-shots-with-10-initial-free-customizable-lut-packages/"><u>[Updated] In 2024, Expertly Tailored Shots with 10 Initial Free, Customizable LUT Packages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-video-makeup-through-color-alignment-for-2024/"><u>[Updated] Transforming Video Makeup Through Color Alignment for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/complete-rotation-recording-versus-stereo-capture-for-2024/"><u>Complete Rotation Recording Versus Stereo Capture for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/expert-tips-for-drone-racing-enthusiasts-and-premium-fpv-units/"><u>Expert Tips for Drone Racing Enthusiasts & Premium FPV Units</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-easy-ways-to-transfer-contacts-from-apple-iphone-xr-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Easy Ways to Transfer Contacts from Apple iPhone XR to Android | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevating-remote-meetings-learning-close-up-zoom-methods/"><u>In 2024, Elevating Remote Meetings Learning Close-Up Zoom Methods</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-x50iplus-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor X50i+ Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photo-editing-mastery-leveraging-photoshops-background-eraser-tool-to-perfection/"><u>Photo Editing Mastery Leveraging Photoshop's Background Eraser Tool to Perfection</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-leading-face-editing-solutions-for-iphoneandroid-users/"><u>The Leading Face Editing Solutions for iPhone/Android Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-life-experiences-into-engaging-yt-videos/"><u>Transforming Life Experiences Into Engaging YT Videos</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-realme-10t-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Realme 10T 5G Hard Reset | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

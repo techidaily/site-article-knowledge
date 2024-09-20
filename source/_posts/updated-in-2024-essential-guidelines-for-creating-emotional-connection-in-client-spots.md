@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Guidelines for Creating Emotional Connection in Client Spots"
-date: 2024-09-13T12:17:13.737Z
-updated: 2024-09-15T03:12:17.531Z
+date: 2024-09-13T16:49:39.474Z
+updated: 2024-09-20T16:16:43.998Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
@@ -73,27 +80,27 @@ Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -102,13 +109,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -144,18 +144,20 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings-for-2024/"><u>[New] Achieve Social Stardom Essential Tips for Thriving Instagram Unboxings for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-compare-and-contrast-leading-online-and-desktop-gif-tools/"><u>[Updated] 2024 Approved Compare & Contrast Leading Online & Desktop GIF Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-commanding-youtube-realm-through-strategic-creator-studio-utilization-for-2024/"><u>[Updated] Commanding YouTube Realm Through Strategic Creator Studio Utilization for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-full-spectrum-analysis-understanding-xmedia-suite-workshop-details-for-2024/"><u>[Updated] Full Spectrum Analysis Understanding XMedia Suite Workshop Details for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-harmonizing-vision-and-voice-the-ultimate-guide/"><u>[Updated] In 2024, Harmonizing Vision and Voice The Ultimate Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-syncing-songs-safely-with-insta-rules/"><u>[Updated] Syncing Songs Safely with Insta Rules</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/advanced-streaming-equipment-for-broadcasters/"><u>Advanced Streaming Equipment for Broadcasters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/create-visual-narratives-install-microsofts-movie-maker-on-w11/"><u>Create Visual Narratives Install Microsoft's Movie Maker on W11</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/cultivating-a-brighter-home-with-outdoor-help-for-2024/"><u>Cultivating a Brighter Home with Outdoor Help for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/from-paid-to-free-embracing-the-world-of-fcp-for-2024/"><u>From Paid to Free Embracing the World of FCP for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-picart-technique-for-clean-images/"><u>In 2024, The Ultimate PicArt Technique for Clean Images</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-picks-unmissable-films-for-your-easter-celebration/"><u>Top Picks: Unmissable Films for Your Easter Celebration</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-solutions-how-to-correct-the-yellow-discoloration-on-your-iphone-display/"><u>Top Solutions: How to Correct the Yellow Discoloration on Your iPhone Display</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-blueprint-for-building-a-graphic-design-business/"><u>[New] Blueprint for Building a Graphic Design Business</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-minimca-manorettes-simple-and-sleek-homes-in-mc-world-for-2024/"><u>[New] MiniMCA Manorettes Simple & Sleek Homes in MC World for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-innovative-recording-solutions-top-8-sound-techniques/"><u>[Updated] 2024 Approved Innovative Recording Solutions Top 8 Sound Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-digital-pioneers-handbook-making-a-mark-in-gif-artistry/"><u>[Updated] In 2024, Digital Pioneers' Handbook Making a Mark in GIF Artistry</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-leading-oculus-rift-gaming-titles-of-the-year/"><u>[Updated] In 2024, The Leading Oculus Rift Gaming Titles of the Year</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-safaris-picture-in-picture-on-ios-and-ipad-how-to-use/"><u>[Updated] Safari's Picture-in-Picture on iOS & iPad How to Use</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pushing-boundaries-hps-z32x-4k-revelation/"><u>2024 Approved Pushing Boundaries HP’s Z32X 4K Revelation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/airborne-mass-movers-selecting-the-best-drones/"><u>Airborne Mass Movers Selecting the Best Drones</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-repair-davinci-resolve-failure-to-start-up-on-windows-systems/"><u>How to Repair DaVinci Resolve Failure to Start Up on Windows Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-use-twitter-archive-for-2024/"><u>How to Use Twitter Archive for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-tales-on-the-silver-screen-writing-for-cinema/"><u>In 2024, Tales on the Silver Screen Writing for Cinema</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-tecno-pova-6-pro-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Tecno Pova 6 Pro 5G Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/integrate-sound-and-filter-magic-into-your-windows-10-photos-app/"><u>Integrate Sound & Filter Magic Into Your Windows 10 Photos App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sharpened-focus-on-squares-creating-striking-imovie-content-for-instagram-for-2024/"><u>Sharpened Focus on Squares Creating Striking iMovie Content for Instagram for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/skyline-scenery-mastering-mobile-panoramas-for-2024/"><u>Skyline Scenery Mastering Mobile Panoramas for 2024</u></a></li>
 </ul></div>
 
