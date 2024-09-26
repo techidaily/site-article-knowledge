@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing Audio Masterpieces Using Audacity"
-date: 2024-09-14T16:10:25.499Z
-updated: 2024-09-20T16:03:48.774Z
+date: 2024-09-24T19:34:06.336Z
+updated: 2024-09-26T16:10:49.307Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +113,23 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-easy-access-luxury-free-access-to-your-dreamset-of-50-banners-for-2024/"><u>[Updated] Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-novelty-the-leading-five-new-features-unraveled/"><u>[Updated] In 2024, Facebook's Novelty The Leading Five New Features Unraveled</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-remote-recording-mastery-a-comprehensive-approach/"><u>[Updated] Remote Recording Mastery A Comprehensive Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-tier-mics-for-online-presenters/"><u>[Updated] Top-Tier Mics for Online Presenters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-smartphone-video-recording-assistants/"><u>2024 Approved Best Smartphone Video Recording Assistants</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-birds-eye-view-duel-dji-pro-max-against-gopro-hero6/"><u>2024 Approved Bird's Eye View Duel DJI Pro Max Against GoPro HERO6</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-entry-level-exploration-into-visual-frameworks/"><u>2024 Approved Entry-Level Exploration Into Visual Frameworks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-picart-skills-erasing-unwanted-image-backdrops/"><u>2024 Approved PicArt Skills Erasing Unwanted Image Backdrops</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-strategies-to-alleviate-vr-motion-woes/"><u>2024 Approved Strategies to Alleviate VR Motion Woes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-future-of-tiktok-master-video-trends-and-techniques/"><u>2024 Approved The Future of TikTok - Master Video Trends and Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-imovies-inherent-cropping-rules/"><u>2024 Approved Unveiling iMovie's Inherent Cropping Rules</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-vivo-v30-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-through-your-instagram-post-eye-balls/"><u>Navigating Through Your Instagram Post Eye-Balls</u></a></li>
+<li><a href="https://win-answers.techidaily.com/stop-guilty-gear-strive-from-crashing-on-your-pc-essential-fixes-revealed/"><u>Stop Guilty Gear Strive From Crashing on Your PC - Essential Fixes Revealed!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-depth-effect-on-ios-16-here-are-7-methods-to-get-it-working-again/"><u>Struggling with Depth Effect on iOS 16? Here Are 7 Methods to Get It Working Again</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-to-install-pre-windows-xp-application-packages/"><u>Tips to Install Pre-Windows XP Application Packages</u></a></li>
+</ul></div>
 

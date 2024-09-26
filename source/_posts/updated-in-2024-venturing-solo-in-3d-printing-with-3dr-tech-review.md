@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Venturing Solo in 3D Printing with '3DR' Tech Review"
-date: 2024-09-17T17:06:15.072Z
-updated: 2024-09-20T17:22:00.809Z
+date: 2024-09-19T17:23:14.119Z
+updated: 2024-09-26T16:04:15.117Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/7cdccda0c1b455cde02be352d145a5b4b55f977ca
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/7cdccda0c1b455cde02be352d145a5b4b55f977ca
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -88,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/7cdccda0c1b455cde02be352d145a5b4b55f977ca
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -101,6 +122,13 @@ thumbnail: https://thmb.techidaily.com/7cdccda0c1b455cde02be352d145a5b4b55f977ca
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -125,12 +153,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-excellence-in-text-editing-with-ae-presets/"><u>[New] 2024 Approved Excellence in Text Editing with AE Presets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-vr-content-developers-you-should-know/"><u>[New] 2024 Approved Top VR Content Developers You Should Know</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-saving-gifs-from-twitter-ios-and-android-guide/"><u>[New] Saving GIFs From Twitter IOS & Android Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-marketing-layers-deconstructing-strategys-packaging/"><u>[Updated] 2024 Approved Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-why-the-future-of-videography-is-in-hdrs-arms/"><u>[Updated] 2024 Approved Why the Future of Videography Is in HDR's Arms</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-instant-best-picture-viewer-pro/"><u>[Updated] In 2024, Instant Best Picture Viewer Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-rebooting-your-windows-photo-viewer-two-procedures-for-w10/"><u>[Updated] In 2024, Rebooting Your Windows Photo Viewer Two Procedures for W10</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-prime-video-streamers-camera-picks-for-quality-content-for-2024/"><u>[Updated] Prime Video Streamers' Camera Picks for Quality Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pursuit-of-visual-excellence-10-essential-iphone-composition-techniques-for-2024/"><u>[Updated] Pursuit of Visual Excellence 10 Essential iPhone Composition Techniques for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-conversations-demystified-exploring-the-8-problematic-areas-of-gpt/"><u>AI Conversations Demystified: Exploring the 8 Problematic Areas of GPT</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-prices-and-performance-are-elite-artificebot-prompts-economically-sensible/"><u>Comparing Prices and Performance: Are Elite Artificebot Prompts Economically Sensible?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comprehensive-12-video-live-viewing-platform/"><u>Comprehensive 12-Video Live Viewing Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ensuring-confidentiality-tips-for-securely-utilizing-chatgpt-in-the-office/"><u>Ensuring Confidentiality: Tips for Securely Utilizing ChatGPT in the Office</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-vivo-y02t-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Vivo Y02T Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-how-to-create-a-negative-like-image-look/"><u>In 2024, How to Create a Negative-Like Image Look</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-swiftly-delete-autoplayed-podcast-suggestions-on-spotify/"><u>In 2024, Swiftly Delete Autoplayed Podcast Suggestions on Spotify</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-transforming-yi-4k-capture-with-ideal-adjuncts/"><u>In 2024, Transforming YI 4K Capture with Ideal Adjuncts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/solving-youtube-music-download-problems-top-7-effective-solutions/"><u>Solving YouTube Music Download Problems: Top 7 Effective Solutions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-get-ready-to-download-best-public-domain-video-websites/"><u>Updated In 2024, Get Ready to Download Best Public Domain Video Websites</u></a></li>
+</ul></div>
 
