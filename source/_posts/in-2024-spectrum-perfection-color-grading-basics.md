@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Spectrum Perfection  Color Grading Basics\""
-date: 2024-09-13T16:41:49.904Z
-updated: 2024-09-20T16:17:43.121Z
+date: 2024-09-30T21:30:41.134Z
+updated: 2024-10-01T18:24:04.213Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Color grading and color correction are processes that happen throughout postprod
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why is Color Grading Important?
 
 **Color grading establish a picture's first impression**
@@ -74,6 +81,13 @@ Then select the New Project to create a new project file and click Import to fin
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
@@ -109,6 +123,13 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
@@ -122,6 +143,13 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Using the Color Panel Window**
 
@@ -201,12 +229,24 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-cosmetics-insights/"><u>[New] 2024 Approved Cutting-Edge Cosmetics Insights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unearthing-the-best-storytelling-channels-yearly-roundup/"><u>[New] 2024 Approved Unearthing the Best Storytelling Channels Yearly Roundup</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expedite-channel-growth-surpass-the-10k-view-threshold-now/"><u>[New] Expedite Channel Growth Surpass the 10K View Threshold Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-creating-radial-shadows-in-your-photoshop-projects/"><u>[New] In 2024, Creating Radial Shadows in Your Photoshop Projects</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-cross-platform-movie-recording-pc-mac-and-mobile/"><u>[New] In 2024, Cross-Platform Movie Recording PC, Mac & Mobile</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-implementing-azure-transcript-api-in-software/"><u>[New] In 2024, Implementing Azure Transcript API in Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-transitioning-timeless-images-a-tech-savvy-approach-for-2024/"><u>[New] Transitioning Timeless Images A Tech-Savvy Approach for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-crafting-success-steps-to-thriving-as-a-designer/"><u>[Updated] Crafting Success Steps to Thriving as a Designer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-asmr-and-you-understanding-its-healing-power/"><u>[Updated] In 2024, ASMR and You Understanding Its Healing Power</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-find-x7-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo Find X7 Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-audio-techniques-capturing-clear-sound/"><u>Essential Audio Techniques Capturing Clear Sound</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-redmi-a2-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi Redmi A2 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-realme-12-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Realme 12 5G?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-ultimate-gopro-studio-steps-for-time-lapse-magic/"><u>In 2024, Ultimate GoPro Studio Steps for Time Lapse Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/metaverse-vs-multi-meva-understanding-their-core-differences/"><u>Metaverse Vs. Multi-Meva Understanding Their Core Differences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-definitive-guide-to-superior-hdr-photography-gear-for-2024/"><u>The Definitive Guide to Superior HDR Photography Gear for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-step-by-step-analysis-of-substitutes-for-apowersofts-audio-recorder/"><u>Updated In 2024, Step-by-Step Analysis of Substitutes for Apowersofts Audio Recorder</u></a></li>
+</ul></div>
 

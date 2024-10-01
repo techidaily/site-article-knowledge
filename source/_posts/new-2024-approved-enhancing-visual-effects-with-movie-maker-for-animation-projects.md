@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enhancing Visual Effects with Movie Maker for Animation Projects\""
-date: 2024-09-20T19:30:53.507Z
-updated: 2024-09-26T19:03:52.586Z
+date: 2024-09-25T16:32:35.158Z
+updated: 2024-10-01T22:26:03.491Z
 tags: 
   - screen-recording
   - ai video
@@ -66,10 +66,10 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
@@ -118,6 +118,13 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
@@ -130,13 +137,6 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
@@ -144,16 +144,17 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
@@ -181,13 +182,6 @@ Filmora helps you create your text animation using the controller window as seen
 ##### Step4Export the Project
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
 
@@ -227,22 +221,15 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-securing-success-in-win11-conferences-via-zoom/"><u>[New] 2024 Approved Securing Success in Win11 Conferences via Zoom</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-brand-trust-through-video-praise-for-2024/"><u>[New] Brand Trust Through Video Praise for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-funimate-unraveled-your-path-to-mastery-for-2024/"><u>[New] Funimate Unraveled Your Path to Mastery for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-adding-snap-camera-to-teams-chats/"><u>[New] In 2024, Step-by-Step Adding Snap Camera to Teams Chats</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-reinstating-legacy-windows-photo-viewer-feature-for-w10/"><u>[New] Reinstating Legacy Windows Photo Viewer Feature for W10</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-synopsis-of-vllo-consumer-voices-for-2024/"><u>[New] Synopsis of VLLO Consumer Voices for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-filming-and-editing-on-the-go-with-a-phone/"><u>[New] Unleash Creativity Filming & Editing on the Go with a Phone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-horizon-proworks-complete-4k-integrated-solution/"><u>[Updated] Horizon ProWorks Complete 4K Integrated Solution</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-seamless-integration-iphone-video-editing-guide-for-2024/"><u>[Updated] Seamless Integration IPhone Video Editing Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-synchronizing-airwaves-for-audience-gain/"><u>[Updated] Synchronizing Airwaves for Audience Gain</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/5-solutions-for-infinix-note-30i-unlock-without-password-by-drfone-android/"><u>5 Solutions For Infinix Note 30i Unlock Without Password</u></a></li>
-<li><a href="https://win-forum.techidaily.com/easy-methods-for-downgrading-from-recent-windows-11-improvements/"><u>Easy Methods for Downgrading From Recent Windows 11 Improvements</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-copy-a-cd-onto-your-pc-step-by-step-guide-for-windows-11-10-8-and-7/"><u>How to Copy a CD Onto Your PC: Step-by-Step Guide for Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fishing-footage-kings-select-the-best-camers/"><u>In 2024, Fishing Footage Kings Select the Best Camers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-samsung-galaxy-s23-tactical-edition-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Samsung Galaxy S23 Tactical Edition Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-high-performance-systems-with-toms-hardware-tips/"><u>Navigating High-Performance Systems with Tom's Hardware Tips</u></a></li>
-<li><a href="https://win11.techidaily.com/premium-temperature-trackers-on-win-os/"><u>Premium Temperature Trackers on Win OS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-intersecting-experiences-dissecting-vr-augmented-and-mixed-reality/"><u>[New] 2024 Approved Intersecting Experiences Dissecting VR, Augmented & Mixed Reality</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-capture-clash-challenge-obs-meets-shadowgl-for-2024/"><u>[New] Capture Clash Challenge OBS Meets ShadowGL for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-full-guide-to-google-docs-speech-to-text-service/"><u>[New] Full Guide to Google Docs Speech to Text Service</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits/"><u>[New] In 2024, The Perfect Frame A Guide to Polishing Videos with Instagram Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-seeking-optimal-video-player-vlc-meets-mx/"><u>[Updated] Seeking Optimal Video Player VLC Meets MX</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/bring-life-and-movement-to-stills-with-illustrator-techniques/"><u>Bring Life & Movement to Stills with Illustrator Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/hazy-endings-how-to-black-out-with-pro/"><u>Hazy Endings How to Black Out with Pro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-google-pixel-8-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Google Pixel 8</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-5-affordable-pinterest-video-downloaders-unveiled/"><u>Top 5 Affordable, Pinterest Video Downloaders Unveiled</u></a></li>
 </ul></div>
 

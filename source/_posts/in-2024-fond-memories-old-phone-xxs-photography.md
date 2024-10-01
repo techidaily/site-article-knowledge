@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Fond Memories  Old Phone Xx's Photography\""
-date: 2024-09-25T16:38:23.469Z
-updated: 2024-09-26T19:31:41.758Z
+date: 2024-09-24T19:33:56.817Z
+updated: 2024-10-01T19:39:30.655Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,6 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -58,10 +51,10 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: 9to5mac
@@ -80,6 +73,13 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 8, 7 or older iPhones users
 
 #### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
@@ -89,13 +89,6 @@ If there is not enough light or if you are too far away from the camera, the app
 **Compatible with:** iOS 8.0 or later
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
@@ -108,16 +101,10 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
@@ -139,6 +126,13 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 **Compatible with:** iOS 8.0 or later
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -169,20 +163,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-fabricate-personalized-viral-memes-for-2024/"><u>[New] Fabricate Personalized Viral Memes for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-elevate-creativity-with-pro-editor-secrets-for-canva/"><u>[New] In 2024, Elevate Creativity with Pro Editor Secrets for Canva</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fast-track-to-flawless-podcast-live/"><u>[New] In 2024, Fast Track to Flawless Podcast Live</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-gopro-vs-yi-who-will-lead-the-high-quality-action-race/"><u>[New] In 2024, GoPro Vs. YI Who Will Lead the High-Quality Action Race?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-broadcasting-best-practices-twitch-facebook-integration/"><u>[Updated] 2024 Approved Broadcasting Best Practices Twitch-Facebook Integration</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-earning-equation-finns-financial-frequency/"><u>[Updated] Earning Equation Finn's Financial Frequency</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/barnes-and-noble-nook-glowlight-3-review-a-great-nighttime-e-reader/"><u>Barnes & Noble Nook GlowLight 3 Review: A Great Nighttime E-Reader</u></a></li>
-<li><a href="https://fox-that.techidaily.com/comprehensive-tips-for-restoring-iphone-proximity-functionality-common-fixes-explored/"><u>Comprehensive Tips for Restoring iPhone Proximity Functionality: Common Fixes Explored</u></a></li>
-<li><a href="https://app-tips.techidaily.com/elevate-to-elite-a-comprehensive-tutorial-on-switching-from-windows-home-to-the-power-of-pro-version/"><u>Elevate to Elite: A Comprehensive Tutorial on Switching From Windows Home to the Power of Pro Version</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-price-scale-for-shooting-tunes-in-visual-narratives/"><u>In 2024, Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-intel-graphics-card-and-network-drivers-for-windows-systems/"><u>Latest Intel Graphics Card and Network Drivers for Windows Systems</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-mastering-animation-top-software-recommendations-for-mac-and-windows-for-2024/"><u>New Mastering Animation Top Software Recommendations for Mac and Windows for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/pro-camera-professional-shots-fixing-shaky-gopro-recording-for-2024/"><u>Pro Camera, Professional Shots Fixing Shaky GoPro Recording for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/realtek-rtl8188cu-wireless-card-driver-update-enhanced-performance-for-windows-710-download-now/"><u>Realtek RTL8188CU Wireless Card Driver Update: Enhanced Performance for Windows 7/10 – Download Now!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-secret-pathway-to-premium-pristine-pictures/"><u>The Secret Pathway to Premium, Pristine Pictures</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-from-concept-to-measurement-configuring-and-assessing-facebooks-in-stream-ads/"><u>[New] In 2024, From Concept to Measurement Configuring and Assessing Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-luts-revolutionize-color-balance-in-images-for-2024/"><u>[Updated] How LUTs Revolutionize Color Balance in Images for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-complete-checklist-for-remotely-podcasters-delight-for-2024/"><u>[Updated] The Complete Checklist for Remotely Podcaster's Delight for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cognitive-conclave-selective-general-knowledge-channels/"><u>2024 Approved Cognitive Conclave Selective General Knowledge Channels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-enabling-creativity-with-free-online-and-offline-animation-methods/"><u>2024 Approved Enabling Creativity with Free Online & Offline Animation Methods</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-optimal-selection-top-cost-effective-iosandroid-live-streamers/"><u>2024 Approved Optimal Selection Top Cost-Effective iOS/Android Live Streamers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-8-iphonecomputer-apps-for-seamless-video-editing/"><u>2024 Approved Top 8 iPhone/Computer Apps for Seamless Video Editing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-twitch-time-jump-recapturing-lost-moments/"><u>2024 Approved Twitch Time Jump Recapturing Lost Moments</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-a23-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy A23 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/make-windows-11-work-better-with-a-simple-update/"><u>Make Windows 11 Work Better with a Simple Update</u></a></li>
+<li><a href="https://app-tips.techidaily.com/stay-secure-and-connected-top-11-mobile-apps-for-hands-free-text-reading/"><u>Stay Secure and Connected: Top 11 Mobile Apps for Hands-Free Text Reading</u></a></li>
 </ul></div>
 

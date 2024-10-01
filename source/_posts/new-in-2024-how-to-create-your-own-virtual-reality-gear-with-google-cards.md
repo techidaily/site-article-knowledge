@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Create Your Own Virtual Reality Gear with Google Cards"
-date: 2024-09-19T17:33:45.262Z
-updated: 2024-09-26T18:35:39.071Z
+date: 2024-09-27T17:19:51.213Z
+updated: 2024-10-01T20:47:45.187Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,10 @@ thumbnail: https://thmb.techidaily.com/56e1f89334f10f1cb05f14f5231043c0f4d7f09cc
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -65,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/56e1f89334f10f1cb05f14f5231043c0f4d7f09cc
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -84,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/56e1f89334f10f1cb05f14f5231043c0f4d7f09cc
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -110,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/56e1f89334f10f1cb05f14f5231043c0f4d7f09cc
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -141,19 +135,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-eliminating-windows-11-photo-app-malfunctions/"><u>[New] 2024 Approved Eliminating Windows 11 Photo App Malfunctions</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-gameplay-gimmicks-voice-variations-in-free-fire-for-2024/"><u>[New] Gameplay Gimmicks Voice Variations in Free Fire for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-10-photo-grid-apps-to-make-your-pictures-stand-out/"><u>[New] In 2024, Top 10 Photo Grid Apps to Make Your Pictures Stand Out</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-guide-to-controlling-playback-rate-on-snapchat-for-2024/"><u>[New] The Ultimate Guide to Controlling Playback Rate on Snapchat for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-chat-game-whatsapps-best-kept-secrets/"><u>[Updated] Elevate Your Chat Game WhatsApp's Best-Kept Secrets</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-preserve-your-legacy-transforming-older-images-into-modern-videos/"><u>[Updated] Preserve Your Legacy Transforming Older Images Into Modern Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-leading-photo-backdrop-alternatives-list/"><u>2024 Approved Leading Photo Backdrop Alternatives List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/customizing-your-pixels-melodic-identity/"><u>Customizing Your Pixel's Melodic Identity</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-realme-12plus-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-honor-x9b-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Honor X9b Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-supercharge-your-channel-optimal-release-dates/"><u>In 2024, Supercharge Your Channel Optimal Release Dates</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-honor-magic-v2s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Honor Magic V2s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-motorola-moto-g04-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Motorola Moto G04 Location | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/xspfmp4/"><u>XSPFファイルからMP4への変換方法 - 解決策とトラブルシューティング</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-superior-select-ringtone-makers-guidebook/"><u>[New] 2024 Approved Superior Select Ringtone Makers' Guidebook</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-essential-guide-to-earnings-monetizing-content-on-vimeo/"><u>[New] 2024 Approved The Essential Guide to Earnings Monetizing Content on Vimeo</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-advanced-techniques-in-xbox-gaming-recording-setup/"><u>[New] In 2024, Advanced Techniques in Xbox Gaming Recording Setup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-instantaneous-viewership-metering/"><u>[New] In 2024, Instantaneous Viewership Metering</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exploring-asmr-uncover-its-pros-today-for-2024/"><u>[Updated] Exploring ASMR Uncover Its Pros Today for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-a-comprehensive-review-of-the-hp-envy-27s-4k-tech/"><u>2024 Approved A Comprehensive Review of the HP Envy 27'S 4K Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-decoding-dynamic-range-with-an-insight-into-luminance/"><u>2024 Approved Decoding Dynamic Range with an Insight Into Luminance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discover-15-stellar-action-cams-replacing-gopro/"><u>2024 Approved Discover 15 Stellar Action Cams Replacing GoPro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-elite-chuckle-enhancer-tool/"><u>2024 Approved Elite Chuckle Enhancer Tool</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-gentle-volume-reduction-methods-in-ableton-live/"><u>2024 Approved Gentle Volume Reduction Methods in Ableton Live</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-productivity-with-auditory-storytelling/"><u>2024 Approved Maximizing Productivity with Auditory Storytelling</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimal-solutions-transforming-images-into-videos/"><u>2024 Approved Optimal Solutions Transforming Images Into Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-places-for-free-text-visual-enhancements/"><u>2024 Approved Top Places for Free Text Visual Enhancements</u></a></li>
+<li><a href="https://games-able.techidaily.com/choosing-between-founder-series-and-asus-vega-graphics-cards/"><u>Choosing Between Founder Series and ASUS Vega Graphics Cards</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/maximizing-chatgpt-functionality-via-plugin-addition/"><u>Maximizing ChatGPT Functionality via Plugin Addition</u></a></li>
 </ul></div>
 

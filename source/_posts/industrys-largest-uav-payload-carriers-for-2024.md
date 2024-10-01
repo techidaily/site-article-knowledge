@@ -1,7 +1,7 @@
 ---
 title: "Industry's Largest UAV Payload Carriers for 2024"
-date: 2024-09-19T16:56:59.213Z
-updated: 2024-09-20T17:02:12.937Z
+date: 2024-09-25T22:08:07.520Z
+updated: 2024-10-01T16:36:37.333Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -101,6 +108,13 @@ The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with th
 
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
@@ -127,11 +141,25 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -156,12 +184,23 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-childhood-wings-5-best-drone-companions-for-2024/"><u>[New] Childhood Wings 5 Best Drone Companions for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-chinas-value-driven-virtual-reality-marketplace/"><u>[New] In 2024, China's Value-Driven Virtual Reality Marketplace</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-delving-into-the-world-of-hdr-tv-lg-27ud88-uhd/"><u>[New] In 2024, Delving Into the World of HDR TV - LG 27UD88-UHD</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leading-graphics-for-high-res-media-creation/"><u>[New] Leading Graphics for High Res Media Creation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-iphone-and-android-sharp-portraits-soft-backdrops/"><u>[Updated] 2024 Approved IPhone & Android Sharp Portraits, Soft Backdrops</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-building-a-stylish-tiktok-closing-credits-bar/"><u>[Updated] Building A Stylish TikTok Closing Credits Bar</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-delving-into-t-series-revenue-generation-on-video-platforms-for-2024/"><u>[Updated] Delving Into T-Series' Revenue Generation on Video Platforms for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-virtual-voyages-exploring-new-genre/"><u>[Updated] In 2024, Virtual Voyages Exploring New Genre</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>[Updated] In 2024, YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-pro-tips-to-elevate-your-headline-game-for-2024/"><u>[Updated] Pro Tips to Elevate Your Headline Game for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-a-streamlined-approach-simplifying-film-projects-with-movie-maker/"><u>2024 Approved A Streamlined Approach Simplifying Film Projects with Movie Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-crafting-captivating-cinematic-experiences-in-youtube-videos/"><u>2024 Approved Crafting Captivating Cinematic Experiences in YouTube Videos</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-setup-guide-canon-dr-c225-drivers-for-windows-10-8-and-latest-version/"><u>Download & Setup Guide: Canon DR-C225 Drivers for Windows 10, 8 & Latest Version</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Plus without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-nubia-red-magic-8s-proplus-by-drfone-android/"><u>How to Show Wi-Fi Password on Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-itel-a05s-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Itel A05s Lock Screen Password</u></a></li>
+</ul></div>
 

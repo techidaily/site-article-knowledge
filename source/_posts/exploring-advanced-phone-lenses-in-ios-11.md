@@ -1,7 +1,7 @@
 ---
 title: "Exploring Advanced Phone Lenses in iOS 11"
-date: 2024-09-23T19:24:36.836Z
-updated: 2024-09-26T16:31:31.433Z
+date: 2024-09-26T20:29:44.916Z
+updated: 2024-10-01T22:16:03.842Z
 tags: 
   - screen-recording
   - ai video
@@ -108,16 +108,10 @@ thumbnail: https://thmb.techidaily.com/41df33583a82ea2d9923ca08fb1de828ddad2dc59
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Post Production Software for iPhone photography
@@ -127,19 +121,19 @@ thumbnail: https://thmb.techidaily.com/41df33583a82ea2d9923ca08fb1de828ddad2dc59
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,18 +161,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-performance-in-your-palm-sonys-4k-smartphone/"><u>[New] 2024 Approved Cutting Edge Performance in Your Palm Sony's 4K Smartphone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prime-selection-8-best-free-mobile-mp3-downloaders/"><u>[New] In 2024, Prime Selection - 8 Best Free Mobile MP3 Downloaders</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-mastering-slow-motion-capture-with-android-a-beginners-guide-for-2024/"><u>[New] Mastering Slow-Motion Capture with Android A Beginner's Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-decoding-excellence-a-hdr-camera-buyers-almanac-for-2024/"><u>[Updated] Decoding Excellence A HDR Camera Buyer's Almanac for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-magix-vpx-a-comprehensive-analysis/"><u>[Updated] In 2024, Unveiling Magix VPX A Comprehensive Analysis</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unraveling-youtube-subtitles-srt-a-triad-of-steps/"><u>[Updated] Unraveling YouTube Subtitles (SRT) A Triad of Steps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-best-gamers-audio-selection-guide/"><u>2024 Approved YouTube's Best Gamers' Audio Selection Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-10-free-jpg-to-gif-conversion-tools/"><u>Best 10 Free JPG to GIF Conversion Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/perfect-dvd-to-android-transformation-the-ultimate-media-conversion-tool/"><u>Perfect DVD to Android Transformation: The Ultimate Media Conversion Tool</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pixels-of-peaceful-bedtime-narratives/"><u>Pixels of Peaceful Bedtime Narratives</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-illustrator-way-adding-realistic-blur-to-your-pics/"><u>The Illustrator Way Adding Realistic Blur to Your Pics</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-new-dawn-of-creativity-spotlight-on-six-visionary-nftos-for-2024/"><u>The New Dawn of Creativity Spotlight on Six Visionary NFTOs for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-transform-your-photographic-vision-with-iphone-burst-shooting/"><u>[New] 2024 Approved Transform Your Photographic Vision with iPhone Burst Shooting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unraveling-windows-10-complexities-simplified/"><u>[New] In 2024, Unraveling Windows 10 Complexities Simplified</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-checklist-for-using-firefoxs-popup-window/"><u>[New] The Ultimate Checklist for Using Firefox's Popup Window</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-upgrading-your-tiktok-presence-mastering-number-adjustments/"><u>[New] Upgrading Your TikTok Presence Mastering Number Adjustments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-detailed-depth-ranking-10-smartphones-with-superior-4k-camera-capabilities/"><u>[Updated] Detailed Depth Ranking 10 Smartphones with Superior 4K Camera Capabilities</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-dreams-on-screen-the-best-motivational-movies-for-2024/"><u>Crafting Dreams on Screen The Best Motivational Movies for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro To Other iPhone 15 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/rethinking-car-interfaces-why-automakers-should-drop-excessive-touch-screens/"><u>Rethinking Car Interfaces: Why Automakers Should Drop Excessive Touch Screens</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unmatched-mobileweb-image-magnification-toolkit-for-2024/"><u>Unmatched Mobile/Web Image Magnification Toolkit for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-samsung-galaxy-s23-tactical-edition-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Samsung Galaxy S23 Tactical Edition? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

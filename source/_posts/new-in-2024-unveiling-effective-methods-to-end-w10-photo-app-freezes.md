@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unveiling Effective Methods to End W10 Photo App Freezes"
-date: 2024-09-21T17:29:49.321Z
-updated: 2024-09-26T16:48:35.006Z
+date: 2024-09-30T18:35:59.205Z
+updated: 2024-10-01T17:05:51.474Z
 tags: 
   - screen-recording
   - ai video
@@ -58,13 +58,6 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
@@ -78,6 +71,13 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -102,6 +102,13 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -114,10 +121,10 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,20 +134,13 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -167,19 +167,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-from-novice-to-pro-creating-snapchat-boomers/"><u>[New] 2024 Approved From Novice to Pro Creating Snapchat Boomers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-pro-audios-essential-guide-to-top-10-free-luts-for-2024/"><u>[New] Pro Audio's Essential Guide to Top 10 Free LUTs for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-subtitles-that-shine-discover-the-best-free-online-tools/"><u>[New] Subtitles That Shine - Discover the Best Free Online Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-voice-over-advantage-elevating-video-quality-for-2024/"><u>[New] The Voice-Over Advantage Elevating Video Quality for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-exploring-5-engaging-book-promo-videos/"><u>[Updated] In 2024, Exploring 5 Engaging Book Promo Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-user-insights-in-youtube-comments-for-2024/"><u>Deciphering User Insights in YouTube Comments for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-nubia-red-magic-8s-proplus-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Nubia Red Magic 8S Pro+ to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-metaviews-analyzing-6-in-depth-metaverse-scenarios/"><u>In 2024, Metaviews Analyzing 6 In-Depth Metaverse Scenarios</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-unveiling-the-top-8-instagram-ae-design-choices/"><u>In 2024, Unveiling the Top 8 Instagram AE Design Choices</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-digital-creation-complete-guide-to-picsart/"><u>Mastering Digital Creation Complete Guide to PicsArt</u></a></li>
-<li><a href="https://windows11.techidaily.com/precision-in-picture-editing-eliminating-backgrounds-effectively/"><u>Precision in Picture Editing: Eliminating Backgrounds Effectively</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/stop-mpengineexe-from-hogging-your-cpu-resources-a-winning-strategy-for-windows-11-users/"><u>Stop MPengine.exe From Hogging Your CPU Resources: A Winning Strategy for Windows 11 Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/understanding-youtube-revenue-models-today/"><u>Understanding YouTube Revenue Models Today</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-clear-up-your-zoom-audio-flawlessly/"><u>[New] Clear Up Your Zoom Audio Flawlessly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-for-blurring-and-excising-picture-borders/"><u>[New] Techniques for Blurring and Excising Picture Borders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-budget-friendly-hd-video-capturing-for-home-studios/"><u>[Updated] 2024 Approved Budget-Friendly HD Video Capturing for Home Studios</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/10-best-webcams-to-enhance-your-podcast-experience-for-2024/"><u>10 Best Webcams to Enhance Your Podcast Experience for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-2023s-top-rated-vr-game-engines-exposed/"><u>2024 Approved 2023'S Top-Rated VR Game Engines Exposed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-9-uncharted-upscales-for-vivid-visuals/"><u>2024 Approved 9 Uncharted Upscales for Vivid Visuals</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-astrological-flair-in-digital-self-portrayals-on-whatsapp/"><u>2024 Approved Astrological Flair in Digital Self-Portrayals on WhatsApp</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-compreenasive-look-the-new-era-of-vr-cams-by-samsung/"><u>2024 Approved Compreenasive Look The New Era of VR Cams by Samsung</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discovering-the-perfect-shape-tailoring-aspect-ratios-in-videos/"><u>2024 Approved Discovering the Perfect Shape Tailoring Aspect Ratios in Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-from-hd-to-hyper-hd-the-eizo-monitor-revolution-with-cg318-4k/"><u>2024 Approved From HD to Hyper HD The EIZO Monitor Revolution with CG318-4K</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-innovative-vocal-alteration-apps-beyond-echo-magic/"><u>2024 Approved Innovative Vocal Alteration Apps Beyond Echo Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-step-into-tomorrow-secure-these-7-devices-for-metaverse-life/"><u>2024 Approved Step Into Tomorrow Secure These 7 Devices for Metaverse Life</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-step-by-step-guide-to-deepening-digital-conversations/"><u>2024 Approved Step-by-Step Guide to Deepening Digital Conversations</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-honor-100-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722965137835-behringer-usb-audio-adapter-installation-step-by-step-tutorial-available-here/"><u>Behringer USB Audio Adapter Installation - Step-by-Step Tutorial Available Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-analysis-the-future-in-sound-with-sony-wh-1000xm4/"><u>Detailed Analysis: The Future in Sound with Sony WH-1000XM4</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-oppo-a58-4g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Oppo A58 4G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-nokia-g22-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Nokia G22</u></a></li>
+<li><a href="https://games-able.techidaily.com/mega-responsive-gaming-screen-innocn-39g1-r/"><u>Mega Responsive Gaming Screen: InnoCN 39G1 R</u></a></li>
 </ul></div>
 

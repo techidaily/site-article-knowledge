@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Mac's Preview App  An In-Depth Tutorial for Users\""
-date: 2024-09-20T19:25:47.213Z
-updated: 2024-09-26T17:40:18.416Z
+date: 2024-09-25T21:40:15.137Z
+updated: 2024-10-01T19:20:23.130Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -54,6 +61,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -85,19 +99,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -109,13 +110,6 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -134,10 +128,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -172,13 +166,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -190,6 +177,13 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -250,20 +244,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-a-comprehensive-examination-of-lg-27ud68-display-tech/"><u>[New] 2024 Approved A Comprehensive Examination of LG 27UD68 Display Tech</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-funnygenius-create-and-share-memes-for-2024/"><u>[New] FunnyGenius Create and Share Memes for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2023s-leading-pc-vr-headsets-revealed/"><u>[Updated] 2023'S Leading PC VR Headsets Revealed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-incremental-movie-moment/"><u>[Updated] 2024 Approved Incremental Movie Moment</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-uniting-single-scenes-iphone-multi-media-magic/"><u>[Updated] Uniting Single Scenes IPhone Multi-Media Magic</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-it-sony-xperia-1-v-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Sony Xperia 1 V Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-action-cam-faceoff-the-best-of-both-worlds-hero5-black-and-hero4-silver/"><u>In 2024, Action Cam Faceoff The Best of Both Worlds – Hero5 Black & Hero4 Silver</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo S18e? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-digital-lecture-name-builder/"><u>In 2024, Ultimate Digital Lecture Name Builder</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unlocking-image-potential-the-importance-of-luts/"><u>In 2024, Unlocking Image Potential The Importance of LUTs</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/step-by-step-guide-building-your-own-powerhouse-for-professional-video-editing/"><u>Step-by-Step Guide: Building Your Own Powerhouse for Professional Video Editing</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-the-top-8-timers-for-effective-pomodoro/"><u>The Ultimate Guide to the Top 8 Timers for Effective Pomodoro</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-gamings-top-10-capture-card-recommendations-for-2024/"><u>Video Gaming's Top 10 Capture Card Recommendations for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-blocking-the-buzz-no-more-fb-video-ads-for-2024/"><u>[New] Blocking the Buzz No More FB Video Ads for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-masterful-text-effects-in-adobe-after-effects/"><u>[New] Masterful Text Effects in Adobe After Effects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-drone-motors-choose-the-5-best-motors-for-your-quadcopter/"><u>[Updated] 2024 Approved Drone Motors Choose the 5 Best Motors for Your Quadcopter</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2023s-scarcity-pioneering-vr-content-shortcomings-for-2024/"><u>2023’S Scarcity Pioneering VR Content Shortcomings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-customized-boxes-at-your-fingertips-top-e-commerce-destinations-revealed/"><u>2024 Approved Customized Boxes at Your Fingertips Top E-Commerce Destinations Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-engaging-audiences-the-impact-of-adding-youtube-music-to-videos/"><u>2024 Approved Engaging Audiences The Impact of Adding YouTube Music to Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-harmony-color-calibrator/"><u>2024 Approved Harmony Color Calibrator</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-proven-methods-for-snappy-signature-bg-removal/"><u>2024 Approved Proven Methods for Snappy Signature Bg Removal</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-quip-quarterly-event-oriented-joke-anthology/"><u>2024 Approved Quip Quarterly Event-Oriented Joke Anthology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-reveal-every-detail-the-leading-clear-image-apps/"><u>2024 Approved Reveal Every Detail The Leading Clear Image Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-speak-out-altering-soundtracks-in-ps4ps5-games/"><u>2024 Approved Speak Out Altering Soundtracks in PS4/PS5 Games</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-a15-4g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Samsung Galaxy A15 4G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/navigate-effortlessly-the-best-5-chrome-addons-for-downloading-fb-videos/"><u>Navigate Effortlessly The Best 5 Chrome Addons for Downloading FB Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-rapid-graphics-driver-failures-in-valorant-easy-guide/"><u>Solving Rapid Graphics Driver Failures in Valorant – Easy Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-to-downloading-and-updating-the-driver-for-a-tp-link-bluetooth-adapter-ub400/"><u>Step-by-Step Guide to Downloading and Updating the Driver for a TP-Link Bluetooth Adapter UB400</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-consoles-revolutionizing-gamers-world/"><u>The Premier Consoles Revolutionizing Gamers' World</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Shadows & Highlights for Text Depth in Illustrator"
-date: 2024-09-19T18:14:29.555Z
-updated: 2024-09-26T17:48:07.512Z
+date: 2024-09-28T16:56:34.246Z
+updated: 2024-10-01T22:54:38.004Z
 tags: 
   - screen-recording
   - ai video
@@ -45,50 +45,57 @@ Step2 Click on the **Type tool** and click anywhere on your blank canvas. Then, 
 
 ![type tool illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-type-tool.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now, look at the bottom-right corner of the program. Find the **Font** settings and change your font type and size to anything you want.
 
 ![change font illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-font.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Next, choose any color you want for your text from the panel on the screen's left side. Just remember to click on your text first before you start changing colors.
 
 ![change color](https://images.wondershare.com/filmora/article-images/adobe-illustrator-color.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
 
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step9 Finally, it's time to export the image, and you're all done.
 
@@ -101,13 +108,6 @@ You might not believe it, but there's an even more accessible and less expensive
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
 
@@ -123,22 +123,15 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,6 +151,13 @@ Step1 Download Filmora and run the program. Once it opens, click on **New Projec
 Step2 Head to the **Titles** tab and search for the **“3D Illustration**” title. Then, drag it into the Timeline. You can also find several other 3D titles. If you like another one better, drag that one instead of the one we mentioned here.
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
@@ -195,24 +195,20 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-8-photo-grid-online-makers-to-polish-your-pictures/"><u>[New] 2024 Approved Top 8 Photo Grid Online Makers to Polish Your Pictures</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-high-resolution-revelations-comparing-ultrawide-and-uhd-4k-screens/"><u>[New] High-Resolution Revelations Comparing UltraWide and UHD 4K Screens</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outube-entrepreneurship-building-a-recognizable-brand-for-2024/"><u>[New] YouTube Entrepreneurship Building a Recognizable Brand for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevate-your-mac-broadcast-top-5-live-streaming-applications/"><u>[Updated] Elevate Your Mac Broadcast Top 5 Live Streaming Applications</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-through-the-eyes-of-one-a-critical-look-at-3dr/"><u>[Updated] In 2024, Through the Eyes of One A Critical Look at '3DR'</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/deactivating-latest-os-restoring-to-mac-os-1010/"><u>Deactivating Latest OS Restoring to Mac OS 10.10</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-samsung-galaxy-s23-fe-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Samsung Galaxy S23 FE</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-audience-peak-hours-crafting-release-dates/"><u>In 2024, Audience Peak Hours Crafting Release Dates</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-elevate-your-tiktok-must-know-editing-insights/"><u>In 2024, Elevate Your TikTok Must-Know Editing Insights</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-obs-versus-wirecast-assessing-the-best-for-live-broadcasts/"><u>In 2024, OBS Versus Wirecast Assessing the Best for Live Broadcasts</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-the-newest-epson-gt-s50-driver-for-seamless-compatibility-with-windows-operating-systems-7-8-and-10/"><u>Install the Newest Epson GT S50 Driver for Seamless Compatibility with Windows Operating Systems (7, 8 & 10)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/is-your-iphone-15-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your iPhone 15 in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/navigating-youtubes-subtitle-system-download-with-ease-using-3-methods-for-2024/"><u>Navigating YouTube's Subtitle System Download with Ease Using 3 Methods for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/new-release-download-updated-canon-pixma-ts3322-driver-to-enhance-printing-experience/"><u>New Release: Download Updated Canon PIXMA TS3322 Driver to Enhance Printing Experience</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/skills-required-how-to-gain-free-framed-vids-for-2024/"><u>Skills Required How To Gain Free Framed Vids for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-issue-of-sound-skipping-and-failing-in-windows-11-a-step-by-step-guide/"><u>Solving the Issue of Sound Skipping and Failing in Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/ticklishtones-selecting-the-best-ringtones-for-smiles-for-2024/"><u>TicklishTones Selecting the Best Ringtones for Smiles for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/trasforma-i-tuoi-video-h2-convertire-il-formato-da-h264-a-h265-gratis-e-mantieni-una-qualita-elevata-con-tagli-minimi-delle-dimensioni-del-file/"><u>Trasforma I Tuoi Video H.2# Convertire Il Formato Da H.264 A H.265 Gratis E Mantieni Una Qualità Elevata Con Tagli Minimi Delle Dimensioni Del File</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-use-zoom-for-win11-pc/"><u>[New] 2024 Approved How to Use Zoom for Win11 PC</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-engage-in-windows-11s-dynamic-app-ecosystem/"><u>[New] In 2024, Engage in Windows 11'S Dynamic App Ecosystem</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-25-secrets-for-effective-win10-use/"><u>[New] In 2024, Top 25 Secrets for Effective Win10 Use</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-blueprint-of-writing-appealing-vlog-storylines/"><u>[New] The Blueprint of Writing Appealing Vlog Storylines</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-guide-to-professional-gopro-video-making-for-2024/"><u>[New] The Ultimate Guide to Professional GoPro Video Making for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-a-perfect-playtime-how-to-take-great-xbox-one-shots-for-2024/"><u>[Updated] A Perfect Playtime How to Take Great Xbox One Shots for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-xiaomi-redmi-12-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Xiaomi Redmi 12 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-mastery-in-streams-a-comprehensive-review/"><u>Earning Mastery in Streams A Comprehensive Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-insights-into-spanish-verb-conjugations/"><u>Essential Insights Into Spanish Verb Conjugations</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-missing-touch-hid-compliance-achieved/"><u>Fixing the Missing Touch - HID Compliance Achieved</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-iphone-14-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From iPhone 14</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-must-see-upgrades-in-vr-armor/"><u>In 2024, Must-See Upgrades in VR Armor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-premium-pick-ios-sound-artisans-guidebook/"><u>In 2024, Premium Pick IOS Sound Artisans Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/phone-simplicity-meets-online-impact-making-videos-easy-for-2024/"><u>Smartphone Simplicity Meets Online Impact Making Videos Easy for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/solving-the-problem-of-non-responsive-amd-radeon-application/"><u>Solving the Problem of Non-Responsive AMD Radeon Application</u></a></li>
 </ul></div>
 
