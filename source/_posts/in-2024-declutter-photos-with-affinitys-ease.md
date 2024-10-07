@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Declutter Photos with Affinity's Ease"
-date: 2024-09-09T02:51:33.447Z
-updated: 2024-09-14T22:52:18.046Z
+date: 2024-10-02T05:54:16.190Z
+updated: 2024-10-06T18:18:39.603Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
 Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, and use the Selection Brush tool to manually correct the rough edges of your outline.
@@ -52,9 +59,23 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -84,6 +105,13 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -119,13 +147,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -151,16 +172,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -195,5 +210,21 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-guide-to-forming-powerful-content-partnerships-on-youtube/"><u>[New] 2024 Approved Essential Guide to Forming Powerful Content Partnerships on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-marketing-layers-deconstructing-strategys-packaging/"><u>[Updated] 2024 Approved Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-quick-convert-srt-files-to-text-a-step-by-step-manual/"><u>[Updated] In 2024, Quick-Convert SRT Files to Text A Step-by-Step Manual</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-rebooting-your-windows-photo-viewer-two-procedures-for-w10/"><u>[Updated] In 2024, Rebooting Your Windows Photo Viewer Two Procedures for W10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-a-flash-streamlined-techniques-for-cutting-images-online/"><u>[Updated] In a Flash Streamlined Techniques for Cutting Images Online</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/clearing-up-security-issues-a-comprehensive-guide-to-fixing-401-errors-online/"><u>Clearing Up Security Issues: A Comprehensive Guide to Fixing 401 Errors Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comprehensive-12-video-live-viewing-platform/"><u>Comprehensive 12-Video Live Viewing Platform</u></a></li>
+<li><a href="https://win-able.techidaily.com/conquer-the-flash-o-vision-problem-strategies-for-resolving-pixel-dance-anomalies/"><u>Conquer the Flash-O-Vision Problem: Strategies for Resolving Pixel Dance Anomalies</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/detailed-analysis-of-the-value-packed-40-hisense-40h5590f-the-ideal-choice-for-savvy-shoppers/"><u>Detailed Analysis of the Value-Packed 40 Hisense 40H5590F - The Ideal Choice for Savvy Shoppers</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-persistent-delays-resolving-keyboard-slowdowns-on-windows-11/"><u>Fixing Persistent Delays: Resolving Keyboard Slowdowns on Windows 11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-samsung-galaxy-a54-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Samsung Galaxy A54 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-transforming-yi-4k-capture-with-ideal-adjuncts/"><u>In 2024, Transforming YI 4K Capture with Ideal Adjuncts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transform-mp4-files-into-swf-format-instantly-with-movavis-free-online-tool/"><u>Transform MP4 Files Into SWF Format Instantly with Movavi's Free Online Tool</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transformative-techniques-for-capturing-on-iphone/"><u>Transformative Techniques for Capturing on iPhone</u></a></li>
+</ul></div>
 

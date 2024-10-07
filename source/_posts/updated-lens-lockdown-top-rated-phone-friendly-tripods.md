@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Lens Lockdown  Top-Rated Phone-Friendly Tripods\""
-date: 2024-09-10T22:55:42.065Z
-updated: 2024-09-14T23:45:14.526Z
+date: 2024-10-04T02:10:56.209Z
+updated: 2024-10-07T00:36:12.521Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 ![ gorillapod](https://images.wondershare.com/filmora/article-images/gorillapod.jpg
 )
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## [Square Jellyfish Metal Spring Tripod:](https://www.amazon.com/Square-Jellyfish-Spring-Version-Included/dp/B00NXRUYOE/ref=sr%5F1%5F1?s=electronics&ie=UTF8&qid=1495787803&sr=1-1&keywords=Square+Jellyfish+Metal+Spring+Tripod)
 
  This tripod mount can serve you for multiple applications; it can be used to capture stills, videos, to play audios and even like a desk stand. People love to use this mount with their phablet and smartphone devices.
@@ -60,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 
 ![jellyfish-metal-spring-tripod ](https://images.wondershare.com/filmora/article-images/jellyfish-metal-spring-tripod.jpg
 )
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## [Manfrotto Pixi Mini](https://www.amazon.com/Manfrotto-MTPIXI-B-PIXI-Tripod-Black/dp/B00D76RNLS/ref=sr%5F1%5F1?s=electronics&ie=UTF8&qid=1495787893&sr=1-1&keywords=Manfrotto+Pixi+Mini)
 
@@ -77,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 )
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Full-Size Camera Tripods
@@ -109,10 +123,10 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -138,5 +152,20 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prioritizing-elements-what-to-consider-with-a-new-4k-camera-lens/"><u>[New] 2024 Approved Prioritizing Elements What to Consider with a New 4K Camera Lens</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-accurate-age-reporting-tips-for-perfecting-your-tiktok-profile/"><u>[New] Accurate Age Reporting Tips for Perfecting Your TikTok Profile</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-deciphering-modern-gesture-control-mechanisms/"><u>[New] In 2024, Deciphering Modern Gesture Control Mechanisms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-creativity-making-striking-slideshows-for-fb-friends/"><u>[New] In 2024, Unveiling Creativity Making Striking SlideShows for FB Friends</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leading-blu-ray-players-the-ultimate-list-for-24/"><u>[New] Leading Blu-Ray Players The Ultimate List for '24</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-impact-of-music-on-a-trailers-emotional-pull-for-2024/"><u>[New] The Impact of Music on a Trailer's Emotional Pull for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-inside-the-world-of-digital-screen-recording/"><u>[Updated] In 2024, Inside the World of Digital Screen Recording</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-simplify-your-collaboration-with-easy-steps-to-use-a-virtual-board-on-all-zoom-devices/"><u>[Updated] In 2024, Simplify Your Collaboration with Easy Steps to Use a Virtual Board on All Zoom Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-superior-card-selection-for-4k-edit-workstations-for-2024/"><u>[Updated] Superior Card Selection for 4K Edit Workstations for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-room-and-pc-checklist-for-vr/"><u>[Updated] The Ultimate Room and PC Checklist for VR</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-awaitingnewagecameratechnologies/"><u>2024 Approved AwaitingNewAgeCameraTechnologies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-essential-5-apps-to-download-social-media-video-clips/"><u>2024 Approved Essential 5 Apps to Download Social Media Video Clips</u></a></li>
+<li><a href="https://win11.techidaily.com/from-batch-to-exe-windows-file-conversion/"><u>From Batch to EXE: Windows File Conversion</u></a></li>
+</ul></div>
 

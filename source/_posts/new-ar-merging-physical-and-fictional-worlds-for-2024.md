@@ -1,7 +1,7 @@
 ---
 title: "\"[New] AR  Merging Physical and Fictional Worlds for 2024\""
-date: 2024-09-26T18:23:54.151Z
-updated: 2024-10-01T16:40:57.161Z
+date: 2024-10-05T16:39:27.607Z
+updated: 2024-10-06T18:31:50.929Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
  The presentation of augmented reality is in some form of futuristic technology, despite the fact that it has been around for many years. For example, the heads-up display in many fighter jets utilizes the principles of augmented reality, and these date back to the early 1990s when they were used to show information about altitude, speed and direction of the aircraft.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How does Augmented Reality work
@@ -53,16 +53,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
  In general, the device will search for a particular object, which can be anything, but in most cases, they are usually 2D images like in the form of a movie poster. The augmented reality application will recognize the target through the camera and it will then process the image and augment it in some form through the utilization of sound and pictures. For example, if the target object was a movie poster, you may see it spring into life to play a trailer of the movie. So long as you continue viewing the poster through the “window” of the display object, you will see augmented reality rather than the plain old normal poster in normal reality.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The future of Augmented Reality
@@ -74,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
  Like with every new technology, augmented reality comes with a plethora or ethical and political issues. For example, the Google Glass came along with a lot of privacy concerns, with some people worried that pictures may be snapped or conversations may be recorded surreptitiously. But amidst all these concerns, AR technology is expected to gather more steam in the near future and it will be a part of life for the majority.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Applications of Augmented Reality
@@ -115,10 +109,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -146,15 +140,14 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enhanced-eyes-complimentary-mobile-picture-upgrade/"><u>[New] 2024 Approved Enhanced Eyes Complimentary Mobile Picture Upgrade</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-elevating-laughs-the-essential-tutorial-for-memetic-mastery-at-9gag/"><u>[New] Elevating Laughs The Essential Tutorial for Memetic Mastery at 9GAG</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-free-online-video-editors-for-youtube/"><u>[New] Free Online Video Editors for YouTube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-beaming-brilliance-for-android-video-creation/"><u>[New] In 2024, Beaming Brilliance for Android Video Creation</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-top-6-minecraft-house-ideas-for-beginners/"><u>[Updated] 2024 Approved Top 6 Minecraft House Ideas for Beginners</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-proven-strategies-for-professional-green-screen-filming/"><u>[Updated] In 2024, Proven Strategies for Professional Green Screen Filming</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/premium-edition-of-gpt-your-companion-in-language-study/"><u>Premium Edition of GPT, Your Companion in Language Study</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-best-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>The Best Wedding Stories Online YouTube + Vimeo's Selection (8)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-selection-best-8-websites-with-striking-3d-and-glamourous-text/"><u>Ultimate Selection Best 8 Websites with Striking 3D & Glamourous Text</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-steps-to-apply-a-creative-commons-copyright/"><u>[New] 2024 Approved Essential Steps to Apply a Creative Commons Copyright</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-guide-to-quality-iphone-filmmaking-top-8-tips/"><u>[New] In 2024, The Ultimate Guide to Quality iPhone Filmmaking (Top 8 Tips)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-drone-for-sale-best-drones-to-buy/"><u>2024 Approved Drone for Sale - Best Drones to Buy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-making-memories-sing-picture-plus-music-videography/"><u>2024 Approved Making Memories Sing Picture + Music Videography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-the-art-of-acquiring-insta-ringtunes-the-ultimate-checklist/"><u>2024 Approved Mastering the Art of Acquiring Insta-Ringtunes The Ultimate Checklist</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-reawakening-windows-photo-viewer-in-windows-10-with-ease/"><u>2024 Approved Reawakening Windows Photo Viewer in Windows 10 with Ease</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-corsair-h80i-version-2-fanset-control-software/"><u>Download and Install Corsair H80i Version 2 Fanset Control Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/playing-with-purpose-top-15-gaming-titles-for-ios-devices-without-wi-fi/"><u>Playing with Purpose: Top 15 Gaming Titles for iOS Devices Without Wi-Fi</u></a></li>
 </ul></div>
 

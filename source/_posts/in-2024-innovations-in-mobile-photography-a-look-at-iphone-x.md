@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Innovations in Mobile Photography  A Look at iPhone X\""
-date: 2024-09-25T22:13:08.923Z
-updated: 2024-10-01T17:17:03.899Z
+date: 2024-10-04T16:50:22.131Z
+updated: 2024-10-06T20:20:29.406Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
@@ -49,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -74,17 +81,10 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -96,10 +96,10 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,22 +135,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-elite-imagery-the-finest-8k-camera-selections/"><u>[New] Elite Imagery The Finest 8K Camera Selections</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-streamlining-photo-and-video-transfer-from-android/"><u>[New] In 2024, Streamlining Photo & Video Transfer From Android</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-art-of-color-grading-utilizing-luts-in-ae/"><u>[New] The Art of Color Grading Utilizing LUTs in AE</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unleash-creativity-with-a-diy-guide-to-haul-edits-for-2024/"><u>[New] Unleash Creativity with a DIY Guide to Haul Edits for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-boosting-your-macs-potential-with-sierra-update-steps/"><u>[Updated] 2024 Approved Boosting Your Mac's Potential with Sierra Update Steps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-balance-your-shots-best-camera-stabilizers-reviewed-for-2024/"><u>[Updated] Balance Your Shots Best Camera Stabilizers Reviewed for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-bend-the-rules-of-livestreaming-on-youtube-without-a-subscriber-hurdle/"><u>[Updated] In 2024, Bend the Rules of Livestreaming on YouTube, Without a Subscriber Hurdle</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-bring-it-all-together-elevate-your-fb-video-experience/"><u>[Updated] In 2024, Bring It All Together Elevate Your FB Video Experience</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-perfecting-iphone-screen-exposure-for-2024/"><u>[Updated] Perfecting iPhone Screen Exposure for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktok-voiceover-techniques-guide-for-2024/"><u>[Updated] TikTok Voiceover Techniques Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-15-non-gopro-action-cameras-your-ultimate-guide-for-2024/"><u>[Updated] Top 15 Non-GoPro Action Cameras Your Ultimate Guide for 2024</u></a></li>
-<li><a href="https://win-web3.techidaily.com/audible-to-mp3-transformation-guide-perfect-your-e-book-narrative-listening/"><u>Audible to MP3 Transformation Guide – Perfect Your E-Book Narrative Listening</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/conversione-gratuita-da-wma-ad-avi-online-con-movavi-trasforma-i-tuoi-file/"><u>Conversione Gratuita Da WMA Ad AVI Online Con Movavi - Trasforma I Tuoi File</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-realme-12plus-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Realme 12+ 5G Phone Screen?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabled-iphone-11-how-to-unlock-a-disabled-iphone-11-by-drfone-ios/"><u>In 2024, Disabled iPhone 11 How to Unlock a Disabled iPhone 11?</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/new-2024-approved-top-6-free-talking-stock-photo-sites/"><u>New 2024 Approved Top 6 Free Talking Stock Photo Sites</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo Y100t? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-transform-your-vids-for-social-scenes-with-tunes/"><u>[New] 2024 Approved Transform Your Vids for Social Scenes With Tunes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aster-insights-slower-pace-balancing-youtube-playback-rate/"><u>[New] Faster Insights, Slower Pace Balancing YouTube Playback Rate</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-tricks-to-perfect-time-lapses-using-samsung-cameras/"><u>[New] In 2024, Tricks to Perfect Time-Lapses Using Samsung Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-vector-art-our-picks-for-top-10-tools-in-industry/"><u>[New] Mastering Vector Art Our Picks for Top 10 Tools in Industry</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-off-mode-how-to-deactivate-igtv/"><u>[New] Off Mode How to Deactivate IGTV</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-hunters-choice-best-camcorders-unveiled/"><u>[New] Pro Hunters Choice Best Camcorders Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-uniting-social-spheres-from-instagram-to-tiktok-triumphs-for-2024/"><u>[New] Uniting Social Spheres From Instagram to TikTok Triumphs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-easy-steps-to-install-windows-movie-maker-6-for-2024/"><u>[Updated] Easy Steps to Install Windows Movie Maker 6 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-maximum-videos-on-a-64gb-drive/"><u>[Updated] Maximum Videos on a 64GB Drive</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-visual-storytelling-enhanced-by-these-top-7-graders-flair/"><u>[Updated] Visual Storytelling Enhanced by These Top 7 Graders' Flair</u></a></li>
+<li><a href="https://techtrends.techidaily.com/online-image-transformation-guide-switching-from-bmp-to-png-without-costs-using-top-tools/"><u>Online Image Transformation Guide: Switching From BMP to PNG without Costs Using Top Tools!</u></a></li>
+<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/troubleshooting-guide-stop-your-age-of-wonders-planetfall-from-crashing-on-windowspc/"><u>Troubleshooting Guide: Stop Your 'Age of Wonders: Planetfall' From Crashing on Windows/PC</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/ultimate-guide-top-ranked-cd-writing-apps-for-optimal-disc-creation/"><u>Ultimate Guide: Top-Ranked CD Writing Apps for Optimal Disc Creation</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unboxing-and-exploring-the-features-a-comprehensive-review-of-the-samsung-qn55q60rafxza-4k-tv-with-hdr10plus-technology/"><u>Unboxing and Exploring the Features: A Comprehensive Review of the Samsung QN55Q60RAFXZA 4K TV with HDR10+ Technology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/wholesome-wisdom-in-a-digital-dimension-arvr-quotes-await-for-2024/"><u>Wholesome Wisdom in a Digital Dimension AR/VR Quotes Await for 2024</u></a></li>
 </ul></div>
 
