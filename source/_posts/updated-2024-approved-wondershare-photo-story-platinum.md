@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Wondershare Photo Story Platinum\""
-date: 2024-10-03T05:06:16.629Z
-updated: 2024-10-06T22:20:48.137Z
+date: 2024-10-09T18:21:08.043Z
+updated: 2024-10-12T17:50:16.779Z
 tags: 
   - screen-recording
   - ai video
@@ -58,13 +58,6 @@ After the mode selection, click the Add Files button to import your photos and v
 
 ![photo story](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2\. Personalize your photo story
 
 Click the Personalize tab. Then you can add transitions, effects, background music and more t create your own gorgeous photo story.
@@ -74,10 +67,16 @@ You can import your photos and videos at one time and arrange the order by dragg
 ![Photo Story Platinum](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Step 3\. Publish your photo story
@@ -88,13 +87,26 @@ The photo story maker provides sorts of methods for you. For example, if you wan
 
 ![photo dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) here.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Supported Output Formats by Web Converter
@@ -108,14 +120,14 @@ Learn about the detailed [technical specifications](https://tools.techidaily.com
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -142,20 +154,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-swift-shadowing-secrets/"><u>[New] 2024 Approved Swift Shadowing Secrets</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-2024s-premium-video-equipment-unpacked/"><u>[New] 2024'S Premium Video Equipment Unpacked</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-20mb-video-seconds-breakdown/"><u>[New] 20MB Video - Seconds Breakdown</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-videography-titans-battle/"><u>[Updated] 2024 Approved Videography Titans Battle</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-from-niche-to-mainstream-amassing-a-million-view-channel/"><u>[Updated] From Niche to Mainstream Amassing a Million-View Channel</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-sj7s-pioneering-star-4k-camera-the-ultimate-guide-for-action-filmmakers/"><u>[Updated] SJ7's Pioneering Star 4K Camera - The Ultimate Guide for Action Filmmakers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-profitability-initial-steps-to-earnings/"><u>2024 Approved YouTube Profitability Initial Steps to Earnings</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-practical-guide-elevating-your-podcast-with-an-iconic-title/"><u>A Practical Guide Elevating Your Podcast with an Iconic Title</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-honor-magic-6-pro-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Honor Magic 6 Pro</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/master-your-gameplay-fixing-latency-problems-in-chivalry-ii-latest-techniques/"><u>Master Your Gameplay: Fixing Latency Problems in Chivalry II (Latest Techniques)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/simplifying-complexity-essential-gs-tutorials-kinemaster/"><u>Simplifying Complexity Essential GS Tutorials (KineMaster)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/smirk-sculptor-image-maker-for-2024/"><u>Smirk Sculptor Image Maker for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-ultimate-compilation-of-top-tier-free-iphone-composition-software-for-2024/"><u>The Ultimate Compilation of Top-Tier Free iPhone Composition Software for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/winxvideo-ai-comment-enregistrer-votre-webcam-et-audio-sur-pc/"><u>WinXvideo AI: Comment Enregistrer Votre Webcam Et Audio Sur PC</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-closing-an-outdated-linkedin-profile-a-step-by-step-guide-for-2024/"><u>[New] Closing an Outdated LinkedIn Profile A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-10-tips-to-prevent-oculus-rift-vr-motion-sickness/"><u>[New] In 2024, 10 Tips to Prevent Oculus Rift VR Motion Sickness</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-reviving-photo-viewer-on-win-11-methods-explained/"><u>[New] Reviving Photo Viewer on Win 11 - Methods Explained</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-list-5-premium-live-stream-recorders-for-2024/"><u>[New] The Ultimate List 5 Premium Live Stream Recorders for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-5-ios-apps-for-efficient-podcasting-for-2024/"><u>[Updated] Best 5 iOS Apps for Efficient Podcasting for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-optimal-typographic-animations-compiled-for-2024/"><u>[Updated] Optimal Typographic Animations Compiled for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-prioritize-performance-our-picks-for-the-best-video-players/"><u>[Updated] Prioritize Performance Our Picks for the Best Video Players</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/15-innovative-choices-for-action-cams-excluding-gopro/"><u>15 Innovative Choices for Action Cams, Excluding GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mkv-playback-top-macos-apps-reviewed/"><u>2024 Approved MKV Playback Top macOS Apps Reviewed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diy-fixes-for-oculus-rift-users-struggling-with-runtime-service-accessibility-issues/"><u>DIY Fixes for Oculus Rift Users Struggling with Runtime Service Accessibility Issues</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-honor-x9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-intel-graphics-drivers-compatible-with-windows-11/"><u>How to Get the Newest Intel Graphics Drivers Compatible with Windows 11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premier-15-gopro-video-enhancers-with-luts/"><u>Premier 15 GoPro Video Enhancers with LUTs</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725287374957-ai-6/"><u>비디오 업스케일링에 사용하는 최고 AI 소프트웨어 6가지 선택지</u></a></li>
 </ul></div>
 

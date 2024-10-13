@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Bringing Stories to Life  Adding Effective Narration\""
-date: 2024-10-01T06:26:03.013Z
-updated: 2024-10-06T16:48:02.340Z
+date: 2024-10-07T16:29:25.247Z
+updated: 2024-10-12T20:38:16.302Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -63,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -80,6 +73,13 @@ A 3-second countdown will pop up and start recording immediately after this coun
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -99,13 +99,6 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
@@ -113,13 +106,20 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -159,20 +159,24 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-adding-a-digital-clock-to-your-youtube-video-playback/"><u>[New] 2024 Approved Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-immersive-simulations-in-medical-schools-for-2024/"><u>[New] Immersive Simulations in Medical Schools for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-the-world-of-online-streaming-wirecast-and-facebook/"><u>[New] In 2024, Navigating the World of Online Streaming Wirecast & Facebook</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-snap-it-up-iphone-and-androids-best-10-photo-enhancers/"><u>[New] In 2024, Snap It Up! IPhone and Android's Best 10 Photo Enhancers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-key-to-making-youtube-videos-stand-out-on-instagram-stories/"><u>[New] In 2024, The Key to Making YouTube Videos Stand Out on Instagram Stories</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-resource-50plus-no-fee-visual-effects-websites-reviewed/"><u>[New] The Ultimate Resource 50+ No-Fee Visual Effects Websites Reviewed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-annual-list-highest-rated-free-lut-sources-online-for-2024/"><u>[Updated] Annual List Highest Rated FREE LUT Sources Online for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-utilize-obs-studio-android-solutions/"><u>[Updated] How to Utilize OBS Studio Android Solutions</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-spectral-photography-takes-a-quantum-leap-with-blade-4k/"><u>[Updated] In 2024, Spectral Photography Takes a Quantum Leap with Blade 4K</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-metaverse-vs-multi-meva-understanding-their-core-differences/"><u>[Updated] Metaverse Vs. Multi-Meva Understanding Their Core Differences</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-synthesis-of-song-elements-the-crossfade-approach/"><u>[Updated] Synthesis of Song Elements The Crossfade Approach</u></a></li>
-<li><a href="https://techtrends.techidaily.com/explore-the-best-book-reading-applications-pick-your-favorites-in-202/"><u>Explore the Best Book Reading Applications - Pick Your Favorites in 202</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-from-free-to-funded-monetization-mastery-for-fb-pages/"><u>In 2024, From Free to Funded Monetization Mastery for FB Pages</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-upgrade-your-channel-description-with-ease-and-flair/"><u>In 2024, Upgrade Your Channel Description with Ease and Flair</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-gen-softbox-setups-for-professional-lighting/"><u>Next-Gen Softbox Setups for Professional Lighting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-exclusive-selection-of-top-hd-stream-cameras/"><u>[New] 2024 Approved Exclusive Selection of Top HD Stream Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-discover-the-finest-android-and-iphone-photo-overlays-at-no-cost-for-2024/"><u>[New] Discover the Finest Android & iPhone Photo Overlays at No Cost for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-fb-picturevid-producer-no-fee/"><u>[New] Exclusive FB Picture/Vid Producer - No Fee</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-videoshow-app-a-complete-guide-for-24/"><u>[New] In 2024, Mastering VideoShow App - A Complete Guide for '24</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-no-cost-copyright-free-pubg-image-bundles/"><u>[New] In 2024, No-Cost, Copyright-Free PUBG Image Bundles</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unleash-your-inner-influencer-9-essential-instagram-steps-for-2024/"><u>[New] Unleash Your Inner Influencer 9 Essential Instagram Steps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-pilot-to-perfection-complete-review-of-dji-phantom-4/"><u>[Updated] 2024 Approved Pilot to Perfection Complete Review of DJI Phantom 4</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unleashing-creativity-in-hd-windows-powered-visionary-editing-and-viewing/"><u>[Updated] In 2024, Unleashing Creativity in HD Windows-Powered Visionary Editing & Viewing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-leading-filmmaking-applications-for-gopro/"><u>[Updated] Leading Filmmaking Applications for GoPro</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-lava-agni-2-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instantize-image-movement-with-photoshop/"><u>2024 Approved Instantize Image Movement with Photoshop</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximize-viewership-with-smart-and-stylish-titles/"><u>2024 Approved Maximize Viewership With Smart and Stylish Titles</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-onlineoffline-animation-revolution-with-zero-price-tag/"><u>2024 Approved Online/Offline Animation Revolution with Zero Price Tag</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-videography-tools-for-ios-devices-for-2024/"><u>Best Videography Tools for iOS Devices for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-asus-rog-phone-8-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Asus ROG Phone 8?</u></a></li>
+<li><a href="https://games-able.techidaily.com/intel-stream-assist-explained-boosting-video-game-performance/"><u>Intel Stream Assist Explained: Boosting Video Game Performance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/jumpstarting-your-marketing-the-essentials-of-telegram-advertising-for-2024/"><u>Jumpstarting Your Marketing The Essentials of Telegram Advertising for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sleek-60-second-fades-for-2024/"><u>Sleek 60-Second Fades for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/transforming-still-images-into-expressive-animations-gif-for-2024/"><u>Transforming Still Images Into Expressive Animations (GIF) for 2024</u></a></li>
 </ul></div>
 

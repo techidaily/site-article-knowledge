@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Construct a Homemade Google VR Helmet for Cost-Effective Fun\""
-date: 2024-10-04T22:45:15.592Z
-updated: 2024-10-07T03:56:17.528Z
+date: 2024-10-05T22:50:52.335Z
+updated: 2024-10-12T19:31:23.610Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -135,24 +135,19 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-integrating-zoom-into-your-daily-schedule/"><u>[New] 2024 Approved Integrating Zoom Into Your Daily Schedule</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-art-of-disregarding-harmful-youtube-comments/"><u>[New] 2024 Approved The Art of Disregarding Harmful YouTube Comments</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-invisible-vibes-dimming-music-on-computers/"><u>[New] In 2024, Invisible Vibes Dimming Music on Computers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-selecting-the-right-audio-for-your-unboxing-projects-for-2024/"><u>[New] Selecting the Right Audio for Your Unboxing Projects for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-setting-up-windows-11-for-automatic-hdr-activation-for-2024/"><u>[New] Setting Up Windows 11 for Automatic HDR Activation for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-ultimate-workflow-for-embedding-subtitle-track-in-mp4s/"><u>[New] Ultimate Workflow for Embedding Subtitle Track in MP4s</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-what-are-the-best-sites-to-download-google-pixel-ringtones/"><u>[New] What Are the Best Sites to Download Google Pixel Ringtones</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube-for-2024/"><u>[Updated] Captivate Audiences Techniques for Livestreaming Video in Spherical Views on YouTube for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-comprehensive-techniques-for-moving-media-from-iphones-for-2024/"><u>[Updated] Comprehensive Techniques for Moving Media From iPhones for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crafting-audio-identity-the-art-of-adding-your-own-tones-to-android-for-2024/"><u>[Updated] Crafting Audio Identity The Art of Adding Your Own Tones to Android for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-digital-detailing-expert-tips-for-attaching-dates-in-photography/"><u>[Updated] In 2024, Digital Detailing Expert Tips for Attaching Dates in Photography</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-make-your-images-stand-out-mastering-background-removal-with-photopea/"><u>[Updated] In 2024, Make Your Images Stand Out Mastering Background Removal with Photopea</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-conversations-google-meet-essentials-for-2024/"><u>[Updated] Mastering Conversations Google Meet Essentials for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastery-over-windows-10s-photo-app-stability-challenges/"><u>[Updated] Mastery Over Windows 10'S Photo App Stability Challenges</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-ultimate-action-cam-editing-solutions/"><u>2024 Approved Ultimate Action Cam Editing Solutions</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/1726028202254-dvd/"><u>快速ガイド: DVDディスクからデータを安全に取り出すコツ</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/luminous-designs-examination-pinnacle-studio-audit/"><u>Luminous Designs Examination Pinnacle Studio Audit</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-complete-look-into-razers-streaming-hardware/"><u>[New] 2024 Approved Complete Look Into Razer's Streaming Hardware</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-essential-tips-for-crafting-perfect-drone-video-edits/"><u>[New] 2024 Approved Essential Tips for Crafting Perfect Drone Video Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boosting-your-channels-free-tips-for-youtube-video-popularity/"><u>[New] In 2024, Boosting Your Channels Free Tips for YouTube Video Popularity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-public-perceptions-unveiling-vllo-realities/"><u>[New] Public Perceptions Unveiling VLLO Realities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-virtual-frontiers-in-business-technology-and-strategy/"><u>[New] Virtual Frontiers in Business Technology and Strategy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>[New] Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-from-pixels-to-prints-master-snapseed-fundamentals/"><u>[Updated] From Pixels to Prints Master Snapseed Fundamentals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-spectral-showcase-curating-the-best-4k-displays-on-screen/"><u>2024 Approved Spectral Showcase Curating the Best 4K Displays on Screen</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-gt-3-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme GT 3</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/most-reliable-image-archiving-sites-for-2024/"><u>Most Reliable Image Archiving Sites for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-money-stay-secure-with-the-pruveeo-f5-1080p-dashcam-in-depth-analysis/"><u>Save Money, Stay Secure with the Pruveeo F5 1080P Dashcam - In-Depth Analysis</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-social-media-sphere-speaking-up-to-fans-for-2024/"><u>The Social Media Sphere Speaking Up to Fans for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transform-your-video-files-without-hassle-convert-m4v-to-mov-instantly-and-for-free-on-the-web/"><u>Transform Your Video Files Without Hassle - Convert M4V to MOV Instantly and For Free on the Web!</u></a></li>
+<li><a href="https://win-able.techidaily.com/unlock-seamless-gameplay-fixing-mouse-issues-in-the-latest-re-village/"><u>Unlock Seamless Gameplay: Fixing Mouse Issues in the Latest RE Village</u></a></li>
 </ul></div>
 

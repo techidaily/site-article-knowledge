@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering SRT File Uploads on Social Platforms  Step-by-Step Guide\""
-date: 2024-10-02T21:04:44.804Z
-updated: 2024-10-07T05:17:20.886Z
+date: 2024-10-10T23:24:06.474Z
+updated: 2024-10-12T17:18:26.510Z
 tags: 
   - screen-recording
   - ai video
@@ -77,13 +77,6 @@ Step2Upload the video you want to add the SRT file to. Then select 'Upload Capti
 
 ![upload caption file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Click on 'Upload Caption' from the pop-up that appears on your screen. Then choose the SRT file that you want to upload.
 
 ![upload caption](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-2.jpg)
@@ -93,13 +86,6 @@ Step4Click Done. Then you'll see the name of the language in your captions is wr
 Step5Now play the video to preview the subtitle and if you're satisfied, publish your tweet instantly.
 
 ![tweet instantly](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Upload SRT Files to Your Vimeo Video
 
@@ -113,16 +99,16 @@ Step3Click 'Advanced' from the Settings page. Then navigate to "Add Caption & Su
 
 ![choose file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-vimeo-videos-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable Captions & Subtitles". Then verify that 'Status' is turned ON and select your file language and file type is SRT.
 
 Step5Finally, hit the 'Save' button to complete the operation.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Upload SRT Files to Facebook Videos
 
@@ -133,6 +119,13 @@ Let's dive into the step-by-step process to upload SFRT files to Facebook videos
 Step1Open your Facebook account and locate the Video that you want to add SRT subtitles to. Afterward, click on "Edit".
 
 ![click on edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
@@ -162,34 +155,13 @@ Step2Move the uploaded SRT file to the timeline and right-click on it, then sele
 
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
 ![changing subtitle styles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -263,15 +235,22 @@ Step3Click 'Advanced' from the Settings page. Then navigate to "Add Caption & Su
 ![choose file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-vimeo-videos-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable Captions & Subtitles". Then verify that 'Status' is turned ON and select your file language and file type is SRT.
 
 Step5Finally, hit the 'Save' button to complete the operation.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Upload SRT Files to Facebook Videos
 
@@ -282,13 +261,6 @@ Let's dive into the step-by-step process to upload SFRT files to Facebook videos
 Step1Open your Facebook account and locate the Video that you want to add SRT subtitles to. Afterward, click on "Edit".
 
 ![click on edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
@@ -314,17 +286,45 @@ Step1Launch the Filmora software on your PC and use the Import button to upload 
 
 ![upload the srt file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Move the uploaded SRT file to the timeline and right-click on it, then select "Advanced Edit" from the pop-up list.
 
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
 ![changing subtitle styles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -360,20 +360,24 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-excellence-in-text-editing-with-ae-presets/"><u>[New] Excellence in Text Editing with AE Presets</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-perfectpicturefree-ultimate-erase-for-clean-bgs/"><u>[New] In 2024, PerfectPictureFree Ultimate Erase for Clean BGs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-premier-5-ios-backdrop-change-applications-for-iphones-x-8-7/"><u>[New] Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-tactical-titles-trailer-producer/"><u>[New] Tactical Titles Trailer Producer</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-tune-your-status-on-whatsapp/"><u>[New] Tune Your Status on WhatsApp</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-elite-software-selection-top-editors-for-webcams/"><u>[Updated] 2024 Approved Elite Software Selection Top Editors for Webcams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-bringing-vision-to-life-the-art-of-post-color-enhancement/"><u>[Updated] In 2024, Bringing Vision to Life The Art of Post-Color Enhancement</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dynamic-directionality-prime-phone-friendly-tripods/"><u>[Updated] In 2024, Dynamic Directionality Prime Phone-Friendly Tripods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unlocking-audio-excellence-in-ios-settings/"><u>[Updated] In 2024, Unlocking Audio Excellence in iOS Settings</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-poco-c55-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-setup-complete-guide-to-downloading-and-installing-epson-es-400-scandriver-on-pcs/"><u>Easy Setup: Complete Guide to Downloading and Installing Epson ES-400 ScanDriver on PCs</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/gigglegraphs-imagejesterhub/"><u>GiggleGraphs ImageJesterHub</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-mac-subtitle-editing-software-top-alternatives-to-subtitle-edit/"><u>New In 2024, Mac Subtitle Editing Software Top Alternatives to Subtitle Edit</u></a></li>
-<li><a href="https://driver-error.techidaily.com/smooth-bluetooth-integration-on-windows/"><u>Smooth Bluetooth Integration on Windows</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-expert-guide-to-instagram-video-sizing/"><u>[New] 2024 Approved Expert Guide to Instagram Video Sizing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-add-narration-to-your-videos/"><u>[New] 2024 Approved How to Add Narration to Your Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-immersive-film-vr-in-modern-theaters/"><u>[New] 2024 Approved Immersive Film VR in Modern Theaters</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-captivating-hdr-portraits-for-the-art-enthusiast/"><u>[New] In 2024, Captivating HDR Portraits for the Art Enthusiast</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-audiovisual-harmony-perfecting-voiceover-in-videos/"><u>[Updated] Audiovisual Harmony Perfecting Voiceover in Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-drone-vfx-experience-try-no-cost-luts-on-mini-and-air-drones/"><u>[Updated] Drone VFX Experience – Try No-Cost LUTS on Mini & Air Drones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-detailed-review-experience-with-samsungs-sphere-cam/"><u>[Updated] In 2024, Detailed Review Experience with Samsung's Sphere Cam</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-use-phantom-slow-motion-camera/"><u>[Updated] In 2024, How to Use Phantom Slow Motion Camera</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ultimate-comic-editor-app/"><u>[Updated] In 2024, Ultimate Comic Editor App</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-micro-moments-of-fame-do-youtubes-shorts-or-tiktoks-get-the-edge/"><u>[Updated] Micro-Moments of Fame Do YouTubes Shorts or TikToks Get the Edge?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-guide-top-10-places-to-download-inspiring-slideshow-designs-for-2024/"><u>[Updated] The Ultimate Guide Top 10 Places to Download Inspiring Slideshow Designs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/competitor-cameras-rising-the-ultimate-guide-to-substitutes-for-samsungs-gear-360-for-2024/"><u>Competitor Cameras Rising The Ultimate Guide to Substitutes for Samsung's Gear 360 for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fortnite-pc-play-disrupted-by-constant-crashes-learn-the-latest-fixes-for-a-smooth-experience/"><u>Fortnite PC Play Disrupted by Constant Crashes? Learn the Latest Fixes for a Smooth Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-motorola-moto-g23-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Motorola Moto G23 to iPod | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-poco-x5-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Poco X5 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-influencer-marketing-5-steps-to-conquer-it-for-2024/"><u>Instagram Influencer Marketing 5 Steps to Conquer It for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/meme-makers-playbook-for-widespread-impact/"><u>Meme Makers' Playbook for Widespread Impact</u></a></li>
 </ul></div>
 

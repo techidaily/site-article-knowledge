@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Diminishing Volume  FL Masterclass\""
-date: 2024-10-01T22:35:29.804Z
-updated: 2024-10-06T19:35:27.713Z
+date: 2024-10-10T20:24:27.223Z
+updated: 2024-10-12T17:06:12.663Z
 tags: 
   - screen-recording
   - ai video
@@ -65,46 +65,40 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
-## Related FAQs of FL Studio Audio Editing
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Related FAQs of FL Studio Audio Editing
 
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -124,29 +118,35 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
-## Related FAQs of FL Studio Audio Editing
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Related FAQs of FL Studio Audio Editing
 
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -176,24 +176,19 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-captivating-images-mastering-the-art-of-motion-blur-in-ps-for-2024/"><u>[New] Captivating Images Mastering the Art of Motion Blur in PS for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-dystopian-dreams-comparable-games-to-grand-theft-auto-v/"><u>[New] Dystopian Dreams Comparable Games To Grand Theft Auto V</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-revolutionizing-art-sales-7-top-generators-for-turning-images-into-nfts/"><u>[New] In 2024, Revolutionizing Art Sales - 7 Top Generators for Turning Images Into NFTs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-superior-asmr-audio-with-top-recorder-mics/"><u>[New] In 2024, Unlock Superior ASMR Audio with Top Recorder Mics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-innovative-approaches-to-integrating-your-fb-story/"><u>[New] Innovative Approaches to Integrating Your FB Story</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-revamping-subtitles-from-srt-with-ease-for-2024/"><u>[New] Revamping Subtitles From SRT with Ease for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-synchronizing-soundscapes-a-guide-to-multi-service-moves/"><u>[New] Synchronizing Soundscapes A Guide to Multi-Service Moves</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-crafting-the-spoken-word-writing-compelling-narratives/"><u>[Updated] 2024 Approved Crafting the Spoken Word Writing Compelling Narratives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-harness-the-sun-and-bulbs-for-stellar-iphone-photos/"><u>[Updated] Harness the Sun and Bulbs for Stellar Iphone Photos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-engaging-visuals-for-maximum-impact-with-these-ideas/"><u>[Updated] In 2024, Engaging Visuals for Maximum Impact with These Ideas</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-free-up-iphone-11-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up iPhone 11 Pro Max Space | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-samsung-galaxy-f14-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Samsung Galaxy F14 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-decoding-instagrams-music-copyright-doctrine/"><u>In 2024, Decoding Instagram's Music Copyright Doctrine</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/maximizing-mac-audio-quality-in-mixer-streaming-for-2024/"><u>Maximizing Mac Audio Quality in Mixer Streaming for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/most-advanced-drone-technology-aligned-with-gopros/"><u>Most Advanced Drone Technology Aligned with GoPros</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/partes-del-cuerpo-de-la-cabeza-a-los-pies-en-espanol/"><u>Partes Del Cuerpo: De La Cabeza A Los Pies En Español</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/tech-giants-in-hot-water-as-prominent-figures-like-sarah-silverman-take-legal-action-against-openaimetas-ai-practices/"><u>Tech Giants in Hot Water as Prominent Figures Like Sarah Silverman Take Legal Action Against OpenAI/Meta's AI Practices</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-apple-watch-cellular-connectivity-issues-a-step-by-step-guide/"><u>Troubleshooting Apple Watch Cellular Connectivity Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-ultimate-guide-to-finding-free-westeros-ringtones/"><u>[New] 2024 Approved The Ultimate Guide to Finding Free Westeros Ringtones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-ranking-humor-image-editor/"><u>[New] 2024 Approved Top-Ranking Humor Image Editor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-revolutionizing-fun-vr-applications-unveiled/"><u>[New] In 2024, Revolutionizing Fun VR Applications Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-cloud-data-costs-comparison-and-best-price-paths/"><u>[New] Navigating Cloud Data Costs Comparison & Best Price Paths</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-zenith-pinnacle-software-testing/"><u>[Updated] 2024 Approved Zenith Pinnacle Software Testing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-realme-narzo-60-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Realme Narzo 60 5G?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pinterest-video-extraction-top-5-free-tools-ranked/"><u>In 2024, Pinterest Video Extraction Top 5 Free Tools Ranked</u></a></li>
+<li><a href="https://extra-support.techidaily.com/laugh-out-loud-free-memetic-creators-for-2024/"><u>Laugh Out Loud FREE Memetic Creators for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/optimal-aspect-ratios-for-video-production/"><u>Optimal Aspect Ratios for Video Production</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/synthesize-shots-the-photo-montage-methodology/"><u>Synthesize Shots The Photo Montage Methodology</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723212217711-the-ultimate-fix-for-your-broken-sound-control-in-windows-10-now-resolved/"><u>The Ultimate Fix for Your Broken Sound Control in Windows 10 - Now Resolved!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-resolving-missing-pdhdll-error-messages-in-windows/"><u>The Ultimate Guide to Resolving Missing Pdh.dll Error Messages in Windows</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transforming-creativity-into-a-sustainable-livelihood-for-2024/"><u>Transforming Creativity Into a Sustainable Livelihood for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/understanding-gb-requirement-for-a-days-film/"><u>Understanding GB Requirement for a Day's Film</u></a></li>
 </ul></div>
 

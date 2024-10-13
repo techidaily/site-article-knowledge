@@ -1,7 +1,7 @@
 ---
 title: "\"Latest Series  Captivating Q&A for Podcast Audience\""
-date: 2024-10-06T03:08:32.751Z
-updated: 2024-10-06T16:20:48.779Z
+date: 2024-10-08T17:55:41.184Z
+updated: 2024-10-12T22:57:43.005Z
 tags: 
   - screen-recording
   - ai video
@@ -78,18 +78,18 @@ Some leading questions that you can ask are discussed below.
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Comparison Questions
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can ask questions from the comparison questions given below.
 
@@ -108,13 +108,6 @@ You can ask questions from the comparison questions given below.
 13. Were you good in academics or extracurricular activities?
 14. In which weather do you feel comfortable, summer or winter?
 15. What do you prefer to eat, pizza or a burger?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Great Closing Questions
 
@@ -136,10 +129,10 @@ When we move on to this type of question, typically, it's time to end the show. 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
@@ -154,28 +147,21 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 You can get the best information from the person you are interviewing if you do the following:
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
@@ -184,15 +170,22 @@ As an interviewer, "why" is your most powerful tool. Guests usually provide surf
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -210,6 +203,13 @@ So you see how this can continue to move forward by simply mirroring your guest.
 #### Tell me about a time when…
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Podcast Questions to Avoid Asking
 
@@ -261,19 +261,22 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-ultimate-mac-toolkit-capturing-netflix-views/"><u>[New] 2024 Approved The Ultimate Mac Toolkit Capturing Netflix Views</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-capture-action-the-complete-technique-for-adding-motion-blur-in-photos/"><u>[New] Capture Action The Complete Technique for Adding Motion Blur in Photos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-a-comprehensive-walkthrough-of-adding-text-to-instagram-clips/"><u>[New] In 2024, A Comprehensive Walkthrough of Adding Text to Instagram Clips</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-sound-capture-in-windows-11/"><u>[New] In 2024, Mastering Sound Capture in Windows 11</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-perfecting-text-in-after-effects-the-best-10/"><u>[New] Perfecting Text in After Effects The Best 10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>[Updated] 2024 Approved Boosting Video Quality The Best Cameras for Vloggers' Dreams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-closer-look-at-asuss-proart-pa-329q-an-in-depth-review-of-its-professional-standards-for-2024/"><u>[Updated] A Closer Look at Asus's ProArt PA 329Q – An In-Depth Review of Its Professional Standards for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-pro-level-text-templates-for-adobe-ae-for-2024/"><u>[Updated] Pro-Level Text Templates for Adobe AE for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-top-tactics-eliminate-fbs-intrusive-video-ads-for-2024/"><u>[Updated] Top Tactics Eliminate FB's Intrusive Video Ads for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-oneplus-ace-2-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from OnePlus Ace 2 Pro to iPhone | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/downloading-and-setting-up-canon-dr-c225-printing-software-for-windows-operating-systems/"><u>Downloading and Setting Up Canon DR-C225 Printing Software for Windows Operating Systems</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/efficient-methods-to-master-your-phone-memos/"><u>Efficient Methods to Master Your Phone Memos</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723004803159-elden-ring-wont-start-here-are-fixes-for-your-consoles-black-screen-dilemma/"><u>Elden Ring Won't Start? Here Are Fixes for Your Console's Black Screen Dilemma</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-infinix-hot-30i-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-full-potential-with-final-cut-pro/"><u>[New] 2024 Approved Unlocking Full Potential with Final Cut Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-achieving-peak-performance-zoom-plus-fb-live-techniques/"><u>[New] Achieving Peak Performance ZOOM + FB Live Techniques</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sky-high-explorations-made-simple-a-compreenasive-review-of-dji-sparks-miniature-drone-design/"><u>[New] Sky High Explorations Made Simple A Compreenasive Review of DJI Spark's Miniature Drone Design</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-snap-up-engagement-streamlined-methods-for-crop-and-export-to-instagram/"><u>[New] Snap Up Engagement Streamlined Methods for Crop & Export to Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-best-ios-gaming-experience-top-emulators-for-your-favorite-psp-titles/"><u>[Updated] 2024 Approved Best iOS Gaming Experience Top Emulators for Your Favorite PSP Titles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-how-to-convert-fast-videos-on-iphone-into-slow-motion-magic/"><u>[Updated] 2024 Approved How to Convert Fast Videos on iPhone Into Slow Motion Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-simplifying-the-process-of-creating-a-high-quality-rss-feed/"><u>[Updated] 2024 Approved Simplifying the Process of Creating a High-Quality RSS Feed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-beginners-guide-to-professional-gif-creation-for-2024/"><u>[Updated] A Beginner's Guide to Professional GIF Creation for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-excellence-in-ai-based-photo-transformations/"><u>[Updated] Excellence in AI-Based Photo Transformations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-freeloading-futures-with-ae-creative-tools/"><u>[Updated] Freeloading Futures with AE Creative Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-building-a-custom-google-cardboard-for-immersive-experience/"><u>[Updated] In 2024, Building a Custom Google Cardboard for Immersive Experience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-art-of-title-design-in-after-effects/"><u>[Updated] In 2024, The Art of Title Design in After Effects</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-prime-video-communication-experience-the-top-10-mobile-apps-for-2024/"><u>[Updated] Prime Video Communication Experience The Top 10 Mobile Apps for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-secure-your-stream-with-these-top-5-mac-tools/"><u>2024 Approved Secure Your Stream with These Top 5 Mac Tools</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-lava-yuva-3-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Lava Yuva 3 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-livestream-launchpad-duel-go-with-xsplit-or-opt-for-obs/"><u>In 2024, Livestream Launchpad Duel Go with XSplit or Opt for OBS?</u></a></li>
+<li><a href="https://win-community.techidaily.com/top-7-knowledge-management-solutions-to-boost-your-business-in-2020/"><u>Top 7 Knowledge Management Solutions to Boost Your Business in 2020</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Renewal of Photo Viewing Capabilities in Windows 10 - Guide\""
-date: 2024-09-07T17:43:12.464Z
-updated: 2024-09-14T21:43:52.452Z
+date: 2024-10-05T17:51:45.383Z
+updated: 2024-10-12T21:20:30.245Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -88,10 +95,16 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -100,13 +113,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -132,5 +152,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-live-broadcasts-the-most-effective-6-microphone-selections/"><u>[New] Mastering Live Broadcasts The Most Effective 6 Microphone Selections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-explore-new-horizons-in-video-editing-software/"><u>[Updated] 2024 Approved Explore New Horizons in Video Editing Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-budget-friendly-choices-must-have-gopro-add-ons/"><u>[Updated] Budget-Friendly Choices Must-Have GoPro Add-Ons</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-how-much-do-you-really-make-as-a-podcaster/"><u>[Updated] In 2024, How Much Do You Really Make as a Podcaster?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-leveraging-visual-storytelling-in-podcast-trailer-production/"><u>[Updated] Leveraging Visual Storytelling in Podcast Trailer Production</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-samsung-k850u-bdplus-2023-assessment-for-2024/"><u>[Updated] Samsung K850U BD+ 2023 Assessment for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-guide-to-mp4-devices-for-2024/"><u>[Updated] The Ultimate Guide to MP4 Devices for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elite-speedy-window-image-reader-tool/"><u>2024 Approved Elite Speedy Window Image Reader Tool</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-from-raw-to-polished-a-complete-picture-guide/"><u>2024 Approved From Raw to Polished A Complete Picture Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-precision-in-presentation-finalizing-videos-on-vimeo-effectively/"><u>2024 Approved Precision in Presentation Finalizing Videos on Vimeo Effectively</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/empower-collaborative-meetings-the-best-10-free-recorders-in-review-for-2024/"><u>Empower Collaborative Meetings The Best 10 Free Recorders in Review for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-130-music-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia 130 Music Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-t2-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo T2 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-discover-the-leading-unboxing-yt-channels/"><u>In 2024, Discover the Leading Unboxing YT Channels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-zoom-essentials-a-comprehensible-guide/"><u>In 2024, Zoom Essentials A Comprehensible Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/simple-guide-turning-favorite-tiktok-beats-into-cellphone-signals-for-2024/"><u>Simple Guide Turning Favorite TikTok Beats Into Cellphone Signals for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/win32ksys-bluescreen-woes-heres-how-to-restore-stability-to-your-windows-system/"><u>Win32K.sys Bluescreen Woes? Here’s How to Restore Stability to Your Windows System</u></a></li>
+</ul></div>
 

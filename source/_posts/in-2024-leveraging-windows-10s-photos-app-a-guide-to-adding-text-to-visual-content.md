@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Leveraging Windows 10'S Photos App  A Guide to Adding Text to Visual Content\""
-date: 2024-10-04T02:29:43.317Z
-updated: 2024-10-06T22:51:39.069Z
+date: 2024-10-07T17:10:30.636Z
+updated: 2024-10-12T21:01:18.095Z
 tags: 
   - screen-recording
   - ai video
@@ -56,13 +56,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -74,6 +67,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -81,10 +81,16 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
@@ -92,26 +98,26 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,18 +144,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-speech-to-text-solutions-for-engaging-ppts/"><u>[New] 2024 Approved Speech-to-Text Solutions for Engaging PPTs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-art-of-capturing-intimate-film-moments/"><u>[New] 2024 Approved The Art of Capturing Intimate Film Moments</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-epic-quests-unveiled-top-games-mirroring-ghost-of-tsushima/"><u>[New] In 2024, Epic Quests Unveiled Top Games Mirroring Ghost of Tsushima</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unwind-and-learn-your-guide-to-podcasting-multitasking/"><u>[New] Unwind and Learn Your Guide to Podcasting Multitasking</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-alternative-cinema-highlights-audiences/"><u>[Updated] 2024 Approved Alternative Cinema Highlights Audiences</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-compreenasive-studio-guide-deep-xvideoinsight/"><u>[Updated] The Compreenasive Studio Guide Deep XVideoInsight</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-twitch-vs-youtube-an-in-depth-comparative-analysis-for-2024/"><u>[Updated] Twitch vs YouTube An In-Depth Comparative Analysis for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-untapped-realities-of-instagram-story-watchers-for-2024/"><u>[Updated] Untapped Realities of Instagram Story Watchers for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-process-open-mac-seamlessly-with-watch/"><u>In 2024, Pioneering Process Open Mac Seamlessly with Watch</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-the-top-8-free-resources-for-3d-text-psds/"><u>In 2024, The Top 8 Free Resources for 3D Text PSDs</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/quick-tunes-on-your-phone-top-speed-up-apps-for-2024/"><u>Quick Tunes on Your Phone Top Speed-Up Apps for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/slash-clutter-a-fast-way-to-remove-bloatware-in-win11/"><u>Slash Clutter: A Fast Way to Remove Bloatware in Win11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2023-play-facebook-videos-on-tv-for-2024/"><u>[New] 2023 | Play Facebook Videos on TV for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-achieving-excellence-in-google-podcast-submission/"><u>[New] 2024 Approved Achieving Excellence in Google Podcast Submission</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-online-locations-alarm-ringtones-collection-for-2024/"><u>[New] Essential Online Locations Alarm Ringtones Collection for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-metaverse-meets-multiverse-a-comparative-guide/"><u>[New] In 2024, Metaverse Meets Multiverse A Comparative Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-exclusive-windows-11s-media-importers-for-2024/"><u>[New] The Ultimate Exclusive Windows 11'S Media Importers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-advanced-tips-for-removing-backgrounds-in-affinity-photo/"><u>[Updated] 2024 Approved Advanced Tips for Removing Backgrounds in Affinity Photo</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-the-art-of-phantoms-time-recapture/"><u>[Updated] 2024 Approved Mastering the Art of Phantom's Time Recapture</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-the-nuances-zoom-and-youtube-live-streaming-explored/"><u>[Updated] Navigating the Nuances Zoom and YouTube Live Streaming Explored</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/brother-mfc-j480dw-driver-update-for-windows/"><u>Brother MFC-J480DW Driver Update for Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-note-30-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Note 30 Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-harmonizing-background-sounds-with-film-trailers/"><u>In 2024, Harmonizing Background Sounds with Film Trailers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-use-deep-fried-meme-maker-for-2024/"><u>New How to Use Deep Fried Meme Maker for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/next-level-charger-accessories-for-sonys-ps5-dualsense/"><u>Next-Level Charger Accessories for Sony's PS5 DualSense</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-x90s-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo X90S Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-solution-for-solving-discord-audio-echo-issues-on-pc/"><u>Step-by-Step Solution for Solving Discord Audio Echo Issues on PC</u></a></li>
 </ul></div>
 
