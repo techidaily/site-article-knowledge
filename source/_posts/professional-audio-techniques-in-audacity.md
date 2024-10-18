@@ -1,7 +1,7 @@
 ---
 title: "Professional Audio Techniques in Audacity"
-date: 2024-10-07T17:02:12.791Z
-updated: 2024-10-12T19:36:56.373Z
+date: 2024-10-12T18:54:35.254Z
+updated: 2024-10-18T20:39:46.249Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,16 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -121,20 +115,20 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-designing-news-outro-sequences/"><u>[Updated] 2024 Approved Designing News Outro Sequences</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-direct-tweeted-media-to-your-ears-in-mp3/"><u>2024 Approved Direct Tweeted Media to Your Ears in MP3</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-harmonious-habits-to-develop-while-taking-in-your-favorite-episodes/"><u>2024 Approved Harmonious Habits to Develop While Taking in Your Favorite Episodes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-liftoff-your-phone-images-with-free-magnification-app/"><u>2024 Approved Liftoff Your Phone Images with Free Magnification App</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-overlooked-wonders-latest-free-macspeech-software/"><u>2024 Approved Overlooked Wonders Latest Free macSpeech Software</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-simplify-your-meetings-using-zoom-to-upgrade-skype/"><u>2024 Approved Simplify Your Meetings Using Zoom to Upgrade Skype</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-streamlined-approach-to-add-linktree-in-tiktok-about-section/"><u>2024 Approved Streamlined Approach to Add Linktree in TikTok About Section</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-adventure-companion-unveiling-panasonic-hx-a1-actioncam/"><u>2024 Approved The Adventure Companion Unveiling Panasonic HX-A1 ActionCam</u></a></li>
-<li><a href="https://fox-info.techidaily.com/5-best-slow-motion-cameras-for-2024/"><u>5 Best Slow Motion Cameras for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-dialogue-systems-how-are-conversations-simulated-by-chatbots/"><u>Exploring Dialogue Systems: How Are Conversations Simulated by Chatbots?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/palm-2-vs-gpt-4-unveiling-key-differences/"><u>PaLM 2 Vs. GPT-4: Unveiling Key Differences</u></a></li>
-<li><a href="https://app-tips.techidaily.com/prepare-your-leaders-why-managerial-training-is-key-for-successful-ai-integration/"><u>Prepare Your Leaders: Why Managerial Training Is Key for Successful AI Integration</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-insiders-look-at-the-most-effective-instagram-tags-for-growth-for-2024/"><u>The Insider's Look at the Most Effective Instagram Tags for Growth for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-11-tips-to-make-product-ad-videos/"><u>Updated In 2024, 11 Tips to Make Product Ad Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-5-best-toy-drones/"><u>[New] 2024 Approved 5 Best Toy Drones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-calculating-earnings-the-essence-of-youtube-short-revenue-split/"><u>[New] 2024 Approved Calculating Earnings The Essence of YouTube Short Revenue Split</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-step-up-your-photo-game-with-these-ingenious-pixlr-techniques/"><u>[New] 2024 Approved Step Up Your Photo Game with These Ingenious Pixlr Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-streamline-visual-clarity-with-proficient-bg-removal-techniques/"><u>[New] 2024 Approved Streamline Visual Clarity with Proficient BG Removal Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>[New] In 2024, The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-pros-picks-the-best-11-soundstreamers-reviewed-for-2024/"><u>[New] Pro's Picks The Best 11 Soundstreamers Reviewed for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-understanding-the-basics-of-vsco-filters/"><u>[New] Understanding the Basics of VSCO Filters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-extract-unlimited-photographic-content-from-esteemed-4-video-channels-for-2024/"><u>[Updated] Extract Unlimited Photographic Content From Esteemed 4 Video Channels for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diy-solutions-to-restore-accurate-colors-and-align-images-on-your-desktop-or-laptop-screen/"><u>DIY Solutions to Restore Accurate Colors and Align Images on Your Desktop or Laptop Screen</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/exploring-multilingual-options-and-features-on-our-platform/"><u>Exploring Multilingual Options and Features on Our Platform</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-alternatives-is-the-sleek-and-economical-motorola-one-right-for-you/"><u>IPhone Alternatives – Is the Sleek and Economical Motorola One Right for You?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/navigating-youtube-feedback-a-user-guide-for-2024/"><u>Navigating YouTube Feedback A User Guide for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/next-gen-chip-wars-how-huawei-might-mirror-approaches-in-upcoming-kirin-processors-to-reflect-techniques-of-apple-and-intel/"><u>Next-Gen Chip Wars: How Huawei Might Mirror Approaches in Upcoming Kirin Processors to Reflect Techniques of Apple & Intel</u></a></li>
+<li><a href="https://games-able.techidaily.com/xbox-headset-woes-3-key-steps-for-troubleshooting/"><u>Xbox Headset Woes? 3 Key Steps for Troubleshooting</u></a></li>
 </ul></div>
 

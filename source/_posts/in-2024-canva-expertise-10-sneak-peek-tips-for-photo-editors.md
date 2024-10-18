@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Canva Expertise  10 Sneak Peek Tips for Photo Editors\""
-date: 2024-10-08T23:24:36.625Z
-updated: 2024-10-12T17:16:11.738Z
+date: 2024-10-11T17:04:14.968Z
+updated: 2024-10-18T17:50:16.547Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ Other interesting effects include BadTV, through which you can add cinematic and
 
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Add Text to Images
 
 Do you like to post Instagram or Facebook stories with catchy captions embedded in them? Canva photo editor online gives you huge and diverse options to add text on the images with fancy styles and colors. You can add an aligned text by adjusting it to various angles such as right, left, or center. Afterward, you can select the font, color, and style of your added text through finger swipes.
@@ -63,10 +56,23 @@ You can also manage the size of your text to make it look appropriate and suitab
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Add Frames to the Image
@@ -76,6 +82,13 @@ Do you know that adding a single frame to your photo can change the whole dynami
 On the other hand, frames like film 1 and film 2 are extremely trendy, and many social media influencers apply them to their photos. You can also utilize other classic frames according to your choice to give a new look to your favorite photos. Isn’t this good?
 
 ![use different canva photo frames](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Create YouTube Thumbnails
 
@@ -94,17 +107,23 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Make Photo Collage
@@ -119,13 +138,6 @@ If you are editing images for a product shoot, clothing brand, or any other proj
 
 ![design mockups through canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9\. Use Auto Focus and Blur
 
 Professional photographers use the features like auto-focus and blur to give depth or shallow of the field to the images. Canva photo editor has an option of “Auto Focus” to automatically adjust the focus of your photo to make it look sharp in high quality. On the other hand, using the option of "Blur" on this editor, you can blur certain parts of the image, such as the background or subjects of the picture.
@@ -135,10 +147,10 @@ By combining both of these features, you can easily craft a professional illustr
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\. Mix the Colors
@@ -150,10 +162,10 @@ Moreover, you can use filters and color palettes that match well with your theme
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -184,22 +196,17 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-acclaimed-websites-for-google-pixel-tonal-sounds/"><u>[New] Acclaimed Websites for Google Pixel Tonal Sounds</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-calm-cursor-3-pathways-to-mellow-watching-videos-on-youtube-57-chars-for-2024/"><u>[New] Calm Cursor 3 Pathways to Mellow Watching Videos on YouTube (57 Chars) for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-chuckles-and-cheers-top-tweets-saver-with-gif/"><u>[Updated] 2024 Approved Chuckles & Cheers Top Tweets Saver with GIF</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-insiders-look-at-the-most-effective-instagram-tags-for-growth/"><u>[Updated] The Insider's Look at the Most Effective Instagram Tags for Growth</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-bridging-photos-and-video-in-pixiz-a-comprehensive-guide/"><u>2024 Approved Bridging Photos & Video in Pixiz A Comprehensive Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-closing-credits-creations-affordable-premium-and-more/"><u>2024 Approved Closing Credits Creations Affordable, Premium & More</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-historys-high-scorers-on-reddit-top-10-list/"><u>2024 Approved History's High Scorers on Reddit - Top 10 List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ideal-virtual-screenscapes-for-streamers/"><u>2024 Approved Ideal Virtual Screenscapes for Streamers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-multitasking-with-picture-in-picture-mode-on-microsoft-edge-browser/"><u>2024 Approved Mastering Multitasking with Picture-in-Picture Mode on Microsoft Edge Browser</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-secure-your-place-in-the-metaverse-essential-devices-list/"><u>2024 Approved Secure Your Place in the Metaverse Essential Devices List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-selective-selections-notable-sites-for-snagging-snapalert-tunes/"><u>2024 Approved Selective Selections Notable Sites for Snagging SnapAlert Tunes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-essence-filmoras-top-10-enchanting-features/"><u>2024 Approved Unveiling the Essence Filmora’s Top 10 Enchanting Features</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/anymp4-screen-recorder-download-and-review/"><u>AnyMP4 Screen Recorder Download and Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-creativity-in-photo-deformation-for-2024/"><u>Crafting Creativity in Photo Deformation for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-story-viewers-uncharted-territory-explored-for-2024/"><u>Instagram Story Viewers Uncharted Territory Explored for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/masterclass-6-techniques-for-clear-unblemished-photo-edits-for-2024/"><u>Masterclass 6 Techniques for Clear, Unblemished Photo Edits for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-effortless-soloist-extraction-devices-catering-to-every-skill-tier/"><u>New 2024 Approved Effortless Soloist Extraction Devices Catering to Every Skill Tier</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-comprehensive-look-at-yis-4k-action-capabilities-for-2024/"><u>[New] A Comprehensive Look at Yi's 4K Action Capabilities for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-expert-insights-on-saving-smartphone-moments/"><u>[New] Expert Insights on Saving Smartphone Moments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-11-insider-tips-for-outstanding-hue-alignment/"><u>[Updated] 11 Insider Tips for Outstanding Hue Alignment</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/expert-choice-5-time-lapse-capturers-for-2024/"><u>Expert Choice 5 Time-Lapse Capturers for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/hardware-evaluation-and-expert-advice-from-toms-hardware/"><u>Hardware Evaluation & Expert Advice From Tom's Hardware</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-realme-c33-2023-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Realme C33 2023 to iPod | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-making-classroom-content-video-editing-insights/"><u>In 2024, Making Classroom Content Video Editing Insights</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/openais-sora-alternatives-6-free-models-you-shouldnt-miss-out-on/"><u>OpenAI's Sora Alternatives: 6 Free Models You Shouldn't Miss Out On!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/perfect-your-iphone-photo-craftsmanship-with-top-10-design-tips-for-2024/"><u>Perfect Your iPhone Photo Craftsmanship with Top 10 Design Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-role-of-workspace-dynamics-in-employee-output-for-2024/"><u>The Role of Workspace Dynamics in Employee Output for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/webex-audio-woes-overcome-common-mic-problems-with-these-fixes-2024-edition/"><u>Webex Audio Woes? Overcome Common Mic Problems with These Fixes - 2024 Edition</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/fb/"><u>うまくいかないFB動画：トラブルシューティングのコツとヒント</u></a></li>
 </ul></div>
 

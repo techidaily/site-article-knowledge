@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Visualizing Your Vision  The Art of Using LUTs in Photos\""
-date: 2024-10-06T19:35:33.641Z
-updated: 2024-10-12T21:55:55.982Z
+date: 2024-10-16T22:34:45.613Z
+updated: 2024-10-18T21:55:13.726Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
@@ -70,13 +70,6 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -84,6 +77,13 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -93,19 +93,19 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -124,10 +124,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -170,24 +170,20 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-convert-youtube-and-vimeo-videos-into-mp3-files/"><u>[Updated] How to Convert YouTube and Vimeo Videos Into MP3 Files</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-identifying-the-top-10-hidden-story-admirers-for-2024/"><u>[Updated] Identifying the Top 10 Hidden Story Admirers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-prime-video-trendsetters-top-likers-and-viewers-on-twitter/"><u>[Updated] In 2024, Prime Video Trendsetters Top Likers & Viewers on Twitter</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-revamp-your-tiktok-videos-insightful-strategies-for-backdrop-changes/"><u>[Updated] In 2024, Revamp Your TikTok Videos Insightful Strategies for Backdrop Changes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-complete-studio-exploration-in-depth-xvideoexamine/"><u>2024 Approved Complete Studio Exploration In-Depth XVideoExamine</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-dive-into-vlogging-your-first-set-of-tools/"><u>2024 Approved Dive Into Vlogging Your First Set of Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-empowering-your-iphones-capture-with-full-screen-images/"><u>2024 Approved Empowering Your iPhone's Capture with Full-Screen Images</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhancing-zooms-visual-clarity-tips-and-tricks/"><u>2024 Approved Enhancing Zoom's Visual Clarity Tips and Tricks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-8-webcam-modifiers-for-clearer-streams/"><u>2024 Approved Essential 8 Webcam Modifiers for Clearer Streams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-gimbal-selection-tips-for-aerial-photography/"><u>2024 Approved Essential Gimbal Selection Tips for Aerial Photography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-video-and-photography-makers-who-mix-sounds/"><u>2024 Approved Essential Video & Photography Makers Who Mix Sounds</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-photozoomelite-ultimate-picture-scaler/"><u>2024 Approved PhotoZoomElite Ultimate Picture Scaler</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-superior-drones-10-mastering-visuals-and-videos/"><u>2024 Approved Superior Drones #10 Mastering Visuals & Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/from-mobile-to-megascreen-a-step-by-step-guide-to-mirroring-content-onto-your-samsung-tv/"><u>From Mobile to Megascreen: A Step-by-Step Guide to Mirroring Content Onto Your Samsung TV</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/funnyframeforge-picfunnyfactory/"><u>FunnyFrameForge PicFunnyFactory</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-nokia-c300-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Nokia C300 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-essence-of-vimeo-user-friendly-video-service/"><u>In 2024, The Essence of Vimeo User-Friendly Video Service</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-edge-transforming-your-videography-with-precision-cropping-for-2024/"><u>Instagram's Edge Transforming Your Videography with Precision Cropping for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/tips-to-automate-amd-drivers-installationupdates/"><u>Tips to Automate AMD Drivers Installation/Updates</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-crafting-360-worlds-top-picks-between-samsung-and-lg/"><u>[New] Crafting 360 Worlds Top Picks Between Samsung & LG</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-drone-buying-basics-must-know-points-before-shopping/"><u>[New] Drone Buying Basics Must-Know Points Before Shopping</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-androids-top-visual-adjustment-tools/"><u>[New] In 2024, Android's Top Visual Adjustment Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-edge-essentials-the-best-borders-and-frame-choices-in-photography/"><u>[New] In 2024, Edge Essentials The Best Borders & Frame Choices in Photography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-complete-user-manual-to-facetunes-photo-fixes/"><u>[New] In 2024, The Complete User Manual to Facetune's Photo Fixes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-insiders-look-at-vlc-functionality-on-macbooks/"><u>[New] Insider's Look at VLC Functionality on MacBooks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-bring-out-canons-best-enjoy-10-free-luts-and-beyond-selection/"><u>[Updated] 2024 Approved Bring Out Canon's Best Enjoy 10 Free LUTs and Beyond Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-seamless-srt-discover-the-top-8-subs-to-srts-software-for-every-os/"><u>[Updated] 2024 Approved Seamless SRT Discover the Top 8 Subs to SRTS Software for Every OS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ensuring-effective-integration-with-apples-platform-for-2024/"><u>Ensuring Effective Integration with Apple's Platform for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-gionee-f3-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Gionee F3 Pro Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/instant-solutions-stop-roblox-from-freezing-on-pc-with-these-6-hacks/"><u>Instant Solutions: Stop Roblox From Freezing on PC with These 6 Hacks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resuscitating-silent-windows-headset-mic/"><u>Resuscitating Silent Windows Headset Mic</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-4-benefits-of-postponing-your-gaming-laptop-purchase-until-2025/"><u>Top 4 Benefits of Postponing Your Gaming Laptop Purchase Until 2025</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-freely-on-facebooks-data-management/"><u>Who Spoke Freely on Facebook’s Data Management?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Urban and Rural Carry Capabilities  Top 10 Drones for 2024\""
-date: 2024-10-09T19:29:50.644Z
-updated: 2024-10-12T22:15:14.316Z
+date: 2024-10-11T21:44:08.373Z
+updated: 2024-10-18T17:05:35.552Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -69,10 +62,10 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
@@ -110,10 +103,10 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Heavy lifting Drones: Over-10kg payload
@@ -134,13 +127,6 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
 #### 4\. [FREEFLY ALTA 8](https://www.amazon.com/gp/product/B01IPYJM8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IPYJM8I&linkId=94a786b60aab874baf4feb7315107813)
@@ -155,9 +141,23 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -186,24 +186,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-straightforward-screen-capture-app-win10-edition/"><u>[New] 2024 Approved Straightforward Screen Capture App, Win10 Edition</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-7-superior-mac-video-applications/"><u>[New] 7 Superior Mac Video Applications</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-clip-courage-embracing-twitters-viral-vanguard/"><u>[Updated] Clip Courage Embracing Twitter's Viral Vanguard</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-an-all-inclusive-examination-of-inshots-video-edits/"><u>2024 Approved An All-Inclusive Examination of InShot's Video Edits</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-compare-metaverse-vs-omniverse-an-ultimate-guide/"><u>2024 Approved Compare Metaverse Vs. Omniverse An Ultimate Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-crafting-memes-with-ease-on-9gag-platform/"><u>2024 Approved Crafting Memes with Ease on 9GAG Platform</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-examining-ffmpeg-written-by-user/"><u>2024 Approved Examining FFmpeg' Written by User</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-formulating-fascinating-film-excerpts/"><u>2024 Approved Formulating Fascinating Film Excerpts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-gourmet-gems-7-tips-to-transform-your-kitchen-cinematography/"><u>2024 Approved Gourmet Gems 7 Tips to Transform Your Kitchen Cinematography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-file-shift-quick-and-easy-transfer-tactics-for-the-computer/"><u>2024 Approved Mastering File Shift Quick and Easy Transfer Tactics for the Computer</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-navigating-powerpoints-voice-recognition-lands-market/"><u>2024 Approved Navigating PowerPoint's Voice Recognition Lands Market</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-lg-bp350-a-detailed-performance-and-design-study/"><u>2024 Approved Unveiling the LG BP350 A Detailed Performance & Design Study</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-you-need-to-know-about-samsungs-2025-lineup-event-details-major-announcements-and-tech-rumors-coverage/"><u>All You Need to Know About Samsung's 2025 Lineup – Event Details, Major Announcements, and Tech Rumors Coverage</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/eyepoint-expertise-essay-for-2024/"><u>Eyepoint Expertise Essay for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-gt-3-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme GT 3</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-honor-magic-6-pro-bootloader-easily-by-drfone-android/"><u>How to Unlock Honor Magic 6 Pro Bootloader Easily</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/recovering-lost-iphone-histories-a-guide-to-retrieving-deleted-browser-and-search-records/"><u>Recovering Lost iPhone Histories: A Guide to Retrieving Deleted Browser & Search Records</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fixed-most-effective-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro-for-2024/"><u>[New] [Fixed] Most-Effective 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-configuring-zoom-step-by-step-video-conference-guide/"><u>[New] In 2024, Configuring Zoom Step-by-Step Video Conference Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-laugh-ledger-10-hilarious-tweets/"><u>[New] Laugh Ledger 10 Hilarious Tweets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-gopro-hero5-session-review/"><u>[Updated] 2024 Approved GoPro Hero5 Session Review</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-leading-charts-to-screen-videos/"><u>[Updated] 2024 Approved Leading Charts to Screen Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-top-10-elite-sites-for-high-res-vectors/"><u>[Updated] 2024 Approved Top 10 Elite Sites For High-Res Vectors</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-vid-recorders-vault-top-techniques-for-tv-streaming/"><u>[Updated] 2024 Approved Vid-Recorder's Vault Top Techniques for TV Streaming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-easy-steps-to-change-fins-sounds-in-windows/"><u>[Updated] Easy Steps to Change Fins' Sounds in Windows</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-8-free-vids-tools-superior-windows-and-mac-3d-player-plugins/"><u>[Updated] Top 8 FREE Vids Tools Superior Windows & Mac 3D Player Plugins</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-tecno-spark-10-4g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Tecno Spark 10 4G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/elevate-your-campaigns-with-these-powerful-words/"><u>Elevate Your Campaigns with These Powerful Words</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/essential-considerations-when-investing-in-a-non-subscribed-phone/"><u>Essential Considerations When Investing in a Non-Subscribed Phone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-guide-to-cleansing-image-backdrops-for-2024/"><u>Essential Guide to Cleansing Image Backdrops for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/fast-track-strategies-revealing-your-computers-gpu/"><u>Fast-Track Strategies: Revealing Your Computer's GPU</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-how-to-manipulate-iphone-pics-flip-tilt-and-more/"><u>In 2024, How to Manipulate iPhone Pics Flip, Tilt & More</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/securing-professional-confidentiality-safeguarding-data-with-chatgpt/"><u>Securing Professional Confidentiality: Safeguarding Data with ChatGPT</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamlined-multitasking-in-safari-with-pip-for-2024/"><u>Streamlined Multitasking in Safari with PIP for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/tormented-souls-game-stability-issues-how-to-fix-crashes-on-windows/"><u>Tormented Souls Game Stability Issues: How to Fix Crashes on Windows</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-meizu-21-pro-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Meizu 21 Pro to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

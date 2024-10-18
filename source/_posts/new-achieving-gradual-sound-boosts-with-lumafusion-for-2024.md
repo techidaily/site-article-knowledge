@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Gradual Sound Boosts with Lumafusion for 2024"
-date: 2024-10-11T22:39:33.190Z
-updated: 2024-10-12T18:00:03.911Z
+date: 2024-10-16T16:39:13.813Z
+updated: 2024-10-18T18:06:21.812Z
 tags: 
   - screen-recording
   - ai video
@@ -73,6 +73,13 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
@@ -81,16 +88,22 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -114,13 +127,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -128,10 +134,10 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4 Share and export
@@ -147,10 +153,10 @@ In that window, you can select the MP3 format in the format customization box to
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
@@ -158,10 +164,10 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -192,19 +198,24 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-mastering-marketing-magic-20-keywords-for-profound-impact/"><u>[New] 2024 Approved Mastering Marketing Magic 20 Keywords for Profound Impact</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-techniques-for-alluring-fb-video-marketing/"><u>[New] 2024 Approved Techniques for Alluring FB Video Marketing</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-compreeved-tips-on-using-vlcs-video-tools/"><u>[New] In 2024, Compreeved Tips on Using VLC's Video Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-spotlight-on-windows-11-innovations/"><u>[New] In 2024, Spotlight on Windows 11 Innovations</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-unveiling-the-best-10-video-call-apps-for-iphone-and-android-users/"><u>[New] In 2024, Unveiling the Best 10 Video Call Apps for iPhone and Android Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-strategic-approaches-to-googles-podcast-submission-protocol/"><u>[New] Strategic Approaches to Google’s Podcast Submission Protocol</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-androids-low-cost-video-call-app-selection/"><u>[Updated] 2024 Approved Android's Low Cost Video Call App Selection</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-forget-not-fundamental-cinematography-for-aspiring-directors/"><u>[Updated] Forget Not Fundamental Cinematography for Aspiring Directors</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-illustrators-playground-navigating-through-top-8-iphone-drawing-tools-for-2024/"><u>[Updated] Illustrators' Playground Navigating Through Top 8 iPhone Drawing Tools for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-conquer-the-vr-world-your-first-vr-adventure/"><u>[Updated] In 2024, Conquer the VR World Your First VR Adventure</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-enhancing-your-feed-with-new-instagram-filters/"><u>2024 Approved Enhancing Your Feed with New Instagram Filters</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-from-live-demos-to-replays-tapping-into-aiseesoft-screencast-potential/"><u>In 2024, From Live Demos to Replays Tapping Into Aiseesoft Screencast Potential</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-create-stunning-gif-loops-with-these-free-makers-for-2024/"><u>New Create Stunning GIF Loops with These Free Makers for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elite-list-of-best-videocall-services-without-cost/"><u>[New] 2024 Approved Elite List of Best Videocall Services Without Cost</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-infuse-kinetic-smear-into-photos-in-photoshop/"><u>[New] 2024 Approved Infuse Kinetic Smear Into Photos in Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fine-tuning-zoom-visuals-top-techniques-for-2024/"><u>[New] Fine-Tuning Zoom Visuals Top Techniques for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-crafting-the-future-revolutionary-tools-for-3d-modelers/"><u>[New] In 2024, Crafting the Future Revolutionary Tools for 3D Modelers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-essential-guide-to-radiant-android-videos/"><u>[New] The Essential Guide to Radiant Android Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-transform-images-into-captivating-gifs/"><u>[New] Transform Images Into Captivating GIFs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-20-words-and-phrases-that-work-magic-in-your-marketing/"><u>[Updated] 20 Words and Phrases That Work Magic in Your Marketing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-expand-your-online-realm-harnessing-youtube-insights-powerfully-for-2024/"><u>[Updated] Expand Your Online Realm Harnessing YouTube Insights Powerfully for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-past-to-present-using-camera-roll-in-snapchats/"><u>[Updated] From Past To Present Using Camera Roll in Snapchats</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-metamorphic-mentations-vr-enhanced-metaphysical-reflections/"><u>[Updated] Metamorphic Mentations VR-Enhanced Metaphysical Reflections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-power-of-multitasking-mastering-ffpm-for-2024/"><u>[Updated] The Power of Multitasking Mastering FFPM for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-step-by-step-approach-to-organizing-your-w11-space/"><u>A Step by Step Approach to Organizing Your W11 Space</u></a></li>
+<li><a href="https://article-helps.techidaily.com/a-step-by-step-guide-to-mastering-magix-video-pro-x-for-2024/"><u>A Step-by-Step Guide to Mastering Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-12-5g-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi 12 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-iphone-15-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-banner-blueprints-a-gamers-design-handbook/"><u>In 2024, YouTube Banner Blueprints A Gamers' Design Handbook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-samsung-converter-convert-mkv-for-samsung-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Samsung converter - convert MKV for Samsung</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-filmmakers-guide-to-accompanying-unboxings-with-tunes-for-2024/"><u>The Filmmaker's Guide to Accompanying Unboxings with Tunes for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oppo-a38-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Oppo A38 Device</u></a></li>
 </ul></div>
 

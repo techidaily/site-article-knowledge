@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cutting-Edge Ways of Shooting with a Fisheye Lens\""
-date: 2024-10-11T18:28:14.474Z
-updated: 2024-10-12T16:47:16.438Z
+date: 2024-10-16T18:16:05.022Z
+updated: 2024-10-18T16:52:15.581Z
 tags: 
   - screen-recording
   - ai video
@@ -35,18 +35,18 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
 
@@ -67,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stitching 360 degrees panoramas after shooting
@@ -80,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -99,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Conclusion
@@ -110,6 +103,19 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -136,18 +142,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-share-twitch-stream-on-facebook/"><u>[New] 2024 Approved How to Share Twitch Stream on Facebook?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-aim-for-perfection-selecting-superior-hd-live-streaming-equipment/"><u>[New] Aim for Perfection Selecting Superior HD Live-Streaming Equipment</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/xtract-subtitles-for-free-top-10-tools-reviewed/"><u>[New] Extract Subtitles for Free Top 10 Tools Reviewed</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-overcoming-frame-loss-in-high-pace-broadcasts-with-obs-for-2024/"><u>[Updated] Overcoming Frame Loss in High-Pace Broadcasts with OBS for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhancing-game-experience-with-voice-alteration-on-ps45/"><u>2024 Approved Enhancing Game Experience with Voice Alteration on PS4/5</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-hero5-users-blueprint-for-incredible-time-lapse-videos/"><u>2024 Approved The Hero5 User's Blueprint for Incredible Time-Lapse Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-understanding-adobe-storage-alternatives-explained/"><u>2024 Approved Understanding Adobe Storage, Alternatives Explained</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unlock-your-pcs-potential-exciting-new-windows-10-games/"><u>2024 Approved Unlock Your PC’s Potential Exciting New Windows 10 Games</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-tecno-camon-30-pro-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Tecno Camon 30 Pro 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/canon-mf8500c-software-and-driver-download-for-pcs-running-windows-78110/"><u>Canon MF8500C Software and Driver Download for PCs Running Windows 7/8.1/10</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-unexpected-store-exception-bug-in-windows-10-a-step-by-step-guide/"><u>Fixing 'Unexpected Store Exception' Bug in Windows 10: A Step-by-Step Guide</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-14-proipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 14 Pro/iPad Without Computer | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-magic-5-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor Magic 5 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-seamlessly-incorporate-video-tracks-in-youtube-lists/"><u>[New] 2024 Approved How to Seamlessly Incorporate Video Tracks in YouTube Lists</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-asmr-a-sound-path-to-wellness/"><u>[New] ASMR A Sound Path to Wellness?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-asmrs-good-side-benefits-revealed-now/"><u>[New] ASMR's Good Side Benefits Revealed Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-revisiting-video-broadcast-choices-post-wirecast/"><u>[Updated] 2024 Approved Revisiting Video Broadcast Choices Post-Wirecast</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-noise-free-ai-transcription-technology/"><u>[Updated] In 2024, Noise-Free AI Transcription Technology</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-complete-guide-to-netflix-screen-capture-discover-six-efficient-ways-on-macos-for-2024/"><u>[Updated] The Complete Guide to Netflix Screen Capture - Discover Six Efficient Ways on macOS for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-make-a-youtube-trailer-for-2024/"><u>How To Make a YouTube Trailer for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-moto-g34-5g-bootloader-easily-by-drfone-android/"><u>How to Unlock Motorola Moto G34 5G Bootloader Easily</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-decoding-adobes-cloud-storage-features-and-benefits-with-contrasting-solutions/"><u>In 2024, Decoding Adobe’s Cloud Storage Features & Benefits with Contrasting Solutions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/profile-perfection-expert-tips-for-personalized-and-engaging-fb-biographies-for-2024/"><u>Profile Perfection Expert Tips for Personalized and Engaging FB Biographies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-and-clear-swap-clown-fins-voices-on-pcs-for-2024/"><u>Quick & Clear Swap Clown Fins' Voices on PCs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-10-best-android-and-ios-clock-apps-for-a-perfectly-countdownwedding-for-2024/"><u>The 10 Best Android & iOS Clock Apps for a Perfectly Countdownwedding for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-realme-c53-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Realme C53 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-vr-content-developers-you-should-know/"><u>Top VR Content Developers You Should Know</u></a></li>
 </ul></div>
 

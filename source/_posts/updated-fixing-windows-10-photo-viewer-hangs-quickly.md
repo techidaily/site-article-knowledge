@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fixing Windows 10 Photo Viewer Hangs Quickly"
-date: 2024-10-05T22:33:33.883Z
-updated: 2024-10-12T17:24:33.872Z
+date: 2024-10-11T21:48:20.086Z
+updated: 2024-10-18T17:56:42.209Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -66,10 +66,10 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
@@ -88,13 +88,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -104,6 +97,13 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -117,10 +117,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -167,21 +167,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-master-your-mac-the-top-gif-recorder-choices/"><u>[New] In 2024, Master Your Mac The Top GIF Recorder Choices</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-soundtracking-dreams-an-overview-of-magix-fx/"><u>[New] Soundtracking Dreams An Overview of Magix FX</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-high-dynamic-range-luminances-impact-review/"><u>[Updated] High Dynamic Range Luminance's Impact Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a-beginners-guide-to-advanced-techniques-in-gopro-studio-for-2024/"><u>A Beginner's Guide to Advanced Techniques in GoPro Studio for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a6400s-visual-void-finding-video-fix/"><u>A6400's Visual Void - Finding Video Fix</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/anonymous-live-on-instagram-the-sneaky-techniques-for-2024/"><u>Anonymous Live on Instagram The Sneaky Techniques for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/apple-writes-a-new-chapter-m1-pro-vs-m1-max-analysis-for-2024/"><u>Apple' Writes a New Chapter M1 Pro Vs. M1 Max Analysis for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/astral-adventures-with-your-luxury-sj4000-essential-accompaniments-for-2024/"><u>Astral Adventures with Your Luxury SJ4000 - Essential Accompaniments for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/best-radio-drama-scripts/"><u>Best Radio Drama Scripts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/best-web-conversion-solutions-for-direct-hassle-free-gif-to-video/"><u>Best Web Conversion Solutions For Direct, Hassle-Free GIF To Video</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/clearing-up-tips-for-preventing-gopro-haze-for-2024/"><u>Clearing Up Tips for Preventing GoPro Haze for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/dive-into-the-game-world-grab-lenovos-powerhouse-legion-slim-5-rtx-4060-gpu-at-an-unbeatable-price-of-899/"><u>Dive Into the Game World: Grab Lenovo's Powerhouse Legion Slim 5, RTX 4060 GPU at an Unbeatable Price of $899</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/exploring-the-intelligent-features-of-android-systems/"><u>Exploring the Intelligent Features of Android Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-conversion-of-swf-files-to-3gp-format-moveavis-online-tool/"><u>Free Conversion of SWF Files to 3GP Format - Moveavi's Online Tool</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-co-creating-video-marketing-with-brand-participants/"><u>In 2024, Co-Creating Video Marketing with Brand Participants</u></a></li>
-<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ultimate-speed-and-quality-picture-reader/"><u>[New] 2024 Approved Ultimate Speed & Quality Picture Reader</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-18-high-resolution-cameras-for-professionals-for-2024/"><u>[New] Top 18 High-Resolution Cameras for Professionals for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-gopro-hero5-black-vs-hero5-standard/"><u>[Updated] In 2024, GoPro Hero5 Black vs Hero5 Standard</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-noise-reduction-for-videographers-best-freepriced-choices/"><u>[Updated] Noise Reduction for Videographers Best Free/Priced Choices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-optimizing-your-virtual-gaming-experience-with-kinemaster-and-its-competitors/"><u>[Updated] Optimizing Your Virtual Gaming Experience with KineMaster & Its Competitors</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-itunes-radio-downloading-blueprint/"><u>[Updated] The Complete iTunes Radio Downloading Blueprint</u></a></li>
+<li><a href="https://fox-within.techidaily.com/convert-your-free-pdfs-into-interactive-flash-magazines-effortless-no-cost/"><u>Convert Your Free PDFs Into Interactive Flash Magazines - Effortless, No Cost!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-audio-sanctuary-gear-2024/"><u>Exploring the Best Audio Sanctuary Gear 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-unleash-potential-in-digital-art-top-10-android-drawing-app-reviews/"><u>In 2024, Unleash Potential in Digital Art Top 10 Android Drawing App Reviews</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lightning-fast-lore-resurrecting-reddit-articles-lost-for-2024/"><u>Lightning-Fast Lore Resurrecting Reddit Articles Lost for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionize-your-editing-with-fcps-premier-tools-for-2024/"><u>Revolutionize Your Editing with FCP's Premier Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-art-of-shots-essential-tips-for-capturing-great-iphone-images/"><u>The Art of Shots Essential Tips for Capturing Great iPhone Images</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-x100-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo X100</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-zoom-tricks-for-chromebook-users/"><u>Ultimate Zoom Tricks for Chromebook Users</u></a></li>
 </ul></div>
 
