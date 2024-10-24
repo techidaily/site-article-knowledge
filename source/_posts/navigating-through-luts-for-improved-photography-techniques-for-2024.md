@@ -1,7 +1,7 @@
 ---
 title: "Navigating Through LUTs for Improved Photography Techniques for 2024"
-date: 2024-10-11T22:01:14.856Z
-updated: 2024-10-18T18:01:20.423Z
+date: 2024-10-20T16:38:23.227Z
+updated: 2024-10-24T16:00:17.952Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,16 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
@@ -71,10 +77,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -86,10 +92,10 @@ Choose Adjustment Layer
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 load 3d lut
@@ -108,10 +114,10 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Here's the second one
@@ -170,18 +176,20 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-top-12-interactive-pc-adventures-to-boost-your-clicking/"><u>[New] 2024 Approved Top 12 Interactive PC Adventures to Boost Your Clicking</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-elite-scripting-developing-a-countdown-mechanism-in-obs/"><u>[New] Elite Scripting Developing a Countdown Mechanism in OBS</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-best-youtube-video-reverser-online-plushowtos-for-2024/"><u>[Updated] Best YouTube Video Reverser Online [+Howtos] for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-charting-the-top-8-online-photo-hybrid-creator/"><u>2024 Approved Charting the Top 8 Online Photo Hybrid Creator</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-know-how-for-video-filter-integration-on-digital-platforms/"><u>2024 Approved Essential Know-How for Video Filter Integration on Digital Platforms</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-the-art-of-choosing-high-quality-hdr-cameras/"><u>2024 Approved Mastering the Art of Choosing High-Quality HDR Cameras</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-proven-strategies-for-precise-web-based-photo-cropping/"><u>2024 Approved Proven Strategies for Precise Web-Based Photo Cropping</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-8-3d-websites-with-stunning-gold-text-visuals/"><u>2024 Approved Top 8 3D Websites with Stunning Gold Text Visuals</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comparing-roku-express-and-stick-understanding-their-unique-aspects/"><u>Comparing Roku Express and Stick: Understanding Their Unique Aspects</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-s24-ultra-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Samsung Galaxy S24 Ultra Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-motorola-edge-40-pro-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Motorola Edge 40 Pro Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-the-web-to-uncover-someones-email-tips-and-techniques/"><u>Navigating the Web to Uncover Someone's Email: Tips and Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/et-filmmaker-pro-for-2024/"><u>Snippet Filmmaker Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enhancing-content-quality-on-periscope/"><u>[New] 2024 Approved Enhancing Content Quality on Periscope</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-minimizing-movement-blur-in-media/"><u>[New] In 2024, Minimizing Movement Blur in Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-turning-views-into-cash-secrets-to-successful-facebook-video-money-making/"><u>[New] In 2024, Turning Views Into Cash Secrets to Successful Facebook Video Money-Making</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-tales-for-twilight-film-analysis-for-2024/"><u>[New] Tales for Twilight Film Analysis for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-get-snapchat-on-mac-easy-guide-for-2024/"><u>[Updated] How to Get Snapchat on Mac? [Easy Guide] for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-insight-into-quadcopters-functionality-uncovered/"><u>[Updated] Insight Into Quadcopters Functionality Uncovered</u></a></li>
+<li><a href="https://media-tips.techidaily.com/comprehensive-entertainment-package-disneyplus-plus-hulu-plus-max-release-in-summer/"><u>Comprehensive Entertainment Package: Disney+ + Hulu + MAX Release in Summer!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-strategies-for-organizing-chatgpt-interactions-with-dedicated-folders/"><u>Effective Strategies for Organizing ChatGPT Interactions with Dedicated Folders</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-honor-magic-5-pro-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Honor Magic 5 Pro FRP In 3 Different Ways</u></a></li>
+<li><a href="https://win-blog.techidaily.com/navigating-through-armored-core-(userid)pc-crashes-an-in-depth-fix-tutorial/"><u>Navigating Through Armored Core <User_id>PC Crashes: An In-Depth Fix Tutorial</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-10-top-vocal-remover-software-for-karaoke-music-production-and-more/"><u>New 2024 Approved 10 Top Vocal Remover Software for Karaoke, Music Production, and More</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/quintessential-gopro-modifications/"><u>Quintessential Gopro Modifications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-the-geforce-shadow-play-installation-error-step-by-step-guide/"><u>Resolving the GeForce Shadow Play Installation Error: Step-by-Step Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/twitch-writers-picks-5-ultimate-cams-for-gameplay-broadcasting/"><u>Twitch' Writers’ Picks 5 Ultimate Cams for Gameplay Broadcasting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/voters-victories-reddits-most-popular-threads-top-10/"><u>Voters' Victories Reddit’s Most Popular Threads (Top 10)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Simulate Hand-Held Camera Effects in Photoshop for 2024\""
-date: 2024-10-12T21:04:42.176Z
-updated: 2024-10-18T22:17:19.590Z
+date: 2024-10-18T16:03:49.670Z
+updated: 2024-10-24T16:27:24.075Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ Motion blur is created on photos to increase the aesthetic element of photograph
 
 Many professional photographers also create this effect by slowing down the shutter speed of the camera. In this case, using a tripod is necessary to effortlessly create a motion blur effect in still images. The motion blur effect is not only restricted to still images, but it is also added in movies, video games, and 3D renders. Thus, it's one of the commonly used effects which adds a cinematic element to your photos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add the Motion Blur Effect to Your Photos in Photoshop?
 
 Do you know how to motion blur in Photoshop? Creating a motion blur effect while capturing photos can be tricky and complicated. That's why many people use professional photo editors like [Photoshop](https://www.adobe.com/products/photoshop.html) to add a motion blur effect to the captured photos. Photoshop has always been considered to be a professional photo editor as it can generate high-quality outputs.
@@ -49,20 +56,27 @@ Step1 First, download and install the Photoshop tool on your PC. Upload your pic
 
 ![duplicate the layer](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Now head to the "Filter" section and locate the option called "Blur." From the drop-down menu, select "Radial Blur." From the new window, adjust the amount to 10 and choose "Spin" in the "Blur Method" section.
 
 ![adjust the radial blur settings](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Under the "Quality" section, select "Best." Once done, click on the "OK" button. Wait for some time until the changes get saved. Now head back to the Layer section and tap on the "Vector Mask" option given below. Afterward, select the "Brush" tool from the left side.
 
 ![choose the brush tool](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Now head to the "Flow" option displayed above and decrease the flow percentage to 50\. Also, choose a black color for the foreground. Now, using the "Brush," press on some of the areas of the face to add some depth of field.
 
@@ -72,16 +86,16 @@ Step5 Head back to the layer section and select the bottom layer. Now copy the l
 
 ![choose the motion blur](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6 Now set the angle on the displayed window and adjust the distance to 200 pixels. Once done, press the "OK "button. For this layer, add a mask and execute the dabbing process on the face as we did before. For more modifications, you can add a high-contrast black-and-white effect to your photo.
 
 ![adjust motion blur distance](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tips – The Alternative to Photoshop to Create Motion Blur Effect
 
@@ -103,25 +117,11 @@ Start by launching Wondershare Filmora on your Windows or macOS device. Next, cl
 
 ![import your picture](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 2 Split the Clip
 
 After importing the picture, drag it to the timeline. Now play the clip on the timeline carefully. Pause the play head where you want to create a motion blur. Tap on the "Scissor" icon on the timeline to split your clip. Perform the same steps on your clip where you want to end the motion blur effect.
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step 3 Go to the Effects Tab
 
@@ -140,19 +140,6 @@ Now play your clip to see the results on your screen. You can adjust its paramet
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -173,16 +160,10 @@ Start by launching Wondershare Filmora on your Windows or macOS device. Next, cl
 ![import your picture](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-8.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 2 Split the Clip
@@ -191,24 +172,37 @@ After importing the picture, drag it to the timeline. Now play the clip on the t
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 3 Go to the Effects Tab
 
 Navigate to the "Effects" section and locate the "Background Blur" option. Afterward, you would be able to see tons of blur effects. Next, choose your favorite blur effect from the options and apply it to the specific part of your clip on the timeline.
 
 ![access the background blurs](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 4 Adjust the Parameters
 
 Now play your clip to see the results on your screen. You can adjust its parameters by proceeding to the "Transitions" tab. Here, select the "Dissolve" option. By applying this transition effect, you can quickly make your clip look smooth. For more modifications, you can also adjust the phase increment and zoom rate.
 
 ![choose the dissolve transition](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-11.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 5 Export the Blurred Photo File
 
@@ -217,10 +211,10 @@ Once you are done with editing, access the "Export" setting of Filmora. Choose y
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -251,21 +245,22 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-complete-connoisseurs-manual-for-expertise-in-morphvox-voice-changing-for-2024/"><u>[New] Complete Connoisseur’s Manual for Expertise in MorphVOX Voice Changing for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-analyzing-social-media-reach-for-igtv-videos-for-2024/"><u>[Updated] Analyzing Social Media Reach for IGTV Videos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1-disabling-automatic-screen-brightness-a-step-by-step-guide-for-android-devices/"><u>1. Disabling Automatic Screen Brightness: A Step-by-Step Guide for Android Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-online-websites-for-acquiring-thrones-rhythms/"><u>2024 Approved Essential Online Websites for Acquiring Thrones Rhythms</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-green-frameworks-30plus-downloads-that-transform-your-videography-skills/"><u>2024 Approved Green Frameworks 30+ Downloads That Transform Your Videography Skills</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ideal-steadicam-pairings-with-premium-dslr-cameras/"><u>2024 Approved Ideal Steadicam Pairings with Premium DSLR Cameras</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagrams-video-response-rate-how-to-increase-it/"><u>2024 Approved Instagram's Video Response Rate How to Increase It</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-key-steps-to-ace-zoom-with-a-chromebook/"><u>2024 Approved Key Steps to Ace Zoom with a Chromebook</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-quadcopter-showdown-dji-pro-and-hero-4-black/"><u>2024 Approved Quadcopter Showdown DJI Pro and Hero 4 Black</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-reel-in-the-future-top-5-ps-vr-games-on-the-brink-of-launch/"><u>2024 Approved Reel in the Future Top 5 PS VR Games on The Brink of Launch</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-reviving-your-windows-photo-viewer-approaches-for-w10-enthusiasts/"><u>2024 Approved Reviving Your Windows Photo Viewer Approaches for W10 Enthusiasts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-transformative-techniques-applying-luts-for-dynamic-effects-in-after-effects/"><u>2024 Approved Transformative Techniques Applying LUTs for Dynamic Effects in After Effects</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/direct-platform-comparison-choosing-between-obs-and-twitch-studio/"><u>Direct Platform Comparison Choosing Between OBS & Twitch Studio</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/insta-pro-tip-ensuring-your-high-res-pictures-fit-seamlessly-on-instagram/"><u>Insta-Pro Tip: Ensuring Your High-Res Pictures Fit Seamlessly on Instagram</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-get-rid-of-tiktok-watermarks-the-best-online-removal-methods/"><u>New In 2024, Get Rid of TikTok Watermarks The Best Online Removal Methods</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-benq-bl2711u-masterpiece-in-the-realm-of-high-definition-monitors/"><u>[New] 2024 Approved BenQ BL2711U - Masterpiece in the Realm of High-Definition Monitors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-editorial-efficiency-m1s-smooth-performance-unveiled/"><u>[New] Editorial Efficiency M1's Smooth Performance Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-expert-advice-where-to-download-high-quality-background-music-for-2024/"><u>[New] Expert Advice Where to Download High-Quality Background Music for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-humor-hacks-a-compendium-of-top-meme-makers-for-2024/"><u>[New] Humor Hacks A Compendium of Top Meme Makers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-voice-interpretation-without-a-price-tag/"><u>[New] In 2024, Voice Interpretation Without a Price Tag</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-pro-tips-to-perfect-minecraft-pixelation/"><u>[New] Pro Tips to Perfect Minecraft Pixelation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-11-best-dji-phantom-4-accessories-to-buy/"><u>[New] Top 11 Best DJI Phantom 4 Accessories to Buy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-daily-video-size-summation-total-gb-cost/"><u>[Updated] 2024 Approved Daily Video Size Summation Total GB Cost</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-visual-geniuses-cache-unbeatable-afx-samples-at-zero-price/"><u>[Updated] Visual Geniuses' Cache Unbeatable AFX Samples at Zero Price</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-techniques-to-launch-a-viral-solo-podcast-for-2024/"><u>Essential Techniques to Launch a Viral Solo Podcast for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-calendar-events-iphone-14-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Retrieve Deleted Calendar Events iPhone 14? | Stellar</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-navigating-full-hd-display-on-twitter-videos/"><u>In 2024, Navigating Full HD Display on Twitter Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-seamlessly-accessing-vids-the-top-5-free-online-video-extractors/"><u>In 2024, Seamlessly Accessing Vids The Top 5 Free Online Video Extractors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/on-visioners-dissecting-the-money-behind-the-numbers/"><u>Million Visioners Dissecting the Money Behind the Numbers</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-s23-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - S23</u></a></li>
 </ul></div>
 

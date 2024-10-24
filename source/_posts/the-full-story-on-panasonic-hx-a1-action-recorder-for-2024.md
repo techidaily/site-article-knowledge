@@ -1,7 +1,7 @@
 ---
 title: "\"The Full Story on Panasonic HX-A1 Action Recorder for 2024\""
-date: 2024-09-04T17:10:27.205Z
-updated: 2024-09-05T17:10:27.205Z
+date: 2024-10-18T16:05:47.115Z
+updated: 2024-10-24T16:07:16.072Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -63,12 +70,6 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -107,11 +108,12 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -141,11 +143,12 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -155,17 +158,12 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -189,4 +187,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-augmenting-yi-4k-capture-top-accessory-picks/"><u>[New] 2024 Approved Augmenting YI 4K Capture Top Accessory Picks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>[New] Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-craft-clever-comical-content/"><u>[Updated] 2024 Approved Craft Clever, Comical Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-passive-to-profitable-8-beginners-revenue-hacks-for-youtube-for-2024/"><u>[Updated] From Passive to Profitable 8 Beginner's Revenue Hacks for YouTube for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-captivating-creativity-designing-a-distinctive-podcast-image/"><u>[Updated] In 2024, Captivating Creativity Designing a Distinctive Podcast Image</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/advanced-tools-for-efficiently-converting-xmlssattml-to-srt/"><u>Advanced Tools for Efficiently Converting XML/SSA/TTML to SRT</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or Apple iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-light-intensity-in-hdr-scrutinized-beneficial/"><u>In 2024, Light Intensity in HDR Scrutinized Beneficial?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-tunefabs-top-screen-recorder-picks/"><u>In 2024, Tunefab's Top Screen Recorder Picks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/navigating-the-speed-control-interface-on-snapchat/"><u>Navigating The Speed Control Interface on Snapchat</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-ultimate-list-of-3d-animation-and-modelling-programs-for-2024/"><u>The Ultimate List of 3D Animation and Modelling Programs for 2024</u></a></li>
+</ul></div>
 

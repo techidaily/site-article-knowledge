@@ -1,7 +1,7 @@
 ---
 title: "HPE’s Cutting-Edge El Capitan Servers: Outfitted with AMD Instinct MI300A, Gear Up to Capture the Title of Fastest Supercomputer This Year"
-date: 2024-10-11T17:59:59.328Z
-updated: 2024-10-18T21:17:58.546Z
+date: 2024-10-21T16:49:34.863Z
+updated: 2024-10-24T16:20:11.371Z
 tags:
   - desktop
 categories:
@@ -64,23 +64,28 @@ These are the specifications of the two Asus ROG NUC models:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-experience-unchained-reviewing-the-panasonic-hx-a1/"><u>[New] Experience Unchained Reviewing the Panasonic HX-A1</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-optimizing-call-and-chat-preservation-in-the-digital-age-fb-edition-for-2024/"><u>[New] Optimizing Call & Chat Preservation in the Digital Age FB Edition for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-become-a-design-pro-expertise-in-bypassing-backgrounds-with-canva/"><u>[Updated] Become a Design Pro Expertise in Bypassing Backgrounds with Canva</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevate-your-mind-while-you-multitask-top-15-ideas-for-podcast-lovers/"><u>[Updated] Elevate Your Mind While You Multitask Top 15 Ideas for Podcast Lovers</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/1-free-guide-combine-videos-seamlessly-with-windows-software/"><u>1. Free Guide: Combine Videos Seamlessly with Windows Software</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723004963256-assassins-creed-valhalla-launch-postponement-heres-why-it-happened/"><u>Assassin’s Creed Valhalla Launch Postponement - Here's Why It Happened</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/avoid-external-gaming-capture-tools-stream-your-game-sessions-with-steam/"><u>Avoid External Gaming Capture Tools: Stream Your Game Sessions with Steam</u></a></li>
-<li><a href="https://article-files.techidaily.com/deep-dive-into-acid-pro-functionality-and-alternatives/"><u>Deep Dive Into ACID Pro Functionality & Alternatives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/express-yourself-smartly-kapwings-meme-crafting/"><u>Express Yourself Smartly Kapwing's Meme Crafting</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-quick-color-concealment-in-premiere/"><u>In 2024, Quick Color Concealment in Premiere</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-infinix-note-30-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Infinix Note 30 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-windows-10-screen-recording-tools-the-ultimate-selection/"><u>[New] 2024 Approved Windows 10 Screen Recording Tools - The Ultimate Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fine-tune-your-videos-mood-with-custom-sound-design-for-2024/"><u>[New] Fine-Tune Your Video's Mood with Custom Sound Design for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-spectral-time-freeze-instruction/"><u>[New] In 2024, Spectral Time-Freeze Instruction</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leveraging-xml-and-ttml-for-cutting-edge-srt-creation-processes-for-2024/"><u>[New] Leveraging XML & TTML for Cutting-Edge SRT Creation Processes for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-peeking-beyond-one-camera-limitations/"><u>[New] Peeking Beyond One-Camera Limitations</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-the-secrets-of-high-conversion-rates-in-youtube-banner-designs/"><u>[New] Unlocking the Secrets of High Conversion Rates in YouTube Banner Designs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-visual-virtuosity-the-ultimate-collection-of-11-expert-tutorials/"><u>[Updated] 2024 Approved Visual Virtuosity The Ultimate Collection of 11 Expert Tutorials</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-cutting-edge-tactics-for-effective-cricket-streaming/"><u>[Updated] Cutting-Edge Tactics for Effective Cricket Streaming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-excellent-gopro-video-processing-systems/"><u>[Updated] In 2024, Excellent GoPro Video Processing Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-creatives-handbook-obtaining-stock-visuals-for-media/"><u>[Updated] In 2024, The Creative's Handbook Obtaining Stock Visuals for Media</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-10-heavy-lift-drones-for-2024/"><u>[Updated] Top 10 Heavy Lift Drones for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-game-on-youtube-top-11-video-seo-insights-for-2024/"><u>Elevate Your Content Game on YouTube Top 11 Video SEO Insights for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-seamless-transition-fb-video-sharing-via-whatsapp/"><u>In 2024, Seamless Transition FB Video Sharing via WhatsApp</u></a></li>
+<li><a href="https://win-data.techidaily.com/langeweile-loswerden-mit-dem-wiederaufbau-von-windows-ebenso-einfach-wie-nie-zuvor-keine-cdusb-erforderlich/"><u>Langeweile Loswerden Mit Dem Wiederaufbau Von Windows Ebenso Einfach Wie Nie Zuvor – Keine CD/USB Erforderlich!</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolved-windows-7-printer-unresponsive/"><u>Resolved: Windows 7 Printer Unresponsive</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-9-best-photography-management-tools-of-2024-complete-guide/"><u>Top 9 Best Photography Management Tools of 2024: Complete Guide</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

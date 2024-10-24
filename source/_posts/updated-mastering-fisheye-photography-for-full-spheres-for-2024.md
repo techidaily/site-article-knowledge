@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Fisheye Photography for Full Spheres for 2024"
-date: 2024-10-12T23:05:09.284Z
-updated: 2024-10-18T23:05:53.653Z
+date: 2024-10-23T16:14:09.646Z
+updated: 2024-10-24T16:08:17.993Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
@@ -42,10 +49,17 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -53,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -66,13 +87,6 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -80,19 +94,6 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -109,13 +110,6 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -142,21 +136,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-find-youtube-collaboration-partners/"><u>[New] 2024 Approved How to Find YouTube Collaboration Partners?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-removing-unwanted-audio-from-videos-essential-steps/"><u>[Updated] In 2024, Removing Unwanted Audio From Videos - Essential Steps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-control-screen-size-with-swift-iphone-adjustments/"><u>2024 Approved Control Screen Size with Swift iPhone Adjustments</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-face-id-vs-snapchats-face-unlock-the-apple-vs-samsung-debate/"><u>2024 Approved Face ID Vs. Snapchat's Face Unlock The Apple Vs. Samsung Debate</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-navigating-the-world-of-digital-sound-capture-a-deep-dive/"><u>2024 Approved Navigating the World of Digital Sound Capture A Deep Dive</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-premier-comedy-photo-stylist-tool/"><u>2024 Approved Premier Comedy Photo Stylist Tool</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-transforming-photos-remove-background-with-ease/"><u>2024 Approved Transforming Photos Remove Background with Ease</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-vault-selection-for-top-corporate-use/"><u>2024 Approved Vault Selection for Top Corporate Use</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-your-journey-begins-here-vlogging-essentials/"><u>2024 Approved Your Journey Begins Here Vlogging Essentials</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-logitech-wireless-wheels-on-windows-download-now-windows-7810/"><u>Get Your Logitech Wireless Wheels on Windows - Download Now (Windows 7/8/10)</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-can-i-recover-lost-notes-from-my-ipad-tips-on-retrieval-with-or-without-a-backup/"><u>How Can I Recover Lost Notes From My iPad? Tips on Retrieval with or without a Backup</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/leaders-shaping-immersive-digital-experiences/"><u>Leaders Shaping Immersive Digital Experiences</u></a></li>
-<li><a href="https://techtrends.techidaily.com/snapchat-revival-tips-how-to-reactivate-your-account-quickly/"><u>Snapchat Revival Tips: How to Reactivate Your Account Quickly</u></a></li>
-<li><a href="https://network-issues.techidaily.com/solving-vanished-screen-blackouts/"><u>Solving Vanished Screen Blackouts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-capturing-clarity-iphone-low-light-techniques/"><u>[New] 2024 Approved Capturing Clarity IPhone Low Light Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-maximizing-your-visual-potential-online/"><u>[New] 2024 Approved Maximizing Your Visual Potential Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-edge-1-ranked-4k-gaming-pcs/"><u>[New] In 2024, Leading Edge #1 Ranked 4K Gaming PCs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unveiling-the-secrets-of-professional-srt-file-generation-for-2024/"><u>[New] Unveiling the Secrets of Professional SRT File Generation for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-novice-cinematographers-initial-work-analysis-and-replacements/"><u>[Updated] 2024 Approved Novice Cinematographer's Initial Work Analysis & Replacements</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dji-flight-setups-starter-package-advanced-configs-4k-professional-edition/"><u>[Updated] In 2024, DJI Flight Setups Starter Package, Advanced Configs, 4K Professional Edition</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-video-beats-into-ringtones-must-visit-sites-explored/"><u>2024 Approved Transform Video Beats Into Ringtones Must-Visit Sites Explored</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-crafting-engaging-dialogue-in-screenplays/"><u>In 2024, Crafting Engaging Dialogue in Screenplays</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-itel-a60s-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Itel A60s to Protect Your Individual Information</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-meizu-21-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Meizu 21 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-top-6-business-driven-social-networks/"><u>In 2024, Top 6 Business-Driven Social Networks</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/privacy-protection-in-video-editing-top-face-blurring-techniques-for-2024/"><u>Privacy Protection in Video Editing Top Face Blurring Techniques for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/right-orientation-fix-in-win7-mode/"><u>Right Orientation Fix in Win7 Mode</u></a></li>
+<li><a href="https://games-able.techidaily.com/superior-battery-solutions-the-premier-ps5-dualsense-controller-chargers/"><u>Superior Battery Solutions: The Premier PS5 DualSense Controller Chargers</u></a></li>
+<li><a href="https://win-community.techidaily.com/top-rated-software-for-adding-watermarks-on-youtube-videos/"><u>Top Rated Software for Adding Watermarks on YouTube Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/zero-price-maximum-fun-quickmemes-101/"><u>Zero Price, Maximum Fun QuickMemes 101</u></a></li>
 </ul></div>
 

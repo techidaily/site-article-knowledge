@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The New Era  Advancements in VR Technology\""
-date: 2024-10-11T17:02:32.621Z
-updated: 2024-10-18T17:27:37.607Z
+date: 2024-10-20T16:46:55.001Z
+updated: 2024-10-24T16:46:44.536Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
@@ -47,22 +54,21 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -71,16 +77,10 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -90,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -121,17 +121,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-crystal-clear-audio-top-10-podcast-mics/"><u>[New] 2024 Approved Crystal Clear Audio Top 10 Podcast Mics</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-srt-from-basics-to-cutting-edge-techniques/"><u>[New] 2024 Approved SRT From Basics to Cutting-Edge Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-fundamentals-for-newcomers-on-screen-quality-measures/"><u>[Updated] In 2024, Fundamentals for Newcomers on Screen Quality Measures</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-complete-manual-taking-editing-and-sharing-display-images/"><u>[Updated] In 2024, The Complete Manual Taking, Editing, and Sharing Display Images</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-perfecting-presentation-adding-fonts-to-ae-projects/"><u>[Updated] Perfecting Presentation Adding Fonts to AE Projects</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-compression-to-clarity-the-zip-srt-conversion/"><u>2024 Approved From Compression to Clarity The ZIP-SRT Conversion</u></a></li>
-<li><a href="https://article-posts.techidaily.com/avoidance-of-unplanned-pauses-during-photobooth-sessions/"><u>Avoidance of Unplanned Pauses During Photobooth Sessions</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-motorola-moto-g73-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Motorola Moto G73 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-android-trick-changing-media-order-sequence/"><u>In 2024, Android Trick Changing Media Order Sequence</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-iphone-15-plus-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your iPhone 15 Plus on MetroPCS</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/master-the-shift-dual-methods-for-upgrading-your-windows-10-vm-to-the-latest-os/"><u>Master the Shift: Dual Methods for Upgrading Your Windows 10 VM to the Latest OS!</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/tutorial-pemulihan-file-gigabyte-windows-1011-jawaban-cara-mudah/"><u>Tutorial Pemulihan File Gigabyte Windows 10/11 - Jawaban Cara Mudah!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-gastronomy-gurus-the-elite-of-food-vlogs/"><u>[New] In 2024, Gastronomy Gurus The Elite of Food Vlogs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-retrospective-of-stop-motion-films-top-15-honorees/"><u>[New] Retrospective of Stop-Motion Films - Top 15 Honorees</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-engage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers/"><u>[Updated] 2024 Approved Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-brand-consistency-in-action-inserting-logoswatermarks-into-videos/"><u>[Updated] In 2024, Brand Consistency in Action Inserting Logos/Watermarks Into Videos</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/a-deep-dive-into-metaverse-vs-multi-meva-key-differences-explored/"><u>A Deep Dive Into Metaverse Vs. Multi-Meva Key Differences Explored</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/achieving-zero-expense-in-picture-filled-content-for-2024/"><u>Achieving Zero Expense in Picture-Filled Content for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/action-cams-duel-black-hero5-against-sj7/"><u>Action Cams Duel Black Hero5 Against SJ7</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/actors-deal-for-downloadable-movie-content/"><u>Actors' Deal for Downloadable Movie Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/android-video-enhancement-strategies-for-2024/"><u>Android Video Enhancement Strategies for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-free-video-apps-on-multiple-desktops-for-2024/"><u>Best Free Video Apps on Multiple Desktops for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/captivation-craftsman-for-posters-for-2024/"><u>Captivation Craftsman for Posters for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-y78plus-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y78+ Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamline-playtime-fixing-minecraft-exit-failures/"><u>Streamline Playtime: Fixing Minecraft Exit Failures</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trouble-with-windows-10-booting-up-discover-simple-solutions-now/"><u>Trouble with Windows 10 Booting Up? Discover Simple Solutions Now</u></a></li>
+<li><a href="https://driver-install.techidaily.com/updated-windows-syncing-hd-audio-with-hardware/"><u>Updated Windows Syncing HD Audio with Hardware</u></a></li>
 </ul></div>
 

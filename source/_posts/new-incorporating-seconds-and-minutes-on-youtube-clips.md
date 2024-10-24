@@ -1,7 +1,7 @@
 ---
 title: "[New] Incorporating Seconds and Minutes on YouTube Clips"
-date: 2024-10-13T23:10:17.538Z
-updated: 2024-10-18T21:10:27.676Z
+date: 2024-10-22T16:35:36.323Z
+updated: 2024-10-24T16:15:54.356Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,19 @@ A YouTube timestamp is a way to link to a specific moment in your video. When vi
 
 You can then share the link as you wish.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Using the Video Sharing Button to Share Timestamps
 
 1. Go to YouTube and find the video you'd like to share.
@@ -53,15 +66,22 @@ You can then share the link as you wish.
 
 ![share timestamps](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Check the _**“Start at \[time slot\]”**_ box in the popup menu that appears.
 
 ![popup menu](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. If you need to adjust the time marker manually, tap the _**“time”**_ and enter a new value.
@@ -73,13 +93,6 @@ You can then share the link as you wish.
 ![select copy](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-5.jpg)
 
 Viewers are taken immediately to the desired timestamp when they click the copied link. The video starts to play at that point.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Link to a YouTube Timestamp Manually
 
@@ -113,13 +126,6 @@ It is also important to note that referring to a specific timestamp does not mea
 
 Finally, remember that the formula for a time period is t=Xs or t=XmYs. You modify X and Y to reflect your own time values. Short URLs starting with "youtu.be" use "?" first, while long URLs starting with "youtube.com/watch?v=" use "&" before the time data.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Using link generator to add timestamp
 
 The methods above to add and submit a timestamped YouTube link are quick and easy but have a few limitations. If you need more control and sharing of YouTube video highlights without cutting the video, you need to use third-party link generators.
@@ -130,15 +136,15 @@ Link generators allow you to not only share specific parts of videos from YouTub
 
 ![edit the time](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. To confirm whether the jump time is right, you can simply click on the generated link. If the verification is successful, you can then copy the address.
 2. You will get a dedicated link to your video with the option to embed it on your website or blog.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to add a timestamp in YouTube comments or description
 
@@ -154,10 +160,10 @@ Here's the guide to adding a timestamp to a YouTube comment or description:
 The process is simple - just write the time you want to redirect viewers to in the comment. The timestamp format is hours:minutes:seconds (no spaces). Make sure the time format is correct, then a timestamp with a jump link will be generated automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -179,6 +185,13 @@ Part 1\. How to add a timestamp to YouTube video?
 3. Right-click the video and select _**“Copy video URL video at current time.”**_
 
 ![youtube timestamp](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can then share the link as you wish.
 
@@ -203,20 +216,19 @@ You can then share the link as you wish.
 ![select copy](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Viewers are taken immediately to the desired timestamp when they click the copied link. The video starts to play at that point.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Link to a YouTube Timestamp Manually
 
@@ -260,15 +272,15 @@ Link generators allow you to not only share specific parts of videos from YouTub
 
 ![edit the time](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. To confirm whether the jump time is right, you can simply click on the generated link. If the verification is successful, you can then copy the address.
 2. You will get a dedicated link to your video with the option to embed it on your website or blog.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to add a timestamp in YouTube comments or description
 
@@ -317,20 +329,24 @@ Timestamps can help you share information with your audience without having to w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-insights-for-youtube-content-protection/"><u>[New] 2024 Approved Essential Insights for YouTube Content Protection</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-complete-rotation-videography-equipment/"><u>[Updated] Cutting Edge Complete Rotation Videography Equipment</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-streamline-screen-recording-for-gaming-joy-for-2024/"><u>[Updated] Streamline Screen Recording for Gaming Joy for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-cost-free-webm-viewing-a-list-of-industry-standouts/"><u>2024 Approved Cost-Free WebM Viewing A List of Industry Standouts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-data-size-and-time-coefficient-in-video-files-20mb/"><u>2024 Approved Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-exceptional-book-video-examples/"><u>2024 Approved Exceptional Book Video Examples</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-leverage-slug-lines-in-articles/"><u>2024 Approved How to Leverage Slug Lines in Articles</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-outstanding-unlimited-space-service-index/"><u>2024 Approved Outstanding Unlimited Space Service Index</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-simplify-satire-funniest-memes-made-simple/"><u>2024 Approved Simplify Satire Funniest Memes Made Simple</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/cookiebot-driven-solutions-elevating-online-experience-and-seo-strategies/"><u>Cookiebot-Driven Solutions: Elevating Online Experience and SEO Strategies</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-huawei-p60-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Huawei P60 for Streaming | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamline-your-pc-sound-with-new-windows-audio-drivers/"><u>Streamline Your PC Sound with New Windows Audio Drivers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-how-to-master-switch-pro-controller-gaming-in-steam-for-2024/"><u>[New] How to Master Switch Pro Controller Gaming in Steam for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-capture-the-spectacular-our-selection-of-prime-cameras/"><u>[New] In 2024, Capture the Spectacular - Our Selection of Prime Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enter-the-metaverse-top-tech-must-haves-revealed/"><u>[New] In 2024, Enter the Metaverse Top Tech Must-Haves Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-in-depth-look-at-facetune-complete-app-revision/"><u>[New] In 2024, In-Depth Look at Facetune Complete App Revision</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-digital-space-with-ease-via-onestream-platform/"><u>[New] Navigating the Digital Space with Ease via OneStream Platform</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-reimagining-action-filming-the-complete-review-of-sj7s-star-cam/"><u>[New] Reimagining Action Filming The Complete Review of SJ7's Star Cam</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-leaderboard-15-prime-online-photo-editor-choices-2023-free-for-2024/"><u>[New] The Leaderboard 15 Prime Online Photo Editor Choices, 2023 (Free) for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-integrating-slug-lines-into-your-writing-process/"><u>[Updated] 2024 Approved Integrating Slug Lines Into Your Writing Process</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-why-filmora-captivates-its-top-ten-creative-capabilities/"><u>[Updated] 2024 Approved Why Filmora Captivates Its Top Ten Creative Capabilities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-enhancing-visual-experiences-a-deep-dive-into-video-enhancer-22/"><u>[Updated] Enhancing Visual Experiences A Deep Dive Into Video Enhancer 2.2</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-culinary-cinema-mastery-the-7-pathways-to-delectable-vids/"><u>[Updated] In 2024, Culinary Cinema Mastery - The 7 Pathways to Delectable Vids</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-efficient-image-capture-try-these-top-5-pc-tools/"><u>[Updated] In 2024, Efficient Image Capture? Try These Top 5 PC Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-hack-free-guide-to-anonymous-instagram-story-viewing/"><u>2024 Approved Hack-Free Guide to Anonymous Instagram Story Viewing</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-the-latest-in-computer-components-with-toms-tech-reviews/"><u>Exploring the Latest in Computer Components with Tom's Tech Reviews</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/guida-passo-passo-alla-creazione-di-un-backup-di-windows-11-in-due-modalita-distinte/"><u>Guida Passo-Passo Alla Creazione Di Un Backup Di Windows 11 in Due Modalità Distinte</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-x90s-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo X90S Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/protocols-and-performance-macos-meets-mixer-for-2024/"><u>Protocols and Performance MacOS Meets Mixer for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/test-drive-review-the-glion-dolly-expensive-elaborate-and-swift-movement-unveiled/"><u>Test Drive Review: The Glion Dolly - Expensive, Elaborate, and Swift Movement Unveiled</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-oneplus-nord-ce-3-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My OnePlus Nord CE 3 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

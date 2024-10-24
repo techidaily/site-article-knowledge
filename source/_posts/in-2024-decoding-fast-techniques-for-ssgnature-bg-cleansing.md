@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding Fast Techniques for Ssgnature Bg Cleansing"
-date: 2024-09-04T17:10:25.531Z
-updated: 2024-09-05T17:10:25.531Z
+date: 2024-10-22T16:15:44.006Z
+updated: 2024-10-24T16:05:19.227Z
 tags: 
   - screen-recording
   - ai video
@@ -66,12 +66,6 @@ If for some reason, you don't have Microsoft Word or it's not working for you, t
 | [**Remove.bg**](#%5FRemove.bg)                                 | Free            | Extremely Easy | Great               | 4.5 Stars |
 | [**Pixlr**](#%5FPixlr)                                         | Free            | Easy           | Good                | 3.5 Stars |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Canva
 
 Canva is among the most used online image editing tools on the planet. It features an incredibly stable performance and includes a few tools that rival Photoshop. Its signature background remover will get the job done in seconds. The app is free, but the signature background removal tool inside isn't.
@@ -85,6 +79,13 @@ It's simple. Go to [Canva.com](https://www.canva.com/) and follow these steps.
 
 ![create a design on canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-design.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Choose a suggested resolution template or input a custom size
 
 ![choose custom size canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-size.png)
@@ -94,21 +95,23 @@ It's simple. Go to [Canva.com](https://www.canva.com/) and follow these steps.
 ![remove signature background canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-background-remover.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 1. Finally, export the image with a transparent background. This ensures you can use the signature without a background anywhere you want.
 
 ![download transparent background canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-download.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Canva Pros & Cons
 
  Pros
@@ -123,18 +126,6 @@ It's simple. Go to [Canva.com](https://www.canva.com/) and follow these steps.
 
 * The signature background remover online tool is not included with the free plan
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Clipping Magic
 
 Compared to Canva, [Clipping Magic](https://clippingmagic.com/) is twice as fast and simple. That's because Clipping Magic is designed solely for this purpose — removing backgrounds from all sorts of images. This tool is effective but it's not free. Their pricing plans range from $2/mo to $11/mo.
@@ -147,18 +138,6 @@ It will take you no longer than a minute to remove the background of any signatu
 
 ![clipping magic homepage](https://images.wondershare.com/filmora/article-images/2023/03/clipping-magic.png)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Wait a few seconds and click **Download** when it's done
 
 ![clipping magic signature remover](https://images.wondershare.com/filmora/article-images/2023/03/clipping-magic-download.png)
@@ -194,6 +173,13 @@ Click on **Download** and you're all done.
 
 ![remove background adobe photoshop express](https://images.wondershare.com/filmora/article-images/2023/03/adobe-download.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Remove.bg
 
 [Remove.bg](https://www.remove.bg/) is a website that strictly offers to remove backgrounds from images. There's nothing more, nothing less. That's it. There's only one button. You click it and the background of your signature is removed. Best of all, it's completely free.
@@ -204,12 +190,6 @@ Once you go to [Remove.bg](https://www.remove.bg/), you will see a blue button. 
 
 ![remove image background](https://images.wondershare.com/filmora/article-images/2023/03/remove-bg.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 After this, select the image you want to use. It will remove it in less than 2 seconds. Once it's done, click on **Download**, and that's it.
 
 It instantly downloads the image without asking you for donations or to sign up and create an account. Trust me when I saw — this is as simple as it gets.
@@ -229,12 +209,6 @@ It instantly downloads the image without asking you for donations or to sign up 
 * HD images aren't free. But, the quality for the free signature images is still great
 * No additional editing features
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pixlr
 
 Pixlr offers a bit more than just removing the background of signatures. It's actually an online photo editor. While using it for removing backgrounds is perfectly fine, you can always get a lot more out of this tool if you want.
@@ -245,18 +219,6 @@ Don't open the Pixlr image editor if you simply want to remove the background of
 
 ![pixlr background remover](https://images.wondershare.com/filmora/article-images/2023/03/pixlr-background-remover.png)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Click on the "+", select your photo, and click **Save.**
 
 If you want, you can edit in bulk as well. It will download all the signatures as a Zip file which you then have to extract on your computer.
@@ -293,29 +255,31 @@ It's simple. Go to [Canva.com](https://www.canva.com/) and follow these steps.
 
 ![create a design on canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-design.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Choose a suggested resolution template or input a custom size
 
 ![choose custom size canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-size.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Select your image, click on **Edit Image** and use the **Background Remover Tool**
 
 ![remove signature background canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-background-remover.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Finally, export the image with a transparent background. This ensures you can use the signature without a background anywhere you want.
 
 ![download transparent background canva](https://images.wondershare.com/filmora/article-images/2023/03/canva-download.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Canva Pros & Cons
 
@@ -330,6 +294,13 @@ It's simple. Go to [Canva.com](https://www.canva.com/) and follow these steps.
  Cons
 
 * The signature background remover online tool is not included with the free plan
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Clipping Magic
 
@@ -347,12 +318,6 @@ It will take you no longer than a minute to remove the background of any signatu
 
 ![clipping magic signature remover](https://images.wondershare.com/filmora/article-images/2023/03/clipping-magic-download.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Clipping Magic Pros & Cons
 
  Pros
@@ -384,6 +349,13 @@ Click on **Download** and you're all done.
 
 ![remove background adobe photoshop express](https://images.wondershare.com/filmora/article-images/2023/03/adobe-download.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Remove.bg
 
 [Remove.bg](https://www.remove.bg/) is a website that strictly offers to remove backgrounds from images. There's nothing more, nothing less. That's it. There's only one button. You click it and the background of your signature is removed. Best of all, it's completely free.
@@ -394,18 +366,6 @@ Once you go to [Remove.bg](https://www.remove.bg/), you will see a blue button. 
 
 ![remove image background](https://images.wondershare.com/filmora/article-images/2023/03/remove-bg.png)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 After this, select the image you want to use. It will remove it in less than 2 seconds. Once it's done, click on **Download**, and that's it.
 
 It instantly downloads the image without asking you for donations or to sign up and create an account. Trust me when I saw — this is as simple as it gets.
@@ -435,12 +395,6 @@ Don't open the Pixlr image editor if you simply want to remove the background of
 
 ![pixlr background remover](https://images.wondershare.com/filmora/article-images/2023/03/pixlr-background-remover.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Click on the "+", select your photo, and click **Save.**
 
 If you want, you can edit in bulk as well. It will download all the signatures as a Zip file which you then have to extract on your computer.
@@ -460,18 +414,6 @@ If you want, you can edit in bulk as well. It will download all the signatures a
 * It's not always 100% accurate
 * If you want to fine-tune the background removal, you need to pay for premium
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We all know the hassle of not having a good signature image when it's really urgent. Fortunately, now you know how to remove signature's background in just a few seconds. So, whenever the need comes up again, you'll be ready.
@@ -498,4 +440,24 @@ We all know the hassle of not having a good signature image when it's really urg
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-radiant-palette-adjuster/"><u>[New] Radiant Palette Adjuster</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-comparing-broadcast-tools-go-with-wirecast-or-obs/"><u>[Updated] 2024 Approved Comparing Broadcast Tools Go With Wirecast or OBS?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-discovering-youtubes-finest-storyweavers/"><u>[Updated] 2024 Approved Discovering YouTube's Finest Storyweavers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-instagram-increasingdecreasing-stories-frame-rate/"><u>[Updated] 2024 Approved Mastering Instagram Increasing/Decreasing Stories' Frame Rate</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-synchronizing-dates-with-visual-memories/"><u>[Updated] 2024 Approved Synchronizing Dates with Visual Memories</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-detailed-ice-cream-snapshot-analysis-report/"><u>[Updated] In 2024, Detailed Ice Cream Snapshot Analysis Report</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-simplify-multitasking-on-iphone-activatedeactivate-youtubes-pip-feature/"><u>[Updated] Simplify Multitasking on iPhone Activate/Deactivate YouTube's PIP Feature</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tiny-tale-telling-framework/"><u>2024 Approved Tiny Tale Telling Framework</u></a></li>
+<li><a href="https://fox-that.techidaily.com/boosting-smartphone-internet-speed-a-10-point-strategy-to-overcome-slowdowns/"><u>Boosting Smartphone Internet Speed: A 10-Point Strategy to Overcome Slowdowns</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-samsung-galaxy-a05-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Samsung Galaxy A05 Phone? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-5-pioneering-portals-to-streamline-your-text-effects-search/"><u>In 2024, 5 Pioneering Portals to Streamline Your Text Effects Search</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-demystifying-t-series-income-streams-via-youtube-platforms/"><u>In 2024, Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-a60-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel A60 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/stepwise-process-enhancing-document-editing-via-googles-speech-to-text/"><u>Stepwise Process Enhancing Document Editing via Google's Speech-to-Text</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-pinnacle-guide-to-uncomplicated-online-live-streams/"><u>The Pinnacle Guide to Uncomplicated Online Live Streams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-chairs-elite-executive-model-x4-assessed-prime-selection-for-work-efficiency/"><u>X-Chair's Elite Executive Model X4 Assessed: Prime Selection for Work Efficiency</u></a></li>
+</ul></div>
 

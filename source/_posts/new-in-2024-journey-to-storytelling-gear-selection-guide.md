@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Journey to Storytelling  Gear Selection Guide\""
-date: 2024-09-04T17:10:26.404Z
-updated: 2024-09-05T17:10:26.404Z
+date: 2024-10-17T16:21:24.739Z
+updated: 2024-10-24T16:04:26.534Z
 tags: 
   - screen-recording
   - ai video
@@ -41,14 +41,22 @@ Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cine
 ![travel vlog camera](https://images.wondershare.com/filmora/article-images/2022/07/travel-vlog-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Lenses
 
 Lenses are the most vital part of your camera; it brings light to a fixed object. Will it make a huge impact on your cinematic shot? For your montage? For your b-roll? Yes, yes, and also yes. The use of lenses has a greater and different impact because it has a contrasting effect, especially for sharpness, depth of field, details, and background blur. It is the most important parameter depending on the situation that you might have for traveling. For example, I used Sigma 16mm, a wide lens, which is good for landscape photography or montage. Another one is Sigma 30mm, this lens is good for mid-range shot portraits and it creates a dramatic effect while capturing a person or an object.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Gimbal
 
@@ -56,12 +64,6 @@ Nowadays, many filmmakers and famous vloggers are using gimbals. We often use th
 
 ![vlog gimbal](https://images.wondershare.com/filmora/article-images/2022/07/vlog-gimbal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Action Camera
 
 This is one of my favorite pieces of equipment and frequently used camera, the GoPro 9\. A lot of content creators that I know are using action cameras for their daily vlogging. No doubt and no questions at all because this are the smallest camera that you can get on the market. Is it too pricey? Unfortunately, yes, but some brands are not. Since it is the smallest of all, the price that you pay will be worth it. It is very convenient; you can put it in your small bag and it can also fit in your pocket. Very easy to use and the resolution you get is superior. Undeniably, this is my go-to camera. You can use it in any rough situation, that is why this cute little thing has a lot to offer.
@@ -69,17 +71,12 @@ This is one of my favorite pieces of equipment and frequently used camera, the G
 ![action camera](https://images.wondershare.com/filmora/article-images/2022/07/action-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 5\. Batteries, External SSD, and Memory card
 
 In any case, we needed a few accessories to support our equipment better. Simple things like an extra pair of batteries for your camera and action came. External SSD is a big help especially when you're running out of memory on your computer. Memory card with a lot of storage space, I consider this an important part of my accessory kit. Make those two, and always have a spare card with you because anything can happen. So be prepared.
@@ -87,17 +84,12 @@ In any case, we needed a few accessories to support our equipment better. Simple
 ![battery ssd card](https://images.wondershare.com/filmora/article-images/2022/07/battery-ssd-card.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. Laptop, desktop, or phone for editing
 
 In my own experience, every time I go out and visit different places, I always have my laptop with me, so that I can easily transfer my files and start the editing process. Constantly, when I have spare time or I'm not doing anything while resting during the trip, I start editing to make progress gradually. This can save my time. I'm going to show you how I transfer my files and edit my video by **STABILIZING** your video that makes it better in **Wondershare Filmora.**
@@ -109,11 +101,12 @@ In my own experience, every time I go out and visit different places, I always h
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Stabilize the Video in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ##### Step1NEW PROJECT
@@ -135,17 +128,12 @@ just drag and drop simple as that
 ![drag and drop](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step4STABILIZING THE VIDEO
 
 choose the TOOLS
@@ -153,6 +141,13 @@ choose the TOOLS
 select video and you can choose Stabilization
 
 ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
 
@@ -180,36 +175,12 @@ from there you can choose and select which video you would like to import
 
 ![import files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3DRAG AND DROP
 
 just drag and drop simple as that
 
 ![drag and drop](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4STABILIZING THE VIDEO
 
 choose the TOOLS
@@ -219,11 +190,18 @@ select video and you can choose Stabilization
 ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
 
 there you go. analyzing the video means its working 100% you will see the difference from shaky to smooth and stabilize video
@@ -256,4 +234,22 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-understanding-and-implementing-slug-line-rules/"><u>[New] 2024 Approved Understanding and Implementing Slug Line Rules</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-simplifying-the-process-how-to-install-and-use-ez-grabber/"><u>[New] In 2024, Simplifying the Process How to Install and Use EZ Grabber</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-instantpodstreams-a-step-by-step-approach-to-live-broadcasting-for-2024/"><u>[New] InstantPodStreams A Step-by-Step Approach to Live Broadcasting for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-winning-over-viewers-a-comprehensive-guide-to-growing-followers-for-2024/"><u>[New] Winning Over Viewers A Comprehensive Guide to Growing Followers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-downgrading-macos-sierra-to-os-x-el-capitan-for-2024/"><u>[Updated] Downgrading MacOS Sierra to OS X El Capitan for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-smart-selections-top-10-apps-for-in-the-moment-baseball-and-soccer-viewing/"><u>[Updated] In 2024, Smart Selections Top 10 Apps for In-the-Moment Baseball and Soccer Viewing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-latest-lg-360-camera-features-and-review/"><u>[Updated] Latest LG 360 Camera Features and Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/comprehensive-guide-recording-your-zoom-sessions-tips-for-hosts-and-participants/"><u>Comprehensive Guide: Recording Your Zoom Sessions - Tips for Hosts and Participants</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/create-professional-discs-with-no-cost-using-winx-dvd-burner-made-for-windows-1110-enthusiasts/"><u>Create Professional Discs with No Cost Using WinX DVD Burner Made For Windows 11/10 Enthusiasts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-realme-12plus-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Realme 12+ 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/individual-differences-for-2024/"><u>Individual Differences for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/journey-through-powerdirector-2024-complete-review-and-walkthrough/"><u>Journey Through PowerDirector 2024 Complete Review & Walkthrough</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pinnacle-panoramics-selecting-the-best-8k-cameras-for-2024/"><u>Pinnacle Panoramics Selecting the Best 8K Cameras for 2024</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/reviving-lost-memories-step-by-step-instructions-for-rescuing-video-files-on-sd-cards/"><u>Reviving Lost Memories: Step-by-Step Instructions for Rescuing Video Files on SD Cards</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-heart-of-video-editing-filmoras-favorites/"><u>The Heart of Video Editing Filmora's Favorites</u></a></li>
+</ul></div>
 
