@@ -1,7 +1,7 @@
 ---
 title: "\"Enhancing Engagement  Best Practices for B Roll Integration\""
-date: 2024-10-21T16:17:20.236Z
-updated: 2024-10-24T17:00:41.341Z
+date: 2024-10-23T11:12:37.032Z
+updated: 2024-10-29T23:12:54.712Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,10 @@ On the other hand, cutaways can show how different people react to what is being
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -61,10 +61,10 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -75,15 +75,22 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -101,13 +108,6 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,19 +143,20 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-rewind-on-request-swift-iphone-video-flip/"><u>[New] In 2024, Rewind on Request Swift iPhone Video Flip</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-simplifying-visual-transformations-utilizing-luts-for-obs-videos/"><u>[New] In 2024, Simplifying Visual Transformations Utilizing LUTs for OBS Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-perfecting-the-art-of-capturing-spoken-words-digitally-for-2024/"><u>[New] Perfecting the Art of Capturing Spoken Words Digitally for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-leading-microphone-reviews-podcastings-best/"><u>[Updated] In 2024, Leading Microphone Reviews Podcasting's Best</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-google-ar-decorations-and-their-competing-products/"><u>2024 Approved Google AR Decorations & Their Competing Products</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/exploring-dynamic-range-in-photos-auto-hdr-and-smart-hdr-modules-for-2024/"><u>Exploring Dynamic Range in Photos Auto HDR and Smart HDR Modules for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/gently-reducing-volume-level-in-fl-beats/"><u>Gently Reducing Volume Level in FL Beats</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guida-semplice-a-tagliare-video-in-mac-con-movavi-tutorial-passo-passo/"><u>Guida Semplice a Tagliare Video in Mac Con Movavi - Tutorial Passo-Passo</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi Redmi Note 12 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-oppo-a79-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Oppo A79 5G Phone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Infinix Hot 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/master-your-audience-smooth-screen-sharing-on-social-livestreams/"><u>Master Your Audience Smooth Screen Sharing on Social Livestreams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/mastering-the-art-of-incremental-volume-decrease-with-lumafusion-for-2024/"><u>Mastering the Art of Incremental Volume Decrease with Lumafusion for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-guide-to-higher-youtube-viewership/"><u>[New] 2024 Approved The Ultimate Guide to Higher YouTube Viewership</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>[New] A Quick Fix for Quirky Content Mastering Meme Creation at 9GAG</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-step-by-step-tutorial-starting-and-joining-a-zoom-meeting-on-android-for-2024/"><u>[New] A Step-by-Step Tutorial Starting & Joining a Zoom Meeting on Android for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-elite-cameras-for-face-recording-facing-screen-included/"><u>[New] In 2024, Elite Cameras for Face Recording Facing Screen Included</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-guide-to-locating-vanished-eyes-only-images-on-snapchat/"><u>[New] In 2024, Guide to Locating Vanished Eyes-Only Images on Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-10-best-mobile-writing-tools-for-iosandroid-images-for-2024/"><u>[Updated] 10 Best Mobile Writing Tools for iOS/Android Images for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-windows-desktop-recording-techniques-no-cost/"><u>[Updated] 2024 Approved Windows Desktop Recording Techniques - No Cost</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-oneclickpodcaststream-effortlessly-livestream-your-podcast-content-for-2024/"><u>[Updated] OneClickPodcastStream Effortlessly Livestream Your Podcast Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>[Updated] YouTube Conversion Guide Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-innovative-filmmaking-tools-best-lenses-for-content-makers/"><u>In 2024, Innovative Filmmaking Tools Best Lenses for Content Makers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-realme-11-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Realme 11 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/navigating-the-world-of-haul-videography-tips-and-tricks-for-2024/"><u>Navigating the World of Haul Videography Tips and Tricks for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-easy-guide-to-enhancing-images-via-iphone-cropping/"><u>The Easy Guide to Enhancing Images via iPhone Cropping</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-tecno-pova-6-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
 </ul></div>
 

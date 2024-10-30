@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Importance of Diversity & Inclusion in Market Research Samples"
-date: 2024-10-21T16:03:52.477Z
-updated: 2024-10-24T16:54:55.888Z
+date: 2024-10-28T22:32:11.087Z
+updated: 2024-10-30T04:27:04.222Z
 tags: 
   - screen-recording
   - ai video
@@ -73,6 +73,13 @@ Step2 Open a new file and type 1 in the editor timeline to indicate the caption 
 
 ![type in the editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Add the starting and ending time codes with the following command. Press Enter again.
 
 \[hours:minutes:seconds,milliseconds ––> hours:minutes:seconds,milliseconds\]
@@ -86,13 +93,6 @@ Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + C
 ![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
 
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Open SRT files with VLC Media on Mac
 
@@ -135,13 +135,6 @@ Step4 The video will begin playing. Go to the menu bar and click on the Subtitle
 ![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
 
 Step5 Choose the SRT file from your device and then load it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
@@ -199,13 +192,6 @@ Step3 Choose the output format for the file. Choose QT available in the fourth s
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
 
 ![press the convert button](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-10.jpg)
@@ -238,6 +224,13 @@ Step1 Launch Filmora on Mac and click on New Project. Add the video file and dra
 
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Click on the Media tab and import the SRT file.
 
 Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
@@ -253,13 +246,6 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -278,13 +264,6 @@ Part 1: Does the SRT file work on a Mac?
 The SRT file is typically a plain text-based file with time markers, sequence numbers, and captions. Most third-party media players do showcase the SRT-based format easily. So, you can also use Preview apps or any other software to access and read the basic text documents on Mac.
 
 However, the QuickTime player on Mac does not always support SRT in videos. You have to convert them to a format the QuickTime Player supports or utilize a third-party **SRT editor Mac** allows.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: What Programs can open SRT Files on Mac, and How to do it?
 
@@ -331,6 +310,13 @@ Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + C
 
 ![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
 
 ### Method 2: Open SRT files with VLC Media on Mac
@@ -369,18 +355,18 @@ Step3 Open your video file on the VLC player by double-clicking on the movie and
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
 
 ![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
 
 Step5 Choose the SRT file from your device and then load it.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
@@ -413,15 +399,22 @@ Step1 Open HappyScribe through your preferred browser. Press the Upload a File o
 ![press the upload a file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
 
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Make changes to the text color, caption, position, and font, as needed.
 
@@ -478,10 +471,10 @@ Step1 Launch Filmora on Mac and click on New Project. Add the video file and dra
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Click on the Media tab and import the SRT file.
@@ -499,6 +492,13 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -536,24 +536,18 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-matches-top-ten-gimbals-for-quality-shoots/"><u>[New] 2024 Approved Best Matches Top Ten Gimbals for Quality Shoots</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unlocking-the-potential-of-zoom-meetings/"><u>[New] In 2024, Unlocking the Potential of Zoom Meetings</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-top-10-no-cost-image-servers-always-preserve-your-pics-for-2024/"><u>[New] Top 10 No-Cost Image Servers, Always Preserve Your Pics for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-exclusive-guide-to-top-8-free-high-definition-video-players-for-2024/"><u>[Updated] Exclusive Guide to Top 8 FREE, High Definition Video Players for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-financial-insights-how-much-does-pewdopeep-make-for-2024/"><u>[Updated] Financial Insights How Much Does PewDoPeep Make for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-smart-video-alteration-for-mac-users-seeking-insta-perfect-posts/"><u>2024 Approved Smart Video Alteration for Mac Users Seeking Insta-Perfect Posts</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-xiaomi-redmi-a2-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Xiaomi Redmi A2 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-essential-insight-the-most-efficient-snipping-software-for-windows/"><u>In 2024, Essential Insight The Most Efficient Snipping Software for WINDOWS</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-c22-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia C22?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/insiders-guide-to-recording-and-livestreaming-sports-events/"><u>Insider's Guide to Recording and Livestreaming Sports Events</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-note-13-pro-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi Note 13 Pro 5GFRP Lock</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/navigating-the-future-vrs-role-in-business-strategy-for-2024/"><u>Navigating the Future VR's Role in Business Strategy for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/optimizing-fade-infade-out-routines-for-2024/"><u>Optimizing Fade-In/Fade-Out Routines for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/pixel-perfect-converter-max-resolution/"><u>Pixel Perfect Converter Max Resolution</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-minecraft-performance-issues-on-windows-pcs-ultimate-guide-for-smooth-gameplay/"><u>Resolving Minecraft Performance Issues on Windows PCs - Ultimate Guide for Smooth Gameplay</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/strategies-to-exclude-recommended-podcasts-in-spotify/"><u>Strategies to Exclude Recommended Podcasts in Spotify</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-best-start-streamlined-tools-for-novice-game-editors/"><u>The Best Start Streamlined Tools for Novice Game Editors</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-power-of-slug-lines-in-seo-and-content-marketing-for-2024/"><u>The Power of Slug Lines in SEO and Content Marketing for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-gaming-on-the-green-comprehenive-review-of-vegas-pro-2021/"><u>[New] 2024 Approved Gaming on the Green Comprehenive Review of Vegas Pro 2021</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-step-by-step-instructions-for-using-telegram-online-professionally/"><u>[New] 2024 Approved Step-By-Step Instructions For Using Telegram Online Professionally</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[New] In 2024, Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beyond-views-a-triadic-approach-to-analyzing-youtube-income/"><u>[Updated] 2024 Approved Beyond Views A Triadic Approach to Analyzing YouTube Income</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-beyond-illusory-boundaries-understanding-the-spectrum-vr-ar-and-mr/"><u>[Updated] Beyond Illusory Boundaries Understanding the Spectrum (VR, AR, & MR)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-breaking-free-overcoming-the-shadowban-phenomenon/"><u>[Updated] Breaking Free Overcoming the Shadowban Phenomenon</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-boosting-in-game-charisma-pubg-voice-techniques/"><u>[Updated] In 2024, Boosting In-Game Charisma PUBG Voice Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-guide-top-7-superior-wet-proof-camcorders-for-2024/"><u>[Updated] Ultimate Guide Top 7 Superior Wet-Proof Camcorders for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y27-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y27 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-screen-selection-simplified-ultrawide-versus-uhd-4k-demystified/"><u>In 2024, Screen Selection Simplified UltraWide Versus UHD 4K Demystified</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-6-hottest-4k-yt-to-mp3-tools-a-direct-comparison/"><u>In 2024, Top 6 Hottest 4K YT To MP3 Tools A Direct Comparison</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-fix-securing-the-newest-drivers-for-hp-laserjet-pro-m402n-in-a-click-for-windows-users/"><u>Quick Fix: Securing the Newest Drivers for HP LaserJet Pro M402n in a Click – For Windows Users</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-downloadinstallregisteruninstall/"><u>Updated In 2024, Download/Install/Register/Uninstall</u></a></li>
 </ul></div>
 

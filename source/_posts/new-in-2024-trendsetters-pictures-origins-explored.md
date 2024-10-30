@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Trendsetters' Pictures  Origins Explored\""
-date: 2024-08-31T11:51:02.463Z
-updated: 2024-09-01T11:51:02.463Z
+date: 2024-10-26T06:13:09.264Z
+updated: 2024-10-30T02:41:42.289Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
@@ -66,11 +73,25 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -85,8 +106,12 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -95,18 +120,19 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
 Since then, internet users have continued to use the Bonjour Bear meme to reference their reactions to different scenarios. Typically, you will find the stock photo meme representing some surprise attacks. Below are some of the most popular versions of the meme:
@@ -122,26 +148,24 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part5: FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -177,4 +201,26 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-take-control-how-to-involve-yourself-in-a-friends-live-on-tiktok/"><u>[New] 2024 Approved Take Control How to Involve Yourself in a Friend's Live on TikTok</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-best-investment-selecting-the-top-5-pro-drones-for-2024/"><u>[New] Best Investment - Selecting the Top 5 Pro Drones for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-craft-your-facebook-profile-video/"><u>[New] In 2024, Craft Your Facebook Profile Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-art-of-going-unseen-during-instagram-live-events-for-2024/"><u>[New] The Art of Going Unseen During Instagram Live Events for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-affordable-overseas-vr-headsets-china/"><u>[Updated] 2024 Approved Affordable Overseas VR Headsets (China)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ringtones-from-youtube-a-compilation-of-optimal-download-hubs/"><u>[Updated] 2024 Approved Ringtones From YouTube A Compilation of Optimal Download Hubs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-tech-enthusiasts-guide-to-ios-screen-record-2023/"><u>[Updated] 2024 Approved Tech Enthusiast's Guide to iOS Screen Record 2023</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unlock-the-mystery-of-smooth-media-imports-into-windows-10/"><u>[Updated] 2024 Approved Unlock the Mystery of Smooth Media Imports Into Windows 10</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-boosting-youtube-success-mastery-with-tubebuddy-for-2024/"><u>[Updated] Boosting YouTube Success Mastery with TubeBuddy for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-best-cutting-edge-tools-for-intro-edits-on-devices/"><u>[Updated] In 2024, Best Cutting-Edge Tools for Intro Edits on Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-innovating-with-imagination-pro-tiktok-edits-revealed-for-2024/"><u>[Updated] Innovating with Imagination Pro TikTok Edits Revealed for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-rpg-origins-vs-hybrid-designs-evolution-for-2024/"><u>[Updated] RPG Origins Vs. Hybrid Designs Evolution for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-guide-to-enhancing-instagram-stories-with-photos-for-2024/"><u>[Updated] Step-by-Step Guide to Enhancing Instagram Stories with Photos for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-syma-x5c-the-ideal-drone-to-elevate-your-aerial-introduction/"><u>[Updated] Syma X5C The Ideal Drone to Elevate Your Aerial Introduction</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-aviations-new-titans-dji-phantom-pro-and-gopro-k20-ii/"><u>2024 Approved Aviation's New Titans DJI Phantom Pro & GoPro K20 II</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-ce-3-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock OnePlus Nord CE 3 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-creating-flipbooks-from-scratch-using-windows-movie-maker/"><u>In 2024, Creating Flipbooks From Scratch Using Windows Movie Maker</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unlocking-free-animation-digitalphysical-realms-for-2024/"><u>Unlocking Free Animation Digital/Physical Realms for 2024</u></a></li>
+</ul></div>
 

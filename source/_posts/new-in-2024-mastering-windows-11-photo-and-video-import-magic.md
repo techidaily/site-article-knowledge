@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering Windows 11  Photo & Video Import Magic\""
-date: 2024-10-22T16:58:25.439Z
-updated: 2024-10-24T16:28:32.177Z
+date: 2024-10-27T18:29:28.681Z
+updated: 2024-10-30T12:00:38.236Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 ## Part 1: Import Photos and Video from a Phone
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 1: Connecting Your Phone
@@ -54,23 +54,17 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Enable File Exchange
@@ -84,10 +78,10 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 4: Import
@@ -95,6 +89,13 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
 
@@ -109,13 +110,6 @@ Click the Import button on the Photos app and choose the items that you want to 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -166,14 +160,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-a6400-absent-actors-where-are-the-videos/"><u>[New] In 2024, A6400 Absent Actors Where Are the Videos?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-streamline-iphone-videos-size-and-length-optimization/"><u>[Updated] In 2024, Streamline iPhone Videos Size & Length Optimization</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/comparing-vr-to-360-degree-video-whats-the-distinction/"><u>Comparing VR to 360-Degree Video What's the Distinction?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exclusive-selection-of-top-hd-stream-cameras/"><u>Exclusive Selection of Top HD Stream Cameras</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/explore-the-upgraded-era-of-apple-airpods-discover-4-key-improvements-across-all-models-wired/"><u>Explore the Upgraded Era of Apple AirPods: Discover 4 Key Improvements Across All Models | Wired</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-precise-approach-to-blend-gopro-videos-with-surrounding-virtual-landscapes/"><u>In 2024, Precise Approach to Blend GoPro Videos with Surrounding Virtual Landscapes</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-ultimate-checklist-for-capturing-live-conversations/"><u>In 2024, The Ultimate Checklist for Capturing Live Conversations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-unresponsive-face-id-problems-on-iphones-with-these-14-key-fixes/"><u>Solve Unresponsive Face ID Problems on iPhones with These 14 Key Fixes</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/uncovering-the-basics-of-langchain-tech/"><u>Uncovering The Basics of LangChain Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-selections-of-the-year-best-snowboard-and-ski-cams/"><u>[New] Selections of the Year Best Snowboard & Ski Cams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-comprehensive-introduction-to-color-grading-and-luts-in-pscc/"><u>[Updated] A Comprehensive Introduction to Color Grading and LUTs in PSCC</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-tips-for-documenting-real-time-youtube-broadcasts/"><u>[Updated] Essential Tips for Documenting Real-Time YouTube Broadcasts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-fix-problems-that-occur-during-the-post/"><u>How to Fix Problems that Occur During the POST</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-install-the-newest-geforce-210-graphics-card-software-on-windows-10/"><u>How to Install the Newest GeForce 210 Graphics Card Software on Windows 10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-top-ae-plug-ins-enhance-your-visual-storytelling/"><u>In 2024, Top AE Plug-Ins Enhance Your Visual Storytelling</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-traps-in-the-web-avoiding-the-snare-of-buying-non-existent-supporters/"><u>In 2024, Traps in the Web Avoiding the Snare of Buying Non-Existent Supporters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-heart-of-adventure-polaroid-cubeplus-video-analysis/"><u>The Heart of Adventure Polaroid Cube+ Video Analysis</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-non-ringing-iphones-a-step-by-step-guide/"><u>Troubleshooting Non-Ringing iPhones: A Step-by-Step Guide</u></a></li>
 </ul></div>
 
