@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Photo Magic  The Role of LUTs in Editing for 2024\""
-date: 2024-10-25T16:26:38.856Z
-updated: 2024-10-29T17:41:54.528Z
+date: 2024-10-29T18:56:20.298Z
+updated: 2024-11-04T22:19:57.798Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -78,13 +78,6 @@ Choose Adjustment Layer
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 load 3d lut
 
 1. When you select one, you'll see how the color and tone of the image change.
@@ -94,10 +87,10 @@ load 3d lut
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Here's the first method
@@ -106,6 +99,13 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -134,10 +134,10 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -170,19 +170,20 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-performance-in-your-palm-sonys-4k-smartphone/"><u>[New] 2024 Approved Cutting Edge Performance in Your Palm Sony's 4K Smartphone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-youtube-thumbnails/"><u>[New] 2024 Approved The Ultimate Guide to YouTube Thumbnails</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prime-selection-8-best-free-mobile-mp3-downloaders/"><u>[New] In 2024, Prime Selection - 8 Best Free Mobile MP3 Downloaders</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-mastering-slow-motion-capture-with-android-a-beginners-guide-for-2024/"><u>[New] Mastering Slow-Motion Capture with Android A Beginner's Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-reinstating-legacy-windows-photo-viewer-feature-for-w10/"><u>[New] Reinstating Legacy Windows Photo Viewer Feature for W10</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-synopsis-of-vllo-consumer-voices-for-2024/"><u>[New] Synopsis of VLLO Consumer Voices for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-android-playground-the-hottest-wildlife-games/"><u>[Updated] Android Playground The Hottest Wildlife Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-decoding-excellence-a-hdr-camera-buyers-almanac-for-2024/"><u>[Updated] Decoding Excellence A HDR Camera Buyer's Almanac for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-seamless-tiktok-to-high-quality-mp4-format/"><u>2024 Approved Seamless TikTok to High-Quality MP4 Format</u></a></li>
-<li><a href="https://games-able.techidaily.com/examining-xbox-encasements/"><u>Examining Xbox Encasements</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-nokia-c32-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Nokia C32 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-nokia-g310-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Nokia G310 FRP Without Computer</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-smirk-spotlights-showcasing-7-comedic-content-pieces/"><u>In 2024, Smirk Spotlights Showcasing 7 Comedic Content Pieces</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-get-ready-to-distort-top-free-online-glitch-generators/"><u>New In 2024, Get Ready to Distort Top Free Online Glitch Generators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-guide-altering-voices-for-a-competitive-edge-in-free-fire/"><u>[New] 2024 Approved The Ultimate Guide Altering Voices for a Competitive Edge in Free Fire</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-guide-to-xboxs-video-conferencing-feature/"><u>[New] 2024 Approved The Ultimate Guide to Xbox's Video Conferencing Feature</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-essence-of-the-apple-m1-a-technological-marvel/"><u>[New] In 2024, The Essence of the Apple M1 A Technological Marvel</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-precision-engineering-for-dvd-production-in-macos-for-2024/"><u>[New] Precision Engineering for DVD Production in macOS for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-realtime-hd-uplift-for-pc-mac-and-online-devices-for-2024/"><u>[New] RealTime HD Uplift for PC, Mac & Online Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-extensive-review-the-360-degree-capture-of-samsung/"><u>[Updated] 2024 Approved Extensive Review The 360-Degree Capture of Samsung</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-professionals-choice-ranking-the-top-9-microphone-apps/"><u>[Updated] In 2024, Professional's Choice Ranking the Top 9 Microphone Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-video-camera-compendium-year-for-2024/"><u>[Updated] The Ultimate Video Camera Compendium Year for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/bigo-live-intro-video-details-area-px-format-run-for-2024/"><u>Bigo Live Intro Video Details Area (Px²), Format, Run for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensive-guide-to-fix-windows-11-media-issues/"><u>Comprehensive Guide to Fix Windows 11 Media Issues</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premier-cloud-storage-guide-for-enterprises/"><u>In 2024, Premier Cloud Storage Guide for Enterprises</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-essential-shoppers-guide-to-modern-360cams/"><u>In 2024, The Essential Shopper's Guide to Modern 360Cams</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-realme-c51-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Realme C51 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pixelpipe-pro-discovering-freepaid-editors-for-2024/"><u>PixelPipe Pro Discovering Free/Paid Editors for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-relying-on-zerogpt-or-similar-ai-detectors-may-be-risky-insightful-cases/"><u>Why Relying on ZeroGPT or Similar AI Detectors May Be Risky: Insightful Cases</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Premium Motion Mastery Modules"
-date: 2024-08-27T07:24:45.906Z
-updated: 2024-08-28T07:24:45.906Z
+date: 2024-11-03T17:02:22.007Z
+updated: 2024-11-04T21:29:07.483Z
 tags: 
   - screen-recording
   - ai video
@@ -35,17 +35,25 @@ You get 110 animated elements that you can apply to the text in your video. The 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
@@ -53,11 +61,12 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## 5\. CounterPro Preset
 
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
@@ -70,9 +79,6 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
@@ -80,14 +86,24 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -121,4 +137,24 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premium-15-ultra-mobile-video-devices/"><u>[New] 2024 Approved Premium 15 Ultra-Mobile Video Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>[New] In 2024, Becoming a YouTube Pro The Ultimate Picture Post Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pair-audio-with-video-webspace-hub-for-2024/"><u>[New] Pair Audio with Video Webspace Hub for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-rated-complimentary-premiere-pro-blueprints-for-2024/"><u>[New] Top-Rated, Complimentary Premiere Pro Blueprints for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-behind-the-scenes-recording-your-facebook-live-stream/"><u>[Updated] 2024 Approved Behind the Scenes Recording Your Facebook Live Stream</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-magic-meets-technology-the-future-of-home-studio-production/"><u>[Updated] 2024 Approved Magic Meets Technology The Future of Home Studio Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-discovering-6-distinct-icon-and-logo-providers/"><u>[Updated] Discovering 6 Distinct Icon and Logo Providers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-discovering-open-source-masterpieces-and-resources/"><u>[Updated] In 2024, Discovering Open-Source Masterpieces & Resources</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-innovating-film-production-with-augmented-realms/"><u>[Updated] In 2024, Innovating Film Production with Augmented Realms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-best-writers-workshop-online/"><u>2024 Approved Best Writer’s Workshop Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/directorvid-evaluation-all-you-need-to-know-for-2024/"><u>DirectorVid Evaluation – All You Need to Know for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-resolving-the-problem-of-lost-sounds-in-bluetooth-devices/"><u>Expert Advice: Resolving the Problem of Lost Sounds in Bluetooth Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-smart-8-plus-by-drfone-android/"><u>How to Bypass FRP from Infinix Smart 8 Plus?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/navigating-screen-sharing-in-google-meet-mobiledesktop-for-2024/"><u>Navigating Screen Sharing in Google Meet Mobile/Desktop for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-setting-up-virtual-machines-in-vsphere-for-beginners/"><u>Step-by-Step Tutorial: Setting Up Virtual Machines in vSphere for Beginners</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-8-benefits-for-educators-embracing-artifice-intelligence-in-the-classroom/"><u>Top 8 Benefits for Educators Embracing Artifice Intelligence in the Classroom</u></a></li>
+<li><a href="https://win-bits.techidaily.com/top-gratuit-logique-de-soutien-et-repristination-pour-systeme-dexploitation-windows-11-10-8-7/"><u>Top Gratuit Logique De Soutien Et Repristination Pour Système D'Exploitation Windows: 11, 10, 8, 7</u></a></li>
+</ul></div>
 

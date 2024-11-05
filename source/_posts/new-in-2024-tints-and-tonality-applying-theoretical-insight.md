@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Tints & Tonality  Applying Theoretical Insight\""
-date: 2024-08-31T11:42:47.702Z
-updated: 2024-09-01T11:42:47.702Z
+date: 2024-11-02T00:10:47.220Z
+updated: 2024-11-05T04:30:19.085Z
 tags: 
   - screen-recording
   - ai video
@@ -34,12 +34,15 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
@@ -47,8 +50,12 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -58,8 +65,12 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -67,22 +78,26 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
@@ -115,4 +130,23 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-digital-renaissance-reinventing-traditional-vhs-visuals/"><u>[New] 2024 Approved Digital Renaissance Reinventing Traditional VHS Visuals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-asus-proart-pa-329q-the-pinnacle-in-high-definition-viewing-for-2024/"><u>[New] Asus ProArt PA 329Q The Pinnacle in High-Definition Viewing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-dive-into-top-online-platforms-for-enhancing-media-subtitles-for-2024/"><u>[New] Dive Into Top Online Platforms for Enhancing Media Subtitles for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-effortless-webinar-capture-techniques-for-os-xwindows-enthusiasts-for-2024/"><u>[New] Effortless Webinar Capture Techniques for OS X/Windows Enthusiasts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-dvd-creation-a-guide-for-mac-users-for-2024/"><u>[New] Mastering DVD Creation A Guide for Mac Users for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unlocking-the-secrets-of-swelling-youtube-supporters/"><u>[New] Unlocking the Secrets of Swelling YouTube Supporters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>[Updated] 2024 Approved Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-budgeting-essentials-for-your-music-video-for-2024/"><u>[Updated] Budgeting Essentials for Your Music Video for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-expert-recommendations-high-quality-mac-video-grabber-tools-for-2024/"><u>[Updated] Expert Recommendations High-Quality Mac Video Grabber Tools for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diy-fixes-for-malfunctioning-closed-captioning-in-your-amazon-prime-library/"><u>DIY Fixes for Malfunctioning Closed Captioning in Your Amazon Prime Library</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-tripods-for-youtube-creators-filming-needs/"><u>Expert Tripods for YouTube Creators' Filming Needs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-techniques-to-transform-your-footage-in-gopro-studio/"><u>In 2024, Innovative Techniques to Transform Your Footage in GoPro Studio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-metaverse-gateway-top-8-vr-headsets-unveiled/"><u>In 2024, Metaverse Gateway Top 8 VR Headsets Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-strategies-for-closing-down-a-forgotten-linkedin-profile/"><u>In 2024, Strategies for Closing Down a Forgotten LinkedIn Profile</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/master-windows-update-self-replacing-amd-graphics-drivers/"><u>Master Windows Update: Self-Replacing AMD Graphics Drivers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-xiaomi-redmi-note-12-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Xiaomi Redmi Note 12 5G to iOS not Working Problems | Dr.fone</u></a></li>
+</ul></div>
 

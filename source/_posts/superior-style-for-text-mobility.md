@@ -1,7 +1,7 @@
 ---
 title: "Superior Style for Text Mobility"
-date: 2024-10-24T21:10:14.952Z
-updated: 2024-10-30T00:06:16.631Z
+date: 2024-10-30T04:26:19.905Z
+updated: 2024-11-04T18:06:44.770Z
 tags: 
   - screen-recording
   - ai video
@@ -39,25 +39,25 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
 
@@ -66,10 +66,23 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -84,25 +97,18 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
 
@@ -144,17 +150,17 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/updated-understanding-the-advanced-features-in-djis-quadcopter-3/"><u>[Updated] Understanding the Advanced Features in DJI's Quadcopter 3</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-morning-analysis-unconventional-perspectives/"><u>2024 Approved Morning Analysis Unconventional Perspectives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-srt-and-mp4-synergy-expert-advice-edition/"><u>2024 Approved SRT & MP4 Synergy Expert Advice Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-guide-to-budget-drone-flights/"><u>2024 Approved The Ultimate Guide to Budget Drone Flights</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-understanding-luts-to-amplify-your-photo-quality/"><u>2024 Approved Understanding LUTs to Amplify Your Photo Quality</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-voice-change-leaders-the-magic-call-alternatives/"><u>2024 Approved Voice-Change Leaders The Magic Call Alternatives</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fixed-offline-workflow-blockage/"><u>Fixed Offline Workflow Blockage</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y56-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y56 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ps3-experience-on-pc-leading-emulators-guide/"><u>In 2024, PS3 Experience on PC Leading Emulators Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-10-online-video-tools-perfecting-webcam-footage/"><u>Top 10 Online Video Tools Perfecting Webcam Footage</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-stuck-file-explorer-on-windows-11/"><u>Troubleshooting Guide: Fixing Stuck File Explorer on Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-trick-to-connect-an-unresponsive-xbox-one-controller-with-ease/"><u>Ultimate Trick to Connect an Unresponsive Xbox One Controller with Ease</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-breaking-barriers-in-drone-longevity-top-10/"><u>[New] In 2024, Breaking Barriers in Drone Longevity (Top 10)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-audio-change-apps-for-virtual-performers/"><u>[New] In 2024, Leading Audio Change Apps for Virtual Performers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-airborne-warriors-meet-dji-mavic-2-and-hero5-black/"><u>[Updated] In 2024, Airborne Warriors Meet DJi Mavic 2 & HERO5 Black</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-nighttime-shots-iphone-photo-tactics/"><u>[Updated] Mastering Nighttime Shots IPhone Photo Tactics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-steady-shot-enhancer-for-traveling-filmmakers/"><u>[Updated] Steady Shot Enhancer for Traveling Filmmakers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-stitching-an-innovative-tiktok-closing-credits-for-2024/"><u>[Updated] Stitching An Innovative TikTok Closing Credits for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-capture-youtubes-subtitles-on-no-cost-platforms/"><u>2024 Approved Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/chrome-loading-errors-what-causes-them-and-how-can-you-fix-them/"><u>Chrome Loading Errors: What Causes Them and How Can You Fix Them?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/get-your-free-malware-cleaner-download-malwarefox-top-rated-anti-malware-tool/"><u>Get Your FREE Malware Cleaner: Download MalwareFox – Top-Rated Anti-Malware Tool!</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/art-automated-views-to-propel-your-channel/"><u>Outsmart Automated Views to Propel Your Channel</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-your-next-laptop-insiders-list-of-top-e-places-to-shop/"><u>Selecting Your Next Laptop: Insider's List of Top E Places To Shop</u></a></li>
 </ul></div>
 

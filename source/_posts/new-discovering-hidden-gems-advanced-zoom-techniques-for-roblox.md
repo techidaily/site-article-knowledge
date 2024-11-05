@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Discovering Hidden Gems  Advanced Zoom Techniques for Roblox\""
-date: 2024-10-24T10:06:53.862Z
-updated: 2024-10-29T18:30:27.491Z
+date: 2024-11-01T18:15:23.077Z
+updated: 2024-11-05T01:28:56.792Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,10 @@ Step4Simply press the 'O' key on your keyboard (the letter between 'P' and 'I' o
 Step5To get the playing zoom level you desire, press "I" and "O" together. You must consequently mix the actions of these two keyboard keys in order to zoom in at the most pleasing scale.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Way 2\. Zoom In/Out in Roblox with Mouse Control
@@ -81,10 +81,10 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
@@ -103,16 +103,16 @@ Step1Open the Roblox app, sign in, and then start a test gaming session. The fir
 
 ![zoom in roblox teblet](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-roblox-teblet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2To zoom, just use two fingers and slide them apart (for zooming in) or together (for zooming out) like you would to do so on a smartphone (zoom out).
 
 ![zoom roblox with fingers](https://images.wondershare.com/filmora/article-images/2022/07/zoom-roblox-with-fingers.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3You will be given the best method using the touchpad: while holding down the right side, move the screen to view your character from the front and from behind!
 
@@ -121,10 +121,10 @@ Step4The camera angle and/or your character will only move if one of your finger
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -161,16 +161,18 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/7-best-lights-and-lighting-equipment-for-youtube-videos-for-2024/"><u>[New] 17 Best Lights and Lighting Equipment for YouTube Videos for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-retro-revelry-on-snapchat-camera-roll-insights/"><u>[New] In 2024, Retro Revelry on Snapchat Camera Roll Insights</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-photographers-guide-top-editing-and-writing-apps/"><u>[New] Photographer's Guide Top Editing & Writing Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-master-video-editing-on-a-shoestring-budget-top-9-picks/"><u>[Updated] 2024 Approved Master Video Editing on a Shoestring Budget - Top 9 Picks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-step-into-the-future-microsofts-hololens-breakthrough/"><u>[Updated] 2024 Approved Step Into the Future Microsoft's HoloLens Breakthrough</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-harmonious-hues-choosing-pixel-rhythms/"><u>2024 Approved Harmonious Hues Choosing Pixel Rhythms</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mobile-audio-enhancers-for-swift-soundplay/"><u>2024 Approved Mobile Audio Enhancers for Swift Soundplay</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-digital-humor-handbook-building-a-reputation-with-metaverse-memes/"><u>2024 Approved The Digital Humor Handbook Building a Reputation with Metaverse Memes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-virtual-frontier-top-pc-vr-headset-innovations-of-the-year/"><u>2024 Approved Virtual Frontier Top PC VR Headset Innovations of the Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-love-for-words-the-romance-family/"><u>A Love for Words: The Romance Family</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/1715701197532-employing-inbuilt-screen-recording-tools-on-mate-p-models-p20-p10/"><u>Employing Inbuilt Screen Recording Tools on Mate, P Models (P20, P10).</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-minuscule-cinematic-design/"><u>[New] Minuscule Cinematic Design</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-photographers-toolkit-essential-tips-for-cutting-edge-edits-for-2024/"><u>[New] The Photographer's Toolkit Essential Tips for Cutting-Edge Edits for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-galaxy-s8-review-a-leap-forward-with-4k-display/"><u>[Updated] 2024 Approved Galaxy S8 Review - A Leap Forward with 4K Display</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-instant-conferencing-zoom-in-the-eyes-of-gmail/"><u>[Updated] 2024 Approved Instant Conferencing Zoom in the Eyes of Gmail</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-capturing-honesty-a-comprehensive-guide-to-insta-self-verification-for-2024/"><u>[Updated] Capturing Honesty A Comprehensive Guide to Insta Self-Verification for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-constructing-a-high-definition-pc-for-ultra-hd-video-production-for-2024/"><u>[Updated] Constructing a High-Definition PC for Ultra-HD Video Production for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/easy-to-follow-steps-for-android-video-capture/"><u>Easy-to-Follow Steps for Android Video Capture</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-tecno-spark-10-4g-by-drfone-android/"><u>How to Bypass FRP from Tecno Spark 10 4G?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-discover-the-artistry-of-asuss-4k-monitor-review/"><u>In 2024, Discover the Artistry of Asus's 4K Monitor Review</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-apple-iphone-14-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On Apple iPhone 14 without Password?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-core-language-of-cutting-edge-vr-experiences/"><u>In 2024, The Core Language of Cutting-Edge VR Experiences</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/optimizing-your-periscope-stream-experience/"><u>Optimizing Your Periscope Stream Experience</u></a></li>
 </ul></div>
 

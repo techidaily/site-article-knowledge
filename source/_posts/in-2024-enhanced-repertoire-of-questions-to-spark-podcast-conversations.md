@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Enhanced Repertoire of Questions to Spark Podcast Conversations"
-date: 2024-10-23T21:50:25.903Z
-updated: 2024-10-29T17:04:17.218Z
+date: 2024-11-02T00:45:25.370Z
+updated: 2024-11-04T20:34:59.098Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,6 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here are some icebreaker questions that you can ask to start an interview.
 
 1. Where did you grow up and make the impact on you today?
@@ -66,6 +59,13 @@ Here are some icebreaker questions that you can ask to start an interview.
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Some leading questions that you can ask are discussed below.
 
@@ -128,13 +128,6 @@ When we move on to this type of question, typically, it's time to end the show. 
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
 
 Asking better questions on a podcast requires preparation beforehand. Here are some tips for you to come up with better questions:
@@ -146,15 +139,28 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
@@ -163,23 +169,9 @@ As an interviewer, "why" is your most powerful tool. Guests usually provide surf
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -198,6 +190,13 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -208,15 +207,22 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Take Your Content to the Next Level and Gets Shared
@@ -255,21 +261,20 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-beat-to-buzz-creating-impact-in-10-seconds-on-youtube/"><u>[New] 2024 Approved From Beat to Buzz Creating Impact in 10 Seconds on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-turn-any-surface-into-a-broadcasting-space-with-vlcs-webcam-feature/"><u>[New] In 2024, Turn Any Surface Into a Broadcasting Space with VLC’s Webcam Feature</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-flip-through-twitch-feeds-without-pause/"><u>[Updated] Flip Through Twitch Feeds Without Pause</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a-beginners-guide-to-advanced-techniques-in-gopro-studio-for-2024/"><u>A Beginner's Guide to Advanced Techniques in GoPro Studio for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a6400s-visual-void-finding-video-fix/"><u>A6400's Visual Void - Finding Video Fix</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/ai-driven-high-quality-editing-platform-for-2024/"><u>AI-Driven High-Quality Editing Platform for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/apple-writes-a-new-chapter-m1-pro-vs-m1-max-analysis-for-2024/"><u>Apple' Writes a New Chapter M1 Pro Vs. M1 Max Analysis for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/best-radio-drama-scripts/"><u>Best Radio Drama Scripts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/burn-video-to-dvd-on-mac-2-ways/"><u>Burn Video to DVD on Mac [2 Ways]</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/captureone-expert-tutorial-series/"><u>CaptureOne Expert Tutorial Series</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/envisioning-the-next-leap-in-ai-desired-innovations-for-gpt-5/"><u>Envisioning the Next Leap in AI: Desired Innovations for GPT-5</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-fusing-iphones-audio-and-visuals-together/"><u>In 2024, Fusing iPhones' Audio and Visuals Together</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-canvas-potential-10-secrets-for-professionals/"><u>In 2024, Unlocking Canvas Potential - 10 Secrets for Professionals</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/introduction-to-langchain-your-first-guide/"><u>Introduction to LangChain: Your First Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-efficiency-edgedownloads-and-process-management/"><u>Mastering Efficiency: Edgedownloads & Process Management</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/schritt-fur-schritt-anleitung-msvcp110dll-nicht-gefunden-windows-11-problembehebung/"><u>Schritt-Für-Schritt-Anleitung: MSVCP110.dll Nicht Gefunden - Windows 11 Problembehebung</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sky-dominance-top-5-fpv-glasses-for-pilots/"><u>[New] Sky Dominance Top 5 FPV Glasses for Pilots</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-directory-for-free-visual-treasures/"><u>[New] Ultimate Directory for Free Visual Treasures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-elite-exploration-the-new-parrot-ar-edition/"><u>[Updated] 2024 Approved Elite Exploration The New Parrot AR Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-design-top-5-3d-intro-makers-for-2024/"><u>[Updated] Cutting-Edge Design Top 5 3D Intro Makers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-wallet-friendly-digital-repository-heavyweight-file-haven/"><u>[Updated] In 2024, Wallet-Friendly Digital Repository Heavyweight File Haven</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlock-the-secret-of-social-media-impact-for-2024/"><u>[Updated] Unlock the Secret of Social Media Impact for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-xsplit-vs-obs-which-one-leads-in-livestream-quality-in-2024/"><u>[Updated] XSplit Vs. OBS – Which One Leads in Livestream Quality, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/craft-stunning-designs-learn-to-cleanse-images-background-in-canva-for-2024/"><u>Craft Stunning Designs Learn to Cleanse Images' Background in Canva for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-texting-techniques-to-prevent-overspending-on-cellular-data/"><u>Effective Texting Techniques to Prevent Overspending on Cellular Data</u></a></li>
+<li><a href="https://fox-access.techidaily.com/frozen-frenzy-2022s-ultimate-showdown-on-snowy-olympic-rivers-for-2024/"><u>Frozen Frenzy 2022'S Ultimate Showdown on Snowy Olympic Rivers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/simplified-techniques-for-using-the-io-screener-for-2024/"><u>Simplified Techniques for Using the IO Screener for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-premium-microphone-selection-for-your-podcast/"><u>The Premium Microphone Selection for Your Podcast</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-picks-explore-the-best-new-windows-10-apps-and-games-for-2024/"><u>Top Picks Explore the Best New Windows 10 Apps and Games for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/upgrading-made-simple-a-compreomedmacsierra-guide-for-2024/"><u>Upgrading Made Simple A CompreomedmacSierra Guide for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/your-ultimate-guide-to-unmissable-gaming-worlds/"><u>Your Ultimate Guide to Unmissable Gaming Worlds</u></a></li>
 </ul></div>
 

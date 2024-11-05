@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unleashing Potential in AR  Applying LUT Techniques\""
-date: 2024-10-29T01:05:32.080Z
-updated: 2024-10-30T01:38:40.156Z
+date: 2024-10-29T20:21:58.621Z
+updated: 2024-11-05T02:12:48.914Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,19 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. How to use LUTs in Spark AR?
 
 **How to apply a color LUT to the whole scene in Spark AR:**
@@ -53,13 +66,6 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
@@ -73,10 +79,10 @@ The patch graph that renders the color gradation effect looks like this:
 * Finally, the Screen Output patch renders the green color.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Free LUTs resource for Spark AR
@@ -88,6 +94,20 @@ Here are the best free LUTs resources for Spark AR:
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Fur
 
@@ -114,20 +134,6 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
@@ -135,10 +141,23 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
@@ -146,13 +165,6 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Closing Thoughts
 
@@ -188,18 +200,17 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>[New] 2024 Approved Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-digital-evolutions-meta-vs-omni-reality/"><u>[New] In 2024, Digital Evolutions Meta Vs. Omni Reality</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-drone-flight-smoothness-top-7-gimbals/"><u>[Updated] In 2024, Drone Flight Smoothness Top 7 Gimbals</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-high-end-audio-for-youtubes-best-gamers/"><u>[Updated] In 2024, High-End Audio for YouTube's Best Gamers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-secret-of-superiority-in-photo-hue-modification/"><u>[Updated] The Secret of Superiority in Photo Hue Modification</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-troubleshoot-facebook-video-playback-issues-on-mobile-devices/"><u>2024 Approved Troubleshoot Facebook Video Playback Issues on Mobile Devices</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/crafting-a-complete-media-experience-mixing-music-and-video-in-premiere-pro/"><u>Crafting a Complete Media Experience Mixing Music and Video in Premiere Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-redmi-12-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Redmi 12 support MKV video files?</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-v30-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-connect-and-captivate-youtube-twitter-and-facebook-using-zoom/"><u>In 2024, Connect and Captivate YouTube, Twitter & Facebook Using Zoom</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/musics-big-screen-facebooks-top-ten-vids-for-2024/"><u>Music's Big Screen Facebook's Top Ten Vids for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/silent-scribes-unveiling-the-best-speech-to-text-tools-for-2024/"><u>Silent Scribes Unveiling the Best Speech-to-Text Tools for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/step-by-step-solution-for-hardware-not-supported-errors-encountered-by-your-idt-suite/"><u>Step-by-Step Solution for 'Hardware Not Supported' Errors Encountered by Your IDT Suite</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-3dr-solo-unveiling-the-single-user-experience/"><u>[New] '3DR Solo' Unveiling the Single User Experience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-value-in-the-sky-top-budget-cloud-services/"><u>[New] 2024 Approved Best Value in the Sky? Top Budget Cloud Services</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-tips-for-navigating-the-telegram-online-experience/"><u>[New] 2024 Approved Expert Tips for Navigating the Telegram Online Experience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-leading-video-tech-best-cameras-s-musical-scenes/"><u>[Updated] 2024 Approved Leading Video Tech Best Cameras 'S Musical Scenes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-reality-beyond-exploring-vrs-contemporary-state-and-implications/"><u>[Updated] In 2024, Reality Beyond Exploring VR's Contemporary State and Implications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-entry-level-camera-for-beginners-2024-reviews/"><u>Best Entry-Level Camera for Beginners 2024 | Reviews</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-websites-for-youtube-video-promotion-for-2024/"><u>Essential Websites for YouTube Video Promotion for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-zte-axon-40-lite-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on ZTE Axon 40 Lite to Protect Your Individual Information</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/narrative-power-in-marketing-20-must-use-phrases-for-2024/"><u>Narrative Power in Marketing 20 Must-Use Phrases for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/small-scale-screenplay-idea/"><u>Small-Scale Screenplay Idea</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-6-typical-gpt-car-related-setup-glitches-and-fixes/"><u>Top 6 Typical GPT Car-Related Setup Glitches & Fixes</u></a></li>
 </ul></div>
 

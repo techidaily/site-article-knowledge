@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Class on Cutting Unwanted Backdrops for 2024"
-date: 2024-10-24T17:59:24.785Z
-updated: 2024-10-29T16:11:42.080Z
+date: 2024-10-31T16:22:21.741Z
+updated: 2024-11-05T04:47:12.765Z
 tags: 
   - screen-recording
   - ai video
@@ -125,6 +125,13 @@ To fix any mistake in your selection, go to the "Select" tab and click "Select a
 
 Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. [Unsplash](https://unsplash.com/s/photos/background)
 
 Want the best photo editing background library for your images? Unsplash might be the site you are looking for.
@@ -140,13 +147,6 @@ Pexels is another web-based tool that contains numerous stock photos and videos 
 You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
 
@@ -185,6 +185,13 @@ Step 2: Mask your Selection
 Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
 
 ![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 3: Polish the Edges
 
@@ -271,10 +278,10 @@ You can search for the image background of your choice and download it for free 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
@@ -327,6 +334,13 @@ From the panel at the right, select "Output Settings." Check the box next to "De
 
 ![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 5: Add a New Background
 
 You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
@@ -351,30 +365,31 @@ Isolate your subject on a separate layer by accessing the “Quick Selection” 
 
 ![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Expand the Selection
 
 Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
 
 ![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Remove Photo Background?
 
@@ -404,6 +419,13 @@ Unsplash is one of the biggest online storage sites for royalty-free images. You
 
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
 
 Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
@@ -412,13 +434,6 @@ You can search for the image background of your choice and download it for free 
 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
 
 If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
@@ -426,13 +441,6 @@ If you are looking for a website to find backgrounds in HD quality, you can try 
 Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
 
 ![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -476,6 +484,13 @@ From the panel at the right, select "Output Settings." Check the box next to "De
 
 ![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 5: Add a New Background
 
 You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
@@ -506,13 +521,6 @@ Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
@@ -534,13 +542,6 @@ Step 2: Refine Outline
 To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
 
 ![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
@@ -569,13 +570,6 @@ If you are looking for a website to find backgrounds in HD quality, you can try 
 Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
 
 ![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -605,22 +599,14 @@ With a wide range of editing tools available today, you can change any aspect of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-content-distribution-excellence-vimeo-vs-youtube/"><u>[Updated] 2024 Approved Content Distribution Excellence Vimeo vs YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-pros-and-cons-of-syma-x8c-for-2024/"><u>[Updated] Pros and Cons of Syma X8C for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/10-key-tips-on-how-to-design-podcast-cover-art/"><u>10 Key Tips on How to Design Podcast Cover Art</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-aligning-podcast-drop-dates-with-listener-patterns/"><u>2024 Approved Aligning Podcast Drop Dates with Listener Patterns</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-audio-engineering-basics-embrace-adobes-fading-techniques/"><u>2024 Approved Audio Engineering Basics Embrace Adobe’s Fading Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhance-your-smartphone-photos-with-these-free-innovative-tools/"><u>2024 Approved Enhance Your Smartphone Photos with These Free, Innovative Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-exploring-magix-music-creators-capabilities/"><u>2024 Approved Exploring Magix Music Creator's Capabilities</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-full-spectrum-visionary-eizos-cg318-4k-reviewed-and-revealed/"><u>2024 Approved Full Spectrum Visionary EIZO's CG318-4K Reviewed and Revealed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-high-resolution-horizons-an-in-depth-look-at-the-asus-mg28uq/"><u>2024 Approved High-Resolution Horizons An In-Depth Look at the ASUS MG28UQ</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-best-premiere-plans-free-for-pros/"><u>2024 Approved Unveiling the Best Premiere Plans, FREE for Pros</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-open-the-component-services-in-windows-11/"><u>How to Open the Component Services in Windows 11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-tecno-camon-30-pro-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Tecno Camon 30 Pro 5G</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-meizu-21-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Meizu 21? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-iphone-8-plus-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My iPhone 8 Plus After Forgetting my PIN Code? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210429199-9780762478750-potions/"><u>Potions | Free Book</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-reality-how-i-dispelled-the-nine-common-ai-chatbot-myths/"><u>Unveiling Reality: How I Dispelled the Nine Common AI Chatbot Myths</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-windows-1110-stuck-on-restarting/"><u>[SOLVED] Windows 11/10 Stuck On Restarting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-masterful-bordering-techniques-for-stellar-instagram-videos/"><u>[Updated] 2024 Approved Masterful Bordering Techniques for Stellar Instagram Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dialogue-dynamics-connecting-with-your-youtube-crowd/"><u>[Updated] In 2024, Dialogue Dynamics Connecting With Your YouTube Crowd</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unleash-creativity-in-memes-genrator-assistance/"><u>[Updated] In 2024, Unleash Creativity in Memes Gen'rator Assistance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-video-blogging-essentials-choosing-the-best-cameras-and-lenses/"><u>[Updated] In 2024, Video Blogging Essentials Choosing the Best Cameras and Lenses</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-s17-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo S17</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-compatibility-before-buying-pcs/"><u>Navigating Compatibility Before Buying PCs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/photo-masters-list-the-best-6-4k-dslr-cameras-today/"><u>Photo Masters List The Best 6 4K DSLR Cameras Today</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unleash-clarity-efficient-background-erasure-in-affinity-photo/"><u>Unleash Clarity Efficient Background Erasure in Affinity Photo</u></a></li>
 </ul></div>
 

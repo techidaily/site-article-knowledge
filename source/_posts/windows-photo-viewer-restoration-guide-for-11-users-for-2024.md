@@ -1,7 +1,7 @@
 ---
 title: "Windows Photo Viewer Restoration Guide for 11 Users for 2024"
-date: 2024-10-28T06:42:24.074Z
-updated: 2024-10-29T17:53:06.497Z
+date: 2024-10-31T21:49:38.882Z
+updated: 2024-11-05T00:55:22.870Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -70,23 +77,9 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -103,15 +96,35 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -120,13 +133,6 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,17 +159,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-arctic-athleticism-winter-olympics-spotlight-on-snowboard-cross-stars/"><u>[New] 2024 Approved Arctic Athleticism Winter Olympics Spotlight on Snowboard Cross Stars</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-tuneful-images-the-apple-fusion-method/"><u>[New] 2024 Approved Tuneful Images The Apple Fusion Method</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-emoji-tips-for-yt-comments-a-quick-guide-for-2024/"><u>[Updated] Emoji Tips for YT Comments A Quick Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/11-window-wisdom-the-secret-techniques-youve-missed-out-on-for-2024/"><u>11 Window Wisdom The Secret Techniques You've Missed Out On for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-visual-effects-a-detailed-kinemaster-green-screen-tutorial/"><u>2024 Approved Mastering Visual Effects A Detailed Kinemaster Green Screen Tutorial</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-essentials-of-logging-live-performances-online/"><u>2024 Approved The Essentials of Logging Live Performances Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-10-ai-powered-name-generators-for-podcasts-online/"><u>2024 Approved Top 10 AI-Powered Name Generators for Podcasts Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-guide-newest-lg-bp550-specs/"><u>2024 Approved Ultimate Guide Newest LG BP550 Specs</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-infinix-smart-8-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Infinix Smart 8</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-high-ping-problems-while-playing-street-fighter-6-on-your-pc/"><u>Overcoming High Ping Problems While Playing Street Fighter 6 on Your PC</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-honor-magic-v2-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Honor Magic V2</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-honor-100-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Honor 100? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-create-a-unique-cellphone-alert-from-favorite-tiktok-songs/"><u>[New] 2024 Approved How to Create a Unique Cellphone Alert From Favorite TikTok Songs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-air-vs-pro-with-m1-optimal-laptop-for-your-needs/"><u>[New] Air Vs. Pro with M1 Optimal Laptop for Your Needs?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-explore-the-power-of-vce-22-for-impeccable-video-clarity/"><u>[New] In 2024, Explore the Power of VCE 2.2 for Impeccable Video Clarity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-school-based-videography-crafting-quality-content/"><u>[New] In 2024, School-Based Videography Crafting Quality Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-voice-alteration-apps-magic-edition-amongst-the-best/"><u>[New] Voice Alteration Apps Magic Edition Amongst the Best</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-sony-xperia-xz-superiority-showcased-in-4k-video-quality/"><u>[Updated] Sony Xperia XZ Superiority Showcased in 4K Video Quality</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-3ip-top-audio-capture-apps/"><u>Best 3iP Top Audio Capture Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/craftsmits-and-cinematography-precision-in-aspect-ratios-for-2024/"><u>Craftsmits and Cinematography Precision in Aspect Ratios for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-video-frame-ratio-classifications-for-2024/"><u>FB Video Frame Ratio Classifications for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-capturing-history-securely-saving-old-printed-images/"><u>In 2024, Capturing History Securely Saving Old Printed Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>In 2024, Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/reviving-your-black-screened-laptop/"><u>Reviving Your Black Screened Laptop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/techniques-for-extracting-and-converting-youtube-audio-into-mp3-for-2024/"><u>Safe Techniques for Extracting and Converting YouTube Audio Into MP3 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-fcp-without-paying-tips-for-2024/"><u>Unlock FCP without Paying - Tips for 2024</u></a></li>
 </ul></div>
 

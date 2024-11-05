@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Comprehensive Walkthrough  Using Every Feature in Mac's Preview Software\""
-date: 2024-10-24T22:31:21.104Z
-updated: 2024-10-29T17:18:05.208Z
+date: 2024-11-02T03:34:50.248Z
+updated: 2024-11-05T02:34:51.352Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -84,13 +91,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -137,10 +137,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -159,13 +159,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -179,10 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -219,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,19 +244,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-comprehensive-app-audit-insightful-through-az-capture/"><u>[New] Comprehensive App Audit Insightful Through AZ Capture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-video-guidelines-and-step-by-step-uploading-guide/"><u>[New] Twitter's Video Guidelines & Step-by-Step Uploading Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-complete-self-guided-tour-to-host-and-participate-in-google-meet-for-2024/"><u>[Updated] Complete Self-Guided Tour to Host & Participate in Google Meet for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-on-screen-recording-assistant/"><u>[Updated] In 2024, On-Screen Recording Assistant</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-quick-click-quest-the-art-of-facebook-id-reconnaissance/"><u>[Updated] In 2024, Quick Click Quest The Art of Facebook ID Reconnaissance</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-crafting-visual-stories-in-minutes-using-windows-8-movie-maker/"><u>2024 Approved Crafting Visual Stories in Minutes Using Window's 8 Movie Maker</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-cutting-through-the-noise-top-15-non-gopro-cameras/"><u>2024 Approved Cutting Through the Noise Top 15 Non-GoPro Cameras</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-decoding-video-compression-excellence-av1-vs-vp9/"><u>2024 Approved Decoding Video Compression Excellence AV1 vs VP9</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-from-doodles-to-dollars-the-graphic-artists-guide/"><u>2024 Approved From Doodles to Dollars The Graphic Artist's Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-art-of-monitors-reimagined-an-insight-into-the-z32x/"><u>2024 Approved The Art of Monitors Reimagined An Insight Into the Z32X</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-vr-headset-companies/"><u>2024 Approved Top VR Headset Companies</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/soluciones-de-copia-de-seguridad-profesionales-aomei-backuppro-and-aomei-claro-para-pcs-y-laptops/"><u>Soluciones De Copia De Seguridad Profesionales: AOMEI BackUpPro & AOMEI Claro Para PCs Y Laptops</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-lava-yuva-3-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Lava Yuva 3 Phone Pattern Lock</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/uncovering-ustream-plus-other-live-streamers-for-2024/"><u>Uncovering Ustream + Other Live Streamers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-vision-and-flavor-shooting-the-best-food-videos/"><u>[New] 2024 Approved Vision and Flavor Shooting the Best Food Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-giggles-in-a-box-iphone-fun-for-2024/"><u>[New] Giggles in a Box (iPhone Fun) for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-grasping-video-clarity-the-first-lessons-on-hd/"><u>[New] Grasping Video Clarity The First Lessons on HD</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-essence-of-interactive-virtuality/"><u>[New] In 2024, The Essence of Interactive Virtuality</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unprecedented-capacity-choices-elite-cloud-services/"><u>[Updated] 2024 Approved Unprecedented Capacity Choices Elite Cloud Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unveiling-the-secrets-to-stellar-youtube-intros/"><u>[Updated] 2024 Approved Unveiling the Secrets to Stellar YouTube Intros</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-creating-a-softer-focus-iphone-image-blurring-explained-for-2024/"><u>[Updated] Creating a Softer Focus IPhone Image Blurring Explained for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-tickler-toolkit-image-mashup-for-2024/"><u>[Updated] Tickler Toolkit Image Mashup for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expect-a-10-15-surge-in-pc-memory-modules-costs-for-q1-2023-supply-constraints-persist/"><u>Expect a 10-15% Surge in PC Memory Modules Costs for Q1 2023 – Supply Constraints Persist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-advanced-features-of-samsungs-galaxy-tab-s5e-for-enhanced-productivity/"><u>Exploring the Advanced Features of Samsung's Galaxy Tab S5e for Enhanced Productivity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/first-steps-in-av1-coders-for-2024/"><u>First Steps in AV1 Coders for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-functionality-tips-and-tricks-for-repairing-a-dysfunctional-headset-microphone/"><u>Restoring Functionality: Tips and Tricks for Repairing a Dysfunctional Headset Microphone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes-for-2024/"><u>The Ultimate Guide to Enhancing Reels with Harmonious Tunes for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/where-are-my-steam-captured-moments-stored/"><u>Where Are My Steam Captured Moments Stored?</u></a></li>
 </ul></div>
 

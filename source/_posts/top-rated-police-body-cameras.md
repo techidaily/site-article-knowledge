@@ -1,7 +1,7 @@
 ---
 title: Top Rated Police Body Cameras
-date: 2024-08-27T07:25:10.795Z
-updated: 2024-08-28T07:25:10.795Z
+date: 2024-10-28T17:55:25.908Z
+updated: 2024-11-04T21:35:23.018Z
 categories:
   - BestProducts
 description: This Article Describes Top Rated Police Body Cameras
@@ -80,8 +80,12 @@ PHOTO: Target
 ![PS5 console.](https://www.lifewire.com/thmb/80aScf9GOpsaDFgCtwyW1NIE-P4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5console-dfe325ecc3c84b12bdd852ff79734330.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
 
  The games are varied, with something for everyone here. There are some great exclusives, with my particular highlights including God of War: Ragnarok and The Last of Us series.
@@ -93,6 +97,13 @@ Lifewire / Jennifer Allen
  I really enjoyed playing games with the PS5 DualSense controller.
 
 ![PS5 controller.](https://www.lifewire.com/thmb/AG7JE7IhgP9OyHKJb7-gYZsSc9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5controller-a37dda31e1f34f1e9867c9d21b3a239d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jennifer Allen
 
@@ -109,8 +120,12 @@ Lifewire / Jennifer Allen
 [PS5 Slim vs. PS5](https://www.lifewire.com/ps5-slim-vs-ps5-8643357)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Nintendo Switch Lite](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956)
@@ -134,10 +149,6 @@ PHOTO: Walmart
 
 **TL;DR** : Cute, colorful, and with plenty of games, the Nintendo Switch Lite is a great budget-friendly console.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Nintendo Switch Lite is an incredibly cute-looking handheld console.
@@ -154,9 +165,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/TmYyOgzBYexzwHM_D35w2XJF68c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite1-33b6996f36534d1da9974a460e6c5139.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
  That’s not to say that concessions aren’t made here. The Nintendo Switch Lite can’t be docked like its bigger sibling, missing out on one of the reasons why it’s called a Switch.
@@ -175,23 +183,15 @@ Lifewire / Jennifer Allen
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/-TewO6N-lYMXj-K3swHO6-rKLQ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite2-f5ace5de5d674c3ba9edea76d30888d6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How We Test
 
  I reviewed every game console based on the following attributes:
@@ -291,8 +291,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -300,4 +298,26 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-apowersoft-vs-competitors-screen-capture/"><u>[New] 2024 Approved Apowersoft Vs. Competitor's Screen Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-insiders-approach-to-webinar-preservation/"><u>[New] 2024 Approved Insider's Approach to Webinar Preservation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-nikons-leap-to-4k-the-d500-breakdown/"><u>[New] 2024 Approved Nikon's Leap to 4K The D500 Breakdown</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-edge-imaging-the-most-excellent-4k-cams/"><u>[New] In 2024, Leading Edge Imaging The Most Excellent 4K Cams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-soundtracking-dreams-an-overview-of-magix-fx/"><u>[New] In 2024, Soundtracking Dreams An Overview of Magix FX</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-synergy-between-humans-and-computers-through-gestures/"><u>[New] In 2024, Synergy Between Humans & Computers Through Gestures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-master-class-on-cutting-unwanted-backdrops-for-2024/"><u>[New] Master Class on Cutting Unwanted Backdrops for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-flipping-the-script-turning-online-games-into-channel-gold/"><u>[Updated] Flipping the Script Turning Online Games Into Channel Gold</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-innovating-messaging-sounds-a-guide-to-downloading-and-personalizing-whatsapp-ringtones-for-2024/"><u>[Updated] Innovating Messaging Sounds A Guide to Downloading & Personalizing WhatsApp Ringtones for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unleashing-potential-professional-tips-to-transform-your-social-media-presence/"><u>[Updated] Unleashing Potential Professional Tips to Transform Your Social Media Presence</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-methods-for-installing-the-latest-drivers-on-your-dell-xps-laptop-windows/"><u>Easy Methods for Installing the Latest Drivers on Your Dell XPS Laptop (Windows)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/hidden-treasure-of-free-macos-transcription-tools/"><u>Hidden Treasure of Free macOS Transcription Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pioneering-camera-spin-top-professionals-360cameras-of-2023/"><u>Pioneering Camera Spin Top Professionals’ 360°Cameras of 2023</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/premium-tvs-for-ps5-and-xbox-series-x-gamers-dreams/"><u>Premium TVs for PS5 & Xbox Series X Gamers' Dreams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/talk-turned-type-essential-apps-for-offline-speech-recognition-for-2024/"><u>Talk Turned Type Essential Apps for Offline Speech Recognition for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-tips-to-expand-your-follower-base-on-xtwitter-quickly/"><u>Ultimate Tips to Expand Your Follower Base on X/Twitter Quickly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-top-rated-avi-video-editors-for-cutting-and-trimming-multi-platform-support/"><u>Updated Top-Rated AVI Video Editors for Cutting and Trimming Multi-Platform Support</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

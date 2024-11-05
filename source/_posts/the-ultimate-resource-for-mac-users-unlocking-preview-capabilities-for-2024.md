@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Resource for Mac Users  Unlocking Preview Capabilities for 2024\""
-date: 2024-10-25T04:02:03.987Z
-updated: 2024-10-30T08:14:55.616Z
+date: 2024-10-30T01:12:25.360Z
+updated: 2024-11-05T04:09:36.723Z
 tags: 
   - screen-recording
   - ai video
@@ -69,13 +69,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -91,6 +84,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -121,10 +121,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -172,10 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -213,10 +213,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -244,21 +244,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-from-simulation-to-reality-vrs-growth/"><u>[New] In 2024, From Simulation to Reality VR's Growth</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-leading-tools-for-customizable-screenshot-capabilities/"><u>[Updated] Leading Tools for Customizable Screenshot Capabilities</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-audio-enabled-mac-video-recorder/"><u>2024 Approved Audio-Enabled Mac Video Recorder</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-gear-for-stop-motion-special-effects/"><u>2024 Approved Best Gear for Stop Motion Special Effects</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-craft-stunning-iphone-snaps-heed-these-10-guidelines/"><u>2024 Approved Craft Stunning iPhone Snaps - Heed These 10 Guidelines</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-picture-posters-best-frame-enhancing-software-recommendations/"><u>2024 Approved Picture Posters Best Frame-Enhancing Software Recommendations</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-seamless-transfer-of-high-definition-fb-media/"><u>2024 Approved Seamless Transfer of High Definition FB Media</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-art-of-easy-story-making/"><u>2024 Approved The Art of Easy Story Making</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-spectacquad-p2715q-a-deep-dive-into-4k-screen-technology/"><u>2024 Approved The Spectacquad P2715Q A Deep Dive Into 4K Screen Technology</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unrivaled-vr-sets-for-aerial-adventures/"><u>2024 Approved Unrivaled VR Sets for Aerial Adventures</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-xsplit-download-and-review/"><u>2024 Approved XSplit Download and Review</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnosing-and-resolving-logitech-g733-microphone-connectivity-problems/"><u>Diagnosing and Resolving Logitech G733 Microphone Connectivity Problems</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-defy-2-frp-by-drfone-android/"><u>How Can We Bypass Motorola Defy 2 FRP?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-13-ultra-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi 13 Ultra to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-pathway-to-professional-fb-reel-development/"><u>The Pathway to Professional FB Reel Development</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-top-4-proven-tactics-for-exceptional-loop-videos-on-ig/"><u>[New] 2024 Approved Top 4 Proven Tactics for Exceptional Loop Videos on IG</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-taming-the-tremble-keep-your-gopro-movies-steady-and-smooth/"><u>[New] In 2024, Taming the Tremble Keep Your GoPro Movies Steady and Smooth</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-online-onyx-the-monetary-meaningfulness-of-pewdiepies-earnings-for-2024/"><u>[New] Online Onyx The Monetary Meaningfulness of Pewdiepie's Earnings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-profitability-initial-steps-to-earnings-for-2024/"><u>[New] YouTube Profitability Initial Steps to Earnings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-charting-your-course-through-youtube-compliance-for-2024/"><u>[Updated] Charting Your Course Through YouTube Compliance for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-bp550-revamped-the-ultimate-2023-examination/"><u>[Updated] In 2024, BP550 Revamped - The Ultimate 2023 Examination</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-airborne-shots-the-pivotal-role-of-dji-spark-in-selfie-culture-for-2024/"><u>[Updated] Mastering Airborne Shots The Pivotal Role of DJI Spark in Selfie Culture for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-free-stock-footage-websites-you-should-know/"><u>[Updated] Top 10 Free Stock Footage Websites You Should Know</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/boost-engagement-with-these-5-caption-tricks-on-tiktok-videos-for-2024/"><u>Boost Engagement with These 5 Caption Tricks on TikTok Videos for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-connectivity-hiccups-with-naraka-bladespace/"><u>How to Resolve Connectivity Hiccups with Naraka Bladespace</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-a-collection-of-trendy-tiktok-backgrounds/"><u>In 2024, A Collection of Trendy TikTok Backgrounds</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-complete-guide-to-edit-a-video-with-gopro-studio/"><u>In 2024, Complete Guide to Edit a Video with GoPro Studio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-precision-meets-creativity-top-accessories-for-yi-4k/"><u>In 2024, Precision Meets Creativity Top Accessories for YI 4K</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-subtitle-converters-no-cost-for-srt-files/"><u>In 2024, Top 10 Subtitle Converters, No Cost for SRT Files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-transform-your-flip-to-flash-with-android/"><u>In 2024, Transform Your Flip to Flash with Android</u></a></li>
+<li><a href="https://extra-information.techidaily.com/meme-mastery-top-ten-template-treasures/"><u>Meme Mastery Top Ten Template Treasures</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-switch-it-up-the-best-face-swap-apps-for-iphone-and-android-for-2024/"><u>New Switch It Up The Best Face Swap Apps for iPhone and Android for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-windows-setup-flaw-c1900101/"><u>Overcoming Windows Setup Flaw: C1900101</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-illustrators-journey-navigating-for-success-in-designing-for-2024/"><u>The Illustrator's Journey Navigating for Success in Designing for 2024</u></a></li>
 </ul></div>
 

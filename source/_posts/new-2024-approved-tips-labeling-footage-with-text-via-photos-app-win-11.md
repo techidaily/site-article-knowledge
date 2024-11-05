@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tips  Labeling Footage with Text via Photos App (Win 11)\""
-date: 2024-08-27T07:27:05.403Z
-updated: 2024-08-28T07:27:05.403Z
+date: 2024-10-29T17:43:26.663Z
+updated: 2024-11-05T00:57:11.900Z
 tags: 
   - screen-recording
   - ai video
@@ -62,21 +62,39 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +102,12 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +131,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-from-raw-footage-to-professionals-finest-a-gopro-journey/"><u>[New] 2024 Approved From Raw Footage to Professionals' Finest A Gopro Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prime-choices-of-drones-up-for-grabs/"><u>[New] 2024 Approved Prime Choices of Drones Up for Grabs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-reinstating-old-school-windows-photo-viewer-on-modern-win10/"><u>[New] In 2024, Reinstating Old-School Windows Photo Viewer on Modern Win10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-why-are-my-insta-vids-upside-down/"><u>[New] In 2024, Why Are My Insta Vids Upside Down?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-three-methods-for-capturing-ps4-gaming-moments/"><u>[New] Three Methods for Capturing PS4 Gaming Moments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-transforming-visuals-the-power-of-customized-luts-for-2024/"><u>[New] Transforming Visuals The Power of Customized LUTs for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-comprehensive-list-zoom-recording-must-haves/"><u>[Updated] In 2024, Comprehensive List Zoom Recording Must-Haves</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-verdict-on-android-photo-editing-does-picku-excel/"><u>[Updated] The Verdict on Android Photo Editing – Does PickU Excel?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-engagement-on-youtube-fending-off-automated-audiences/"><u>2024 Approved Elevate Engagement on YouTube Fending Off Automated Audiences</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-guide-to-installing-latest-amd-driver-updates/"><u>Effortless Guide to Installing Latest AMD Driver Updates</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-forcing-a-reboot-on-your-apple-device-to-access-recovery-settings/"><u>Expert Advice: Forcing a Reboot on Your Apple Device to Access Recovery Settings</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-muting-the-youtube-video-peek-mechanism/"><u>In 2024, Muting the YouTube Video Peek Mechanism</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-peak-color-alignment-tool/"><u>In 2024, Peak Color Alignment Tool</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-xs-max-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From iPhone XS Max You Should Try Out</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-guide-to-vr-and-ar-game-apps-for-phones-for-2024/"><u>The Ultimate Guide to VR and AR Game Apps for Phones for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/top-rated-seo-agencies-in-brussels-expertise-and-services-for-optimal-online-visibility/"><u>Top Rated SEO Agencies in Brussels: Expertise and Services for Optimal Online Visibility</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/1728475066191-windows-115/"><u>エクスパートガイド：コマンドラインを使ったWindows 11リカバリの5つのテクニック</u></a></li>
+</ul></div>
 

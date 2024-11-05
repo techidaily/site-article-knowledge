@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Chromatic Symphony  The Filmmaker's Toolkit\""
-date: 2024-08-27T07:25:04.715Z
-updated: 2024-08-28T07:25:04.715Z
+date: 2024-10-29T05:46:56.603Z
+updated: 2024-11-04T16:27:47.136Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ Color grading and color correction are processes that happen throughout postprod
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why is Color Grading Important?
 
@@ -71,8 +78,18 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
@@ -95,9 +112,6 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ##### Step2Select the specific video portion
 
 #####
@@ -106,20 +120,28 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 You will notice that the color changes depending on your selected preset.
 
 In the Presets tab, there are different templates, including Common, 3D LUT, Vignette, and Film. While in Adjust tab, you can modify the white balance, such as color tint and color temperature, 3D LUT, Color, Light, HSL, and Vignette, etc.
@@ -130,9 +152,6 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Using the Color Panel Window**
 
 ##### Step1To perform color correction in Filmora, switch to the Color tab
@@ -147,9 +166,6 @@ Click the button Advanced at the lower corner, then the color grading window wil
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Color Histogram**
 
 The color histogram informs you of the color condition of this video. This reflects the exact allotment of colors throughout a specific image, highlighting the various colors on the screen and the pixels for every color type. When the color histogram points out as “Three Color Histograms,” a specific assignment of the three primary colors (R, B, and G) is reflected.
@@ -190,7 +206,6 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <ins class="adsbygoogle"
@@ -215,4 +230,24 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-basic-guide-to-modify-clown-voiceprint-in-windoze-pc/"><u>[New] 2024 Approved Basic Guide to Modify Clown Voiceprint in Windoze PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-spectacular-selects-ideal-laptops-mastering-4k-editing/"><u>[New] 2024 Approved Spectacular Selects Ideal Laptops Mastering 4K Editing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-easiest-path-to-personalizing-your-pubg-characters-speech/"><u>[New] 2024 Approved The Easiest Path to Personalizing Your PUBG Character’s Speech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-crafting-the-perfect-visual-identity-podcast-covers-unveiled/"><u>[New] Crafting the Perfect Visual Identity Podcast Covers Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-10-finest-fee-free-lut-options-reviewed-and-accessible-here-for-2024/"><u>[Updated] 10 Finest, Fee-Free LUT Options Reviewed & Accessible Here for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-avoid-payment-secure-your-free-fcp-copy/"><u>[Updated] 2024 Approved Avoid Payment Secure Your Free FCP Copy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-block-facebook-video-ads/"><u>[Updated] In 2024, How to Block Facebook Video Ads?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-shot-with-precision-the-top-10-camera-lens-choices-for-photographers/"><u>[Updated] In 2024, Shot with Precision The Top 10 Camera Lens Choices for Photographers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/exploring-high-performance-video-editors-the-ultimate-guide-to-top-9-free-options-replacing-lightworks-and-movavi/"><u>Exploring High-Performance Video Editors: The Ultimate Guide to Top 9 Free Options Replacing Lightworks & Movavi</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-grids-for-greatness-photographs-next-step-up/"><u>In 2024, Grids for Greatness Photographs' Next Step Up</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-secure-and-share-your-live-sounds-5-proven-online-approaches/"><u>In 2024, Secure & Share Your Live Sounds - 5 Proven Online Approaches</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-photo-background-removal-techniques/"><u>Mastering Photo Background Removal Techniques</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-disabling-techniques-for-office-and-os-updates/"><u>Quick Disabling Techniques for Office and OS Updates</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fix-for-blue-screen-on-windows-11/"><u>Quick Fix for Blue Screen on Windows 11</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/should-i-opt-for-windows-11s-modern-features-and-performance/"><u>Should I Opt for Windows 11'S Modern Features and Performance?</u></a></li>
+<li><a href="https://windows11.techidaily.com/solutions-for-unsuited-audio-device-stopped-in-windows-errors/"><u>Solutions for 'Unsuited Audio Device Stopped' In Windows Errors</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210181354-9781649904072-wounded-survivor/"><u>Wounded Survivor | Free Book</u></a></li>
+</ul></div>
 
