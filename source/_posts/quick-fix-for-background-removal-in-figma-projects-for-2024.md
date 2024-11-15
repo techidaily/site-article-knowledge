@@ -1,7 +1,7 @@
 ---
 title: "Quick Fix for Background Removal in Figma Projects for 2024"
-date: 2024-11-04T05:43:28.870Z
-updated: 2024-11-05T00:47:47.310Z
+date: 2024-11-09T01:51:47.690Z
+updated: 2024-11-14T21:17:01.429Z
 tags: 
   - screen-recording
   - ai video
@@ -75,13 +75,6 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
 ## Other Options To Remove Image's Background In Figma
@@ -89,10 +82,10 @@ The program will start running the plugin, and the background of your image will
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
@@ -103,10 +96,10 @@ Follow these tips to remove the background of images with transparent or solid c
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
@@ -162,10 +155,10 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -175,15 +168,22 @@ Another alternative is to use any tool that **removes the image background onlin
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,15 +217,24 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-craft-professional-episodes-a-comprehensive-guide-to-editing-in-garageband/"><u>[New] 2024 Approved Craft Professional Episodes A Comprehensive Guide to Editing in GarageBand</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-become-an-expert-at-unearthing-unique-visuals-from-pexels-for-2024/"><u>[New] Become an Expert at Unearthing Unique Visuals From Pexels for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unlock-the-secrets-crafting-captivating-instagram-unboxing-videos/"><u>[New] In 2024, Unlock the Secrets Crafting Captivating Instagram Unboxing Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-best-4k-display-selection-the-creme-de-la-creme-list/"><u>[Updated] 2024 Approved Best 4K Display Selection The Crème De La Crème List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-prime-platforms-for-asmr-experience/"><u>[Updated] Prime Platforms for ASMR Experience</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-sync-your-world-step-by-step-windows-pc-tutorial-for-live-tv-recording-for-2024/"><u>[Updated] Sync Your World Step-by-Step Windows PC Tutorial for Live TV Recording for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/from-skyboxes-to-studio-walls-top-9-drone-software-showdowns/"><u>From Skyboxes to Studio Walls Top 9 Drone Software Showdowns</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/leading-5-gratis-open-source-graphics-engines/"><u>Leading 5 Gratis, Open-Source Graphics Engines</u></a></li>
-<li><a href="https://driver-install.techidaily.com/resolve-print-spooler-errors-in-windows-10/"><u>Resolve Print Spooler Errors in Windows 10</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-top-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>Updated Top 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-crafting-straightforward-stories/"><u>[New] 2024 Approved Crafting Straightforward Stories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pivotal-insights-into-online-story-crafting/"><u>[New] 2024 Approved Pivotal Insights Into Online Story Crafting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-efficient-strategies-for-viewing-youtube-votes-and-reactions/"><u>[New] Efficient Strategies for Viewing YouTube Votes and Reactions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-auditory-insights-into-ffmpeg-audio-processing/"><u>[New] In 2024, Auditory Insights Into FFmpeg Audio Processing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-macos-11-big-sur-system-details/"><u>[New] Navigating MacOS 11 Big Sur - System Details</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-7-best-free-online-youtube-tag-extractors/"><u>[Updated] 2024 Approved 7 Best Free Online YouTube Tag Extractors</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-crafting-cozy-living-areas-with-daylight-for-2024/"><u>[Updated] Crafting Cozy Living Areas with Daylight for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-bridging-communication-gaps-utilizing-zoom-with-gmail-mail/"><u>[Updated] In 2024, Bridging Communication Gaps Utilizing Zoom with Gmail Mail</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-your-vlogs-with-high-quality-editing-premiere-pro-style-for-2024/"><u>Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-leveraging-windows-10s-photos-app-a-guide-to-adding-text-to-visual-content/"><u>In 2024, Leveraging Windows 10'S Photos App A Guide to Adding Text to Visual Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-premium-photographic-archives/"><u>In 2024, Premium Photographic Archives</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-infinix-hot-40-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Infinix Hot 40</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/insightful-recap-updated-sony-bdp-s3700-features-for-2024/"><u>Insightful Recap Updated Sony BDP-S3700 Features for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/rapid-accessibility-of-instagram-videos-and-stories/"><u>Rapid Accessibility of Instagram Videos and Stories</u></a></li>
+<li><a href="https://fox-within.techidaily.com/schritt-fur-schritt-anleitung-wiederauffinden-verlorener-gopro-aufnahmen/"><u>Schritt-Für-Schritt-Anleitung: Wiederauffinden Verlorener GoPro-Aufnahmen</u></a></li>
+<li><a href="https://blog-min.techidaily.com/simple-guide-on-converting-your-dvds-into-3gp-format-for-enhanced-mobile-viewing/"><u>Simple Guide on Converting Your DVDs Into 3GP Format for Enhanced Mobile Viewing</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-canon-camcorder-video-editing-for-beginners-a-comprehensive-guide/"><u>Updated In 2024, Canon Camcorder Video Editing for Beginners A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces/"><u>Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces</u></a></li>
 </ul></div>
 

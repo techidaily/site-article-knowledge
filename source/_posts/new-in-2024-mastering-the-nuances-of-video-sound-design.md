@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering the Nuances of Video Sound Design"
-date: 2024-08-27T07:21:26.351Z
-updated: 2024-08-28T07:21:26.351Z
+date: 2024-11-12T07:50:46.885Z
+updated: 2024-11-15T07:33:02.404Z
 tags: 
   - screen-recording
   - ai video
@@ -50,11 +50,25 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -62,9 +76,6 @@ You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Some Tips for Recording Narration
 
 Try playing the clip in the preview window to get a sense of what you want to say fits well with the space available in the project.
@@ -75,9 +86,6 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -87,22 +95,27 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Should you use narration in your next project?
 
 The best way to learn something is by doing it. So the next time you record a video, think about how you could augment your video project with narration.
@@ -139,4 +152,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-captivating-creativity-with-advanced-tiktok-filters-for-2024/"><u>[New] Captivating Creativity with Advanced TikTok Filters for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-enhance-your-iphone-hd-video-clarity-in-premiere-pro-effortlessly-for-2024/"><u>[New] Enhance Your iPhone HD Video Clarity in Premiere Pro Effortlessly for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-instagram-live-via-obs-technology/"><u>[New] Instagram Live via OBS Technology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-soaring-past-competitors-mastering-drone-racing-and-best-fpv-drones/"><u>[New] Soaring Past Competitors Mastering Drone Racing and Best FPV Drones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-wholesale-sky-shelves-economic-bulk-data-holder/"><u>[New] Wholesale Sky Shelves Economic Bulk Data Holder</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-sourav-joshis-approach-to-youtube-monetization/"><u>[Updated] 2024 Approved Sourav Joshi's Approach to YouTube Monetization</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-filmmakers-toolbox-in-depth-guide-to-cinematic-techniques-in-24/"><u>[Updated] 2024 Approved The Filmmaker’s Toolbox In-Depth Guide to Cinematic Techniques in '24</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-8-drawing-apps-for-ipados/"><u>[Updated] Top 8 Drawing Apps for iPadOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/digital-space-for-every-need-the-best-free-services-offering-massive-storage-for-2024/"><u>Digital Space for Every Need - The Best Free Services Offering Massive Storage for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/easy-technique-change-fins-sounds-on-pc-systems/"><u>Easy Technique Change Fins' Sounds on PC Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-poco-x5-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Poco X5 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-convert-dailymotion-videos-online-for-free-no-cost/"><u>New In 2024, Convert Dailymotion Videos Online for Free - No Cost</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723212221330-solve-your-typing-troubles-in-windows-10-and-11-repair-broken-keyboard-buttons/"><u>Solve Your Typing Troubles in WINDOWS 10 and 11: Repair Broken Keyboard Buttons</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-terminal-customization-aesthetic-choices/"><u>Windows Terminal Customization: Aesthetic Choices</u></a></li>
+</ul></div>
 

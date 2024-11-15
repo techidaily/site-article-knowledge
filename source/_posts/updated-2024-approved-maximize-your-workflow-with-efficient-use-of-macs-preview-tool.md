@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Maximize Your Workflow with Efficient Use of Mac's Preview Tool\""
-date: 2024-10-28T19:11:16.963Z
-updated: 2024-11-04T22:03:18.483Z
+date: 2024-11-12T05:45:34.099Z
+updated: 2024-11-15T06:11:35.627Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -62,13 +62,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -84,10 +77,10 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -167,16 +160,16 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -225,6 +218,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -250,22 +250,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-8-video-boosters-say-goodbye-to-slow-mo/"><u>[New] 2024 Approved Top 8 Video Boosters Say Goodbye to Slow Mo</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-apex-audio-streamer-androids-choice/"><u>[New] Apex Audio Streamer, Android's Choice</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-elite-6-software-solutions-for-flawless-signature-hiding/"><u>[New] Elite 6 Software Solutions for Flawless Signature Hiding</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-radiance-and-refine-essential-editing-secrets-revealed/"><u>[New] In 2024, Radiance and Refine Essential Editing Secrets Revealed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-7-dslr-picks-to-upgrade-your-vlog-production/"><u>[New] Ultimate 7 DSLR Picks to Upgrade Your Vlog Production</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-expert-take-on-camstudios-recorder-efficacy/"><u>[Updated] 2024 Approved Expert Take on CamStudio's Recorder Efficacy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-premier-audio-broadcasts-networks/"><u>[Updated] 2024 Approved Premier Audio Broadcasts Networks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-seas-silent-storytelling-mastering-gopro-footage-in-deep-waters/"><u>[Updated] 2024 Approved Sea's Silent Storytelling Mastering GoPro Footage in Deep Waters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-auditory-evolution-at-your-fingertips-the-leading-5-chrome-extension-apps/"><u>[Updated] Auditory Evolution at Your Fingertips The Leading 5 Chrome Extension Apps</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/elevate-seo-strategies-using-the-innovative-cookiebot-platform/"><u>Elevate SEO Strategies Using the Innovative Cookiebot Platform</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/engaging-article-leader/"><u>Engaging Article Leader</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/harnessing-zooms-potential-with-key-conversion-techniques/"><u>Harnessing Zoom's Potential with Key Conversion Techniques</u></a></li>
-<li><a href="https://win11.techidaily.com/immediate-solution-for-frozen-keys-in-snipping-tool/"><u>Immediate Solution for Frozen Keys in Snipping Tool</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-the-art-of-tinder-profiles-top-tricks-for-instant-love-interest/"><u>Mastering the Art of Tinder Profiles Top Tricks for Instant Love Interest</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/setting-the-price-for-higher-youtube-engagement-for-2024/"><u>Setting the Price for Higher YouTube Engagement for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-unlock-pro-level-video-effects-a-step-by-step-guide/"><u>Updated In 2024, Unlock Pro-Level Video Effects A Step-by-Step Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mkv-mp3/"><u>スムーズに MKV を MP3 形式にコンバートするためのガイド</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-a-beginners-handbook-to-harnessing-the-power-of-movie-maker-in-windows-11/"><u>[New] 2024 Approved A Beginner's Handbook to Harnessing the Power of Movie Maker in Windows 11</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-perfect-speech-interpretation-googles-innovative-solution/"><u>[New] 2024 Approved Perfect Speech Interpretation Google's Innovative Solution</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-pinnacle-of-media-excellence-top-phones-videos/"><u>[New] 2024 Approved The Pinnacle of Media Excellence Top Phones Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-boost-your-blogging-bravery-following-youtuber-leaders/"><u>[New] In 2024, Boost Your Blogging Bravery Following YouTuber Leaders</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-premier-advice-superior-iphone-audio-artists/"><u>[New] In 2024, Premier Advice Superior iPhone Audio Artists</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-authoritative-guide-to-premium-auto-camera-tech-for-2024/"><u>[Updated] Authoritative Guide to Premium Auto Camera Tech for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tuneful-texting-whatsapp-audio-integration/"><u>2024 Approved Tuneful Texting WhatsApp Audio Integration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/dissecting-the-core-features-comprehensive-review-of-lightroom-on-android-for-2024/"><u>Dissecting the Core Features Comprehensive Review of Lightroom on Android for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/diving-into-3d-worlds-iphones-approach-to-vr-viewing-for-2024/"><u>Diving Into 3D Worlds IPhone's Approach to VR Viewing for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/fast-track-termination-of-slow-programs-with-a-secret-win11-feature-discover-how-on-zdnet/"><u>Fast-Track Termination of Slow Programs with a Secret Win11 Feature - Discover How on ZDNet</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-photo-fusion-made-simple-the-picshot-experience/"><u>In 2024, Photo Fusion Made Simple - The Picshot Experience</u></a></li>
+<li><a href="https://win-news.techidaily.com/mp3wavaac-converter-fast-download-tool-for-gaana-music-tracks/"><u>MP3/WAV/AAC Converter - Fast Download Tool for Gaana Music Tracks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-world-of-gopro-streaming-and-social-media-networks-for-2024/"><u>Navigating the World of Gopro Streaming and Social Media Networks for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/pioneering-discoveries-in-pc-components-by-toms-hardware-experts/"><u>Pioneering Discoveries in PC Components by Tom's Hardware Experts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Full Story on Panasonic HX-A1 Action Recorder\""
-date: 2024-11-01T23:03:18.793Z
-updated: 2024-11-05T05:24:07.866Z
+date: 2024-11-10T23:20:23.679Z
+updated: 2024-11-14T22:25:48.230Z
 tags: 
   - screen-recording
   - ai video
@@ -43,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -76,10 +69,16 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -120,10 +119,10 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features
@@ -155,10 +154,16 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -168,6 +173,13 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -194,19 +206,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-total-data-for-uninterrupted-viewer-experience/"><u>[New] 2024 Approved Total Data for Uninterrupted Viewer Experience</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/oost-your-youtube-output-rapid-video-rendering-and-transfer-for-2024/"><u>[New] Boost Your YouTube Output - Rapid Video Rendering and Transfer for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-soundseekers-avoiding-dacast-traps/"><u>[New] SoundSeekers Avoiding DaCast Traps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-reimagining-action-recording-with-intova-edge-x/"><u>[Updated] 2024 Approved Reimagining Action Recording with Intova Edge X</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-discover-best-8-3d-realms-with-glossy-text-effects/"><u>[Updated] In 2024, Discover Best 8 3D Realms with Glossy Text Effects</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-dominate-facebook-traffic-with-innovative-video-strategies/"><u>[Updated] In 2024, Dominate Facebook Traffic with Innovative Video Strategies</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-master-guide-for-selecting-tiktok-wallpapers/"><u>[Updated] In 2024, Master Guide for Selecting TikTok Wallpapers</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-avoid-blurry-scenes-zooming-in-on-google-meet/"><u>2024 Approved Avoid Blurry Scenes Zooming In on Google Meet</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/demystifying-claude-what-can-you-accomplish-with-it/"><u>Demystifying CLAUDE ([What Can You Accomplish With It?])</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/drehung-und-qualitatssicherung-von-mp4-videos-wie-man-sie-erfolgreich-um-bis-zu-270-grad-dreht/"><u>Drehung Und Qualitätssicherung Von MP4-Videos: Wie Man Sie Erfolgreich Um Bis Zu 270 Grad Dreht</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-find-n3-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo Find N3 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-streamline-conversion-selecting-the-top-10-free-tools/"><u>In 2024, Streamline Conversion Selecting the Top 10 Free Tools</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/next-gen-search-unveiled-microsoft-enhances-bing-with-artificer-intelligence/"><u>Next-Gen Search Unveiled: Microsoft Enhances Bing with Artificer Intelligence</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-cut-to-perfection-innovative-video-edits-on-windows-11-photos-for-2024/"><u>[New] Cut to Perfection Innovative Video Edits on Windows 11 Photos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-tooninnovate-master-review-year-2024-edition/"><u>[New] ToonInnovate Master Review - Year 2024 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-craft-engaging-youtube-stays-strategies-to-shine-without-thousand-supporters/"><u>[Updated] Craft Engaging YouTube Stays Strategies to Shine without Thousand Supporters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-discover-the-best-10-top-video-translation-platforms-for-multilingual-professionals/"><u>[Updated] Discover the Best 10 Top Video Translation Platforms for Multilingual Professionals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-digital-divide-demystifying-virtualitys-kin-mr-ar-and-vr/"><u>[Updated] In 2024, The Digital Divide Demystifying Virtuality's Kin (MR, AR, & VR)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-rising-stars-top-sierra-dvd-production-tools-for-2024/"><u>[Updated] Rising Stars Top Sierra DVD Production Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-tricks-to-control-music-paceplay-in-spotify/"><u>[Updated] Top Tricks to Control Music Paceplay in Spotify</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-ultimate-route-from-obs-broadcast-to-fb-channels/"><u>2024 Approved The Ultimate Route From OBS Broadcast to FB Channels</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-amplify-engagement-essential-tips-for-tiktok-unbox-videos/"><u>In 2024, Amplify Engagement Essential Tips for TikTok Unbox Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ig-tik-combined-expertise-for-smooth-integration/"><u>In 2024, IG-Tik Combined Expertise for Smooth Integration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-luts-utilization-in-movie-color-grading/"><u>In 2024, Luts Utilization in Movie Color Grading</u></a></li>
+<li><a href="https://fox-that.techidaily.com/learn-how-to-enhance-your-iphones-autocorrect-skills-in-just-6-simple-ways/"><u>Learn How to Enhance Your iPhone's AutoCorrect Skills in Just 6 Simple Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/revealing-the-top-six-where-to-grab-your-snack-videos/"><u>Revealing the Top Six Where to Grab Your Snack Videos</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-oppo-reno-11-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-combining-your-fortnite-profiles-seamlessly/"><u>Step-by-Step Guide: Combining Your Fortnite Profiles Seamlessly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-compact-battery-chargers-to-keep-your-laptop-going/"><u>The Best Compact Battery Chargers to Keep Your Laptop Going</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-are-you-looking-for-a-filmora-coupon-code-but-have-no-idea-where-to-get-it-check-here-and-it-will-save-you-up-to-54-off-on-your-wondershare-filmora-/"><u>Updated Are You Looking for a Filmora Coupon Code but Have No Idea Where to Get It? Check Here and It Will Save You up to 54 OFF on Your Wondershare Filmora Order</u></a></li>
 </ul></div>
 

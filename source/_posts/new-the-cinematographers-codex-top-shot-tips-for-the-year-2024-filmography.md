@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Cinematographer’s Codex  Top Shot Tips for the Year 2024 Filmography\""
-date: 2024-10-31T20:30:06.913Z
-updated: 2024-11-05T05:35:24.825Z
+date: 2024-11-12T11:55:33.307Z
+updated: 2024-11-14T23:09:15.924Z
 tags: 
   - screen-recording
   - ai video
@@ -41,22 +41,16 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 Step 2 Now open and close the door to get smooth camera movement.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -76,20 +70,6 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -107,6 +87,13 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -129,6 +116,13 @@ Step 5 Put the bulb on the lamp and turn it on the lamp.
 Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY Light Reflector
 
@@ -153,10 +147,10 @@ There is a GIF attached below to understand the steps visually.
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
@@ -176,6 +170,13 @@ Step 3 Use this diffuser to reduce the intensity of light.
 For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
@@ -218,10 +219,10 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -245,17 +246,10 @@ The video attached below will help you to understand these steps.
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -294,19 +288,19 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-14-ways-to-make-irresistible-gourmet-vids/"><u>[New] In 2024, 14 Ways to Make Irresistible Gourmet Vids</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-video-guide-with-annotations-on-youtube-for-2024/"><u>[Updated] Elevate Your Video Guide with Annotations on YouTube for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-capture-stunning-videos-on-iphone-8-pro-tips-for-quality-shootings/"><u>[Updated] In 2024, Capture Stunning Videos on iPhone 8 Pro Tips for Quality Shootings</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-concealed-chronicle-watchers-5-premier-application-choices/"><u>[Updated] In 2024, Concealed Chronicle Watchers 5 Premier Application Choices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-infusing-action-into-photos-using-illustrators-features/"><u>[Updated] In 2024, Infusing Action Into Photos Using Illustrator's Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-micro-film-narrative-blueprint/"><u>[Updated] In 2024, Micro-Film Narrative Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-uncomplicated-narrative-guide/"><u>In 2024, Uncomplicated Narrative Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/perceiving-beyond-understanding-ars-impact-for-2024/"><u>Perceiving Beyond Understanding AR's Impact for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revive-your-wifi-quick-bluetooth-driver-fix-in-win11/"><u>Revive Your WiFi: Quick Bluetooth Driver Fix in Win11</u></a></li>
-<li><a href="https://fox-info.techidaily.com/saving-skies-best-price-for-data-keepers-2024/"><u>Saving Skies Best Price for Data Keepers 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-fixes-to-hps-beats-audio-driver-glitches-in-windows-operating-systems/"><u>Step-by-Step Fixes to HP's Beats Audio Driver Glitches in Windows Operating Systems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-moving-images-and-clips-from-your-playstation-5-console/"><u>Step-by-Step Guide: Moving Images & Clips From Your PlayStation 5 Console</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlocking-potential-master-dvd-burning-with-your-mac-for-2024/"><u>Unlocking Potential Master DVD Burning with Your Mac for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-future-proof-files-and-folders-at-zero-price-point-top-20-cloud-service-picks-1tbplus-for-2024/"><u>[New] Future-Proof Files & Folders at Zero Price Point Top 20 Cloud Service Picks (1TB+) for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pro-tips-for-effortless-photos-and-videos-in-windows-11-for-2024/"><u>[New] Pro Tips for Effortless Photos & Videos in Windows 11 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-discovering-hidden-treasures-windows-11s-new-offerings/"><u>[Updated] 2024 Approved Discovering Hidden Treasures Windows 11'S New Offerings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-flarex-media-player-pro-versatile-music-app/"><u>[Updated] 2024 Approved FlareX Media Player Pro Versatile Music App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-noiseless-speech-transcription-services/"><u>[Updated] In 2024, Noiseless Speech Transcription Services</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-samsung-ue590-masterclass-cutting-edge-gaming-display/"><u>[Updated] Samsung UE590 Masterclass Cutting-Edge Gaming Display</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-legacy-of-memories-scanning-and-storing-vintage-photographs/"><u>[Updated] The Legacy of Memories Scanning and Storing Vintage Photographs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-visual-virtuosity-mastering-the-craft-of-photographic-enhancement-for-2024/"><u>[Updated] Visual Virtuosity Mastering the Craft of Photographic Enhancement for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/handling-chatgpt-overload-tips-to-address-maximum-request-limit-alerts-in-windows/"><u>Handling ChatGPT Overload: Tips to Address Maximum Request Limit Alerts in Windows</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-engaging-story-starter-toolkit/"><u>In 2024, Engaging Story Starter Toolkit</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-v29-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo V29? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://extra-support.techidaily.com/meme-matrix-perfect-pratfalls-for-parties-for-2024/"><u>Meme Matrix Perfect Pratfalls for Parties for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/msvcr71dll-was-not-found-solved/"><u>MSVCR71.dll Was Not Found [Solved]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-ipad-models-of-2024-comprehensive-reviews-by-tech-gurus/"><u>Top-Rated iPad Models of 2024: Comprehensive Reviews by Tech Gurus</u></a></li>
 </ul></div>
 

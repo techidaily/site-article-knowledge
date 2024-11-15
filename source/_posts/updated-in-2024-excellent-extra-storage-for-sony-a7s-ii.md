@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Excellent Extra Storage for Sony A7S II"
-date: 2024-08-27T07:22:58.931Z
-updated: 2024-08-28T07:22:58.931Z
+date: 2024-11-14T00:07:58.314Z
+updated: 2024-11-15T08:23:08.055Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -107,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -130,8 +144,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-streamlining-workflow-fixes-for-adobe-premiere-srt-freeze/"><u>[New] 2024 Approved Streamlining Workflow Fixes for Adobe Premiere SRT Freeze</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-your-big-day-easily-timed-top-mobile-apps-for-weddings/"><u>[New] 2024 Approved Your Big Day, Easily Timed Top Mobile Apps for Weddings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-evaluating-adobes-anti-shake-functionality-for-creatives/"><u>[New] Evaluating Adobe's Anti-Shake Functionality for Creatives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-hacks-to-dodge-digital-lessons-at-home/"><u>[New] In 2024, Hacks to Dodge Digital Lessons at Home</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-windows-evolved-spotlight-on-latest-changes-for-2024/"><u>[New] Windows Evolved Spotlight on Latest Changes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-shaking-no-more-evaluating-photoshops-anti-shake-feature/"><u>[Updated] 2024 Approved Shaking No More Evaluating Photoshop's Anti-Shake Feature</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exploring-av1s-superiority-over-vp9-for-2024/"><u>[Updated] Exploring AV1's Superiority Over VP9 for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-master-guide-to-unrestricted-digital-vaults-for-2024/"><u>[Updated] Master Guide to Unrestricted Digital Vaults for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-essential-virtual-worlds-worth-playing/"><u>2024 Approved Essential Virtual Worlds Worth Playing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-t2x-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo T2x 5G</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-evaluation-of-apples-latest-marvel-iphone-12-a-game-changing-device/"><u>Comprehensive Evaluation of Apple's Latest Marvel: IPhone 12 - A Game-Changing Device!</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-poco-f5-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Poco F5 Pro 5G Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-samsung-galaxy-a05s-by-drfone-android/"><u>In 2024, How to Bypass FRP from Samsung Galaxy A05s?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-solutions-resolving-common-problems-with-i2c-human-interface-device-drivers/"><u>Quick Solutions: Resolving Common Problems with I2C Human Interface Device Drivers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-tech-picks-for-entering-and-thriving-in-the-metaverse/"><u>Top Tech Picks for Entering and Thriving in the Metaverse</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
