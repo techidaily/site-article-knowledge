@@ -1,7 +1,7 @@
 ---
 title: "\"From Ordinary to Stunning  A Guide to HDR Portraits\""
-date: 2024-11-08T08:47:58.808Z
-updated: 2024-11-14T16:48:48.993Z
+date: 2024-11-19T20:54:28.671Z
+updated: 2024-11-24T17:55:14.663Z
 tags: 
   - screen-recording
   - ai video
@@ -62,10 +62,7 @@ The first and most crucial part of your camera setting is to choose between two 
 ![camera setting](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 So it is your choice which mode you want to use. Both work perfectly with HDR photography.
@@ -83,6 +80,10 @@ Usually, three shots are ideal for HDR portraits as the chances of moving decrea
 ![moving decrease](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-2.jpg)
 
 Once you are done with your bracketing settings, all you have to do is press and hold the shutter, and your specified number of photos will be taken, each with a different exposure value.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Some Useful Tips to Remember
 
@@ -103,10 +104,7 @@ You should adjust the focus manually instead of autofocus, as it may shift the f
 ![autofocus should be off](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### HDR Effects on Phone Camera
@@ -139,17 +137,14 @@ Hundreds of editing software are available but here we are going to talk about p
 
 ![tools photoshop merge to hdr pro](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click on **Browse** and select the images you want to merge.
 * Before clicking the OK button, you can tick on the **Attempt to Automatically Align Source Images** option so that minor artifacts introduced while shooting the images can be removed by photoshop.
 
 ![removed by photoshop](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * After the images are loaded, a dialogue box will appear on the right side with all the tools you need to edit your HDR portrait.
 
@@ -167,6 +162,10 @@ Once you are done with all the adjustments, you'll finally have your perfect HDR
 
 If you are not satisfied with your resulting portrait image, you can further edit it in Lightroom or Photoshop.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Final Words
 
 HDR portraits are way better than conventional portrait images as they bring out the photograph's fine details that are impossible to achieve otherwise.
@@ -180,13 +179,6 @@ It is not as difficult as it seems to shoot an HDR portrait. We have made it as 
 How to Shoot HDR Portraits?
 
 HDR portraits are best captured when your subject is still and the camera is also fixed on a tripod. So first, we will talk about how to shoot still portraits and then moving portraits.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Still HDR Portraits
 
@@ -219,14 +211,11 @@ Usually, three shots are ideal for HDR portraits as the chances of moving decrea
 
 ![moving decrease](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once you are done with your bracketing settings, all you have to do is press and hold the shutter, and your specified number of photos will be taken, each with a different exposure value.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Some Useful Tips to Remember
 
@@ -247,16 +236,7 @@ You should adjust the focus manually instead of autofocus, as it may shift the f
 ![autofocus should be off](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### HDR Effects on Phone Camera
@@ -264,13 +244,6 @@ You should adjust the focus manually instead of autofocus, as it may shift the f
 Of course, everyone can't use a DSLR camera for shooting HDR portraits as the process is a bit difficult and requires some expertise. But you can achieve the same effects on your mobile phone. Many latest mobiles offer HDR features in their camera. Unlike the bracketing effect of professional cameras, mobile usually takes only one picture and then you can edit by using some third-party app. Hundreds of these photo editing apps allow you to change the brightness and contrast of your image to create a _"pseudo"_ HDR image.
 
 Now that you know how to shoot still HDR portraits, let's put some light on shooting HDR moving portraits.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Moving HDR Portraits?
 
@@ -296,21 +269,22 @@ Hundreds of editing software are available but here we are going to talk about p
 
 ![tools photoshop merge to hdr pro](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click on **Browse** and select the images you want to merge.
 * Before clicking the OK button, you can tick on the **Attempt to Automatically Align Source Images** option so that minor artifacts introduced while shooting the images can be removed by photoshop.
 
 ![removed by photoshop](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * After the images are loaded, a dialogue box will appear on the right side with all the tools you need to edit your HDR portrait.
 
 ![edit hdr portrait](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Tick on the option of **Remove ghosts** to avoid any halos in the editing process.
 * For regular HDR portraits, select **16 Bit** mode in the first section.
@@ -358,22 +332,19 @@ It is not as difficult as it seems to shoot an HDR portrait. We have made it as 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-harnessing-potential-how-to-excel-on-spotify-ads/"><u>[New] Harnessing Potential How to Excel on Spotify Ads</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-elevating-photography-through-editing-knowledge/"><u>[New] In 2024, Elevating Photography Through Editing Knowledge</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-photo-mastery-top-8-web-based-creation-suite/"><u>[New] Photo Mastery Top 8 Web-Based Creation Suite</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-ultimate-devices-for-home-and-office-for-2024/"><u>[New] Ultimate Devices for Home and Office for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-enhancing-relaxation-while-exploring-podcast-realms/"><u>[Updated] 2024 Approved Enhancing Relaxation While Exploring Podcast Realms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-understanding-the-economics-behind-youtubes-shorts-fund/"><u>[Updated] 2024 Approved Understanding the Economics Behind YouTube's Shorts Fund</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-a-beginners-guide-to-vimeo-caption-addition/"><u>[Updated] In 2024, A Beginner's Guide to Vimeo Caption Addition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-high-performance-goggles-ranked-drone-flyings-best/"><u>[Updated] In 2024, High-Performance Goggles Ranked Drone Flying's Best</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-srt-reference-manual/"><u>[Updated] The Complete SRT Reference Manual</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/audiovisual-decision-making-is-podcast-or-youtube-more-appealing-for-2024/"><u>Audiovisual Decision-Making Is Podcast or YouTube More Appealing for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/best-free-mp4-video-splitter-software-top-7-options-for-pc-and-mac-users/"><u>Best FREE MP4 Video Splitter Software: Top 7 Options for PC & Mac Users</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-insights-into-the-powerhouse-that-is-samsungs-gear-s3-frontier-a-multi-featured-wrist-companion/"><u>Comprehensive Insights Into the Powerhouse that Is Samsung's Gear S3 Frontier – A Multi-Featured Wrist Companion</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/customized-exercise-plans-gpts-commitment-to-safety/"><u>Customized Exercise Plans: GPT's Commitment to Safety</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-tailor-your-space-the-best-apps-to-create-engaging-youtube-themes/"><u>In 2024, Tailor Your Space The Best Apps to Create Engaging YouTube Themes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unveiling-your-image-picsart-bg-erasure-technique/"><u>In 2024, Unveiling Your Image Picsart Bg Erasure Technique</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-chromebooks-finest-online-video-editors-ranked/"><u>New In 2024, Chromebooks Finest Online Video Editors Ranked</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-art-of-spotting-misleading-play-promos/"><u>The Art of Spotting Misleading Play Promos</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-audio-exploration-the-comprehensible-review-of-pazera/"><u>[New] In 2024, Audio Exploration The Comprehensible Review of Pazera</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-hasty-instruction-saving-your-photos-as-youtube-channel-thumbnails/"><u>[New] In 2024, Hasty Instruction Saving Your Photos as YouTube Channel Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-illuminating-insights-your-comprehensive-buying-guide-for-a-4k-display/"><u>[Updated] 2024 Approved Illuminating Insights Your Comprehensive Buying Guide for a 4K Display</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-final-cut-pros-top-effect-enhancers-the-essential-10/"><u>[Updated] In 2024, Final Cut Pro's Top Effect Enhancers The Essential 10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-play-your-srt-files-easily-winmac-tips-for-2024/"><u>[Updated] Play Your SRT Files Easily Win/Mac Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unbeatable-reflections-best-4k-mirrorless-cameras-today/"><u>[Updated] Unbeatable Reflections Best 4K Mirrorless Cameras Today</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-m3-macbook-air-evaluation-the-new-accessible-ai-powerhouse-from-apple-detailed-insights-by-zdnet/"><u>Comprehensive M3 MacBook Air Evaluation: The New Accessible AI Powerhouse From Apple - Detailed Insights by ZDNet</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vering-the-magic-behind-youtube-shorts/"><u>Discovering the Magic Behind Youtube Shorts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/efficient-entry-powerpoint-recordings-for-2024/"><u>Efficient Entry PowerPoint Recordings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/effortless-conversion-turning-avis-into-gifs-with-filmora-software-for-2024/"><u>Effortless Conversion Turning AVIs Into GIFs with Filmora Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-engaging-emojis-boost-your-videos-appeal-without-payments/"><u>In 2024, Engaging Emojis Boost Your Video's Appeal Without Payments</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-expert-recommended-screen-capturing-apps-for-mac/"><u>In 2024, Expert-Recommended Screen Capturing Apps for Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/pioneering-physical-activity-bests-in-virtual-treadmills-for-2024/"><u>Pioneering Physical Activity Bests in Virtual Treadmills for 2024</u></a></li>
 </ul></div>
 

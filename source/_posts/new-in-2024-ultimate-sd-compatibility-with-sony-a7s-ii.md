@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Ultimate SD Compatibility with Sony A7S II"
-date: 2024-11-08T10:14:22.719Z
-updated: 2024-11-15T05:26:48.014Z
+date: 2024-11-17T16:37:10.104Z
+updated: 2024-11-24T16:31:45.352Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/4344716e214d80fc0302240776bca3183fcb221b8
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to choose the right memory card for your Sony A7S II
 
@@ -73,10 +77,7 @@ thumbnail: https://thmb.techidaily.com/4344716e214d80fc0302240776bca3183fcb221b8
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
@@ -120,10 +121,7 @@ thumbnail: https://thmb.techidaily.com/4344716e214d80fc0302240776bca3183fcb221b8
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -151,22 +149,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-core-concepts-in-digital-animation/"><u>[New] 2024 Approved Core Concepts in Digital Animation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-dynamic-dialogues-animated-text-for-instagram-storytellers-for-2024/"><u>[New] Dynamic Dialogues Animated Text for Instagram Storytellers for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-frame-by-frame-mastery-in-youtube-no-cost-required-for-2024/"><u>[New] Frame by Frame Mastery in YouTube - No Cost Required for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-instagram-photo-addition-a-simple-guide/"><u>[New] In 2024, Instagram Photo Addition A Simple Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-the-complete-iphone-7-screen-capture-manual/"><u>[New] In 2024, The Complete iPhone 7 Screen Capture Manual</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-prime-15-luts-to-perfect-gopro-cinematic-shots-for-2024/"><u>[New] Prime 15 LUTs to Perfect GoPro Cinematic Shots for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unraveling-the-best-of-both-worlds-m1-macbook-choices-for-2024/"><u>[New] Unraveling the Best of Both Worlds M1 MacBook Choices for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-strategies-to-improve-seamless-broadcasts-in-obs/"><u>[Updated] 2024 Approved Strategies to Improve Seamless Broadcasts in OBS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-vision-to-visual-impact-youtube-trailers-via-filmora/"><u>[Updated] From Vision to Visual Impact YouTube Trailers via Filmora</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-smartphones-meet-virtual-reality-best-10-models-for-2024/"><u>[Updated] Smartphones Meet Virtual Reality Best 10 Models for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-metaverse-marketing-techniques/"><u>2024 Approved Mastering Metaverse Marketing Techniques</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/beat-the-noise-expert-advice-on-removing-unwanted-sounds-from-headphones/"><u>Beat the Noise: Expert Advice on Removing Unwanted Sounds From Headphones</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xr-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XR to the Previous iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/seamless-scenes-crafting-smooth-transitions-using-kinemaster-for-2024/"><u>Seamless Scenes Crafting Smooth Transitions Using Kinemaster for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/stellar-phoenix-launches-repair-for-sql-anywhere-server/"><u>Stellar Phoenix Launches Repair for SQL Anywhere Server</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/swiftly-restore-working-airdrop-between-apple-gadgets-and-macs/"><u>Swiftly Restore Working AirDrop Between Apple Gadgets & Macs</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-secrets-behind-ray-tracing-and-how-it-works/"><u>Unveiling the Secrets Behind Ray Tracing and How It Works</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-award-winners-in-writing-for-different-movie-types/"><u>[New] 2024 Approved Award Winners in Writing for Different Movie Types</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-cutting-edge-imaging-a-shoppers-selection-process/"><u>[New] 2024 Approved Navigating Cutting-Edge Imaging A Shopper's Selection Process</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ultimate-silent-input-transcription-services/"><u>[New] 2024 Approved Ultimate Silent Input Transcription Services</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-vidas-interface-and-features-for-seamless-creation-experience/"><u>[New] In 2024, Vida’s Interface and Features for Seamless Creation Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-youtube-frames-top-5-cost-free-techniques/"><u>[New] Mastering YouTube Frames Top 5 Cost-Free Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-syncing-sound-and-visuals-a-movie-maker-technique/"><u>[New] Syncing Sound and Visuals A Movie Maker Technique</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-efficient-expeditions-to-extinct-reddit-threads/"><u>[Updated] 2024 Approved Efficient Expeditions to Extinct Reddit Threads</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-voice-clarity-overcoming-skype-noise-issues/"><u>[Updated] 2024 Approved Voice Clarity Overcoming Skype Noise Issues</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>[Updated] Bypassing YouTube's Copyright Strike Legal Strategies and Precautions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-best-6-services-for-visual-text-interpretation/"><u>[Updated] In 2024, Best 6 Services for Visual Text Interpretation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-ways-to-get-the-latest-sata-driver-software-on-your-pc-running-windows/"><u>Easy Ways to Get the Latest SATA Driver Software on Your PC Running Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-navigating-the-insta-to-tik-connection/"><u>In 2024, Navigating the Insta-to-Tik Connection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/nextgen-android-for-immersive-3d-viewing/"><u>NextGen Android for Immersive 3D Viewing</u></a></li>
+<li><a href="https://driver-error.techidaily.com/removed-latency-issues-for-real-time-asus-cam-on-win11/"><u>Removed Latency Issues for Real-Time ASUS Cam on Win11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/why-the-m2-chip-transforms-the-ipad-air-into-your-ideal-tablet-purchase-a-comprehensive-review-by-zdnet/"><u>Why the M2 Chip Transforms the iPad Air Into Your Ideal Tablet Purchase: A Comprehensive Review by ZDNet.</u></a></li>
+<li><a href="https://fox-making.techidaily.com/windowswindows-1011/"><u>Windowsが開かない時に、Windows 10/11をフォーマットする方法：３つ探求</u></a></li>
 </ul></div>
 

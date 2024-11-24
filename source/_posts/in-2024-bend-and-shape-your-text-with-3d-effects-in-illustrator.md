@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Bend and Shape Your Text with 3D Effects in Illustrator"
-date: 2024-08-22T14:37:24.400Z
-updated: 2024-08-23T14:37:24.400Z
+date: 2024-11-22T19:18:15.099Z
+updated: 2024-11-24T21:36:05.006Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ It takes 10 minutes. Even if you've never used Adobe Illustrator before, you wil
 
 This guide will show you the step-by-step process of creating a 3D text effect in Adobe Illustrator. So, if you're ready, let's begin.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Create a 3D Text Effect in Adobe Illustrator
 
 All you need are ten minutes of your time and the Adobe Illustrator application. Oh yes, and you need a little bit of imagination as well. That's all there is to it.
@@ -29,6 +33,10 @@ All you need are ten minutes of your time and the Adobe Illustrator application.
 After you get the program, install it and follow the step-by-step instructions you'll see below.
 
 Also, there are plenty of different ways to create 3D text effects in Adobe Illustrator. This tutorial will focus on explaining the easiest and quickest one. Just know that this doesn't mean the result will be wrong. Most methods yield the same results.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Create 3D Text Effects in Adobe Illustrator
 
@@ -39,6 +47,10 @@ Step1 Open the program and start a new project.
 Step2 Click on the **Type tool** and click anywhere on your blank canvas. Then, type in your text—type in anything you want.
 
 ![type tool illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-type-tool.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Now, look at the bottom-right corner of the program. Find the **Font** settings and change your font type and size to anything you want.
 
@@ -55,6 +67,10 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
@@ -77,8 +93,9 @@ You might not believe it, but there's an even more accessible and less expensive
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -94,16 +111,13 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -112,9 +126,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -125,16 +136,10 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
@@ -165,4 +170,22 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-full-exploration-of-googles-voice-to-text-speech-recognition-tool/"><u>[New] 2024 Approved Full Exploration of Google's Voice-to-Text Speech Recognition Tool</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-metaverse-vs-multiverse-understanding-the-distinctions/"><u>[New] 2024 Approved Metaverse Vs. Multiverse Understanding the Distinctions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prime-filmmaker-forecasts-group/"><u>[New] 2024 Approved Prime Filmmaker Forecasts Group</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-drone-color-spectrum-20-initial-free-luts-on-dji-mini-and-air-for-2024/"><u>[New] Drone Color Spectrum - 20 Initial FREE LUTS on DJI Mini & Air for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-synthesizing-success-in-metaverse-sales-techniques/"><u>[New] Synthesizing Success in Metaverse Sales Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-demystifying-the-journey-to-knowing-who-watches-you/"><u>[Updated] 2024 Approved Demystifying the Journey to Knowing Who Watches You</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-picks-discover-the-top-12-easy-to-use-flipscreen-cams/"><u>[Updated] 2024 Approved Essential Picks Discover the Top 12 Easy-to-Use Flipscreen Cams</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-video-editing-software-showdown-bandicam-vs-camtasia/"><u>[Updated] 2024 Approved Video Editing Software Showdown Bandicam vs Camtasia</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-superior-sd-cards-that-power-up-your-gopro-hero-78/"><u>[Updated] In 2024, Superior SD Cards that Power Up Your GoPro Hero 7/8</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-realme-c51-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Realme C51? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-audiovisual-debut-breakdown/"><u>In 2024, Audiovisual Debut Breakdown</u></a></li>
+<li><a href="https://driver-install.techidaily.com/manual-driver-update-in-windows-8-plus-operating-system/"><u>Manual Driver Update in Windows 8 Plus Operating System</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-turning-your-ibook-collection-into-readable-kindle-ebooks/"><u>Step-by-Step Tutorial: Turning Your iBook Collection Into Readable Kindle Ebooks</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unpacking-the-resemblance-how-vision-pros-new-controller-might-mirror-apple-pencil-according-to-recent-patents-zdnet/"><u>Unpacking the Resemblance: How Vision Pro's New Controller Might Mirror Apple Pencil, According to Recent Patents | ZDNet</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/windows-11s-latest-traits-unveiled/"><u>Windows 11'S Latest Traits Unveiled</u></a></li>
+</ul></div>
 

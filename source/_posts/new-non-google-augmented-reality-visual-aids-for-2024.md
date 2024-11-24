@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Non-Google Augmented Reality Visual Aids for 2024\""
-date: 2024-11-12T04:47:23.030Z
-updated: 2024-11-14T21:22:45.257Z
+date: 2024-11-19T19:28:50.584Z
+updated: 2024-11-24T16:01:03.914Z
 tags: 
   - screen-recording
   - ai video
@@ -44,16 +44,7 @@ The thing is that it did not last long. Ever since Google launched its Pixel 4a 
 Owners of older Pixel models should not worry since the devices' hardware isn't changed. Thus, they will continue to support Playground, the app needed to use Google AR Stickers.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Use Google Playground AR Stickers on Pixel 4 and Earlier
@@ -76,13 +67,14 @@ Step6 Touch and hold, and drag the AR sticker where you want it to be on the pho
 
 ![dragging star wars sticker to camera screen](https://images.wondershare.com/filmora/article-images/google-ar-stickers-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step7 Tap "Capture" to take a photo. If in video mode, touch and hold "Capture" instead.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Filmora AR Camera – Great Alternative to Google AR Stickers
@@ -113,9 +105,17 @@ Step2 Tap the "Camera" button on the right panel.
 
 ![ar camera option on filmora iphone](https://images.wondershare.com/filmorago/article-image/camera-icon-on-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Tap the "Frame" icon at the top right to adjust the video ratio. It's also how you switch between the front and rear cameras.
 
 ![changing canvas size on filmora](https://images.wondershare.com/filmorago/article-image/frame-icon-on-filmorago-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Select "Props" from the options at the bottom of the screen. Select the AR effect that you want to use.
 
@@ -127,23 +127,9 @@ Step6 You'll see the video you recorded on the left side of the screen. Tap the 
 
 ![edit option on filmora ar camera](https://images.wondershare.com/filmorago/article-image/click-edit-when-you-created-your-animoji-video-on-filmorago.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7 Preview your video, edit as needed, and export it.
 
 ![exporting recorded video on filmora iphone](https://images.wondershare.com/filmorago/article-image/trim-the-animoji-video-you-record-on-filmorago.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### To Edit an AR Selfie Video on iPhone
 
@@ -153,13 +139,6 @@ Step2 Tap "Canvas" to adjust the video ratio size so it would be perfect for Tik
 
 ![canvas button on filmora for iphone](https://images.wondershare.com/filmorago/article-image/canvas-setting-for-video-on-filmorago.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Tap "Filters" to add more magic to the video.
 
 ![adding filters on filmora for iphone](https://images.wondershare.com/filmorago/article-image/tap-filter-button-for-ar-video-on-filmorago.jpg)
@@ -168,22 +147,12 @@ Step4 Suppose there is more than one video clip, and you're combining them. Tap 
 
 ![adding transition effects on filmora for iphone](https://images.wondershare.com/filmorago/article-image/tap-junction-of-video-to-preview-transition-effects-on-ar-video-filmorago.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Preview the video. If you're already satisfied, tap "EXPORT" to save and share.
 
 ![previewing or exporting ar video](https://images.wondershare.com/filmorago/article-image/preview-ar-video-and-export-it.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## People Also Ask
@@ -209,6 +178,10 @@ WebAR uses web technologies to let users experience augmented reality. All you n
 AR Apps can be dangerous, but not all of them are. Keep in mind that AR apps can see what you are doing in real-time. If that information falls into the wrong hands, you may end up in trouble.
 
 Vendors can also add malware or other things to the apps. So it's necessary that you always stay vigilant. As much as possible, download AR apps from vendors with a good reputation. That's how you ensure the app is not doing something nasty behind your back.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -236,9 +209,17 @@ Step2 Tap the "Camera" button on the right panel.
 
 ![ar camera option on filmora iphone](https://images.wondershare.com/filmorago/article-image/camera-icon-on-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Tap the "Frame" icon at the top right to adjust the video ratio. It's also how you switch between the front and rear cameras.
 
 ![changing canvas size on filmora](https://images.wondershare.com/filmorago/article-image/frame-icon-on-filmorago-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Select "Props" from the options at the bottom of the screen. Select the AR effect that you want to use.
 
@@ -275,10 +256,7 @@ Step5 Preview the video. If you're already satisfied, tap "EXPORT" to save and s
 ![previewing or exporting ar video](https://images.wondershare.com/filmorago/article-image/preview-ar-video-and-export-it.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## People Also Ask
@@ -333,22 +311,17 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-easing-into-your-youtube-watches-3-methods-50-chars/"><u>[New] Easing Into Your YouTube Watches 3 Methods (50 Chars)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nleashing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>[New] Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-innovative-app-for-video-consumption-analysis/"><u>[Updated] In 2024, Innovative App for Video Consumption Analysis</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-complete-studio-exploration-in-depth-xvideoexamine/"><u>2024 Approved Complete Studio Exploration In-Depth XVideoExamine</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-dive-into-vlogging-your-first-set-of-tools/"><u>2024 Approved Dive Into Vlogging Your First Set of Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-easy-peasy-memes-step-by-step-in-kinemaster/"><u>2024 Approved Easy-Peasy Memes Step by Step in KineMaster</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-empowering-your-iphones-capture-with-full-screen-images/"><u>2024 Approved Empowering Your iPhone's Capture with Full-Screen Images</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-gimbal-selection-tips-for-aerial-photography/"><u>2024 Approved Essential Gimbal Selection Tips for Aerial Photography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-video-and-photography-makers-who-mix-sounds/"><u>2024 Approved Essential Video & Photography Makers Who Mix Sounds</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-photozoomelite-ultimate-picture-scaler/"><u>2024 Approved PhotoZoomElite Ultimate Picture Scaler</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-superior-drones-10-mastering-visuals-and-videos/"><u>2024 Approved Superior Drones #10 Mastering Visuals & Videos</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/1725287298914-dvd/"><u>DVDコピー機の魅力を発見 - 最新動画再生技術で快適に使い心地</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/elite-selection-7-superior-fps-games-for-2024/"><u>Elite Selection 7 Superior FPS Games for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-tecno-spark-20-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-itel-p55-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Itel P55 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-apples-homepod-mini-features-on-music-and-siri/"><u>In-Depth Evaluation of Apple's HomePod Mini: Features on Music & Siri</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/utilize-srt-playback-across-operating-systems/"><u>Utilize SRT Playback Across Operating Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-strategies-to-keep-windows-11-photos-app-running-smoothly/"><u>[New] 2024 Approved Strategies to Keep Windows 11 Photos App Running Smoothly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-master-money-with-periscope-a-newcomers-manual/"><u>[New] Master Money with Periscope A Newcomer's Manual</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-all-about-youtubes-elite-access-a-complete-breakdown/"><u>[Updated] All About YouTube's Elite Access - A Complete Breakdown</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-crafting-compelling-narratives-with-b-cut-footage/"><u>[Updated] Crafting Compelling Narratives with B-Cut Footage</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-a-visual-journey-mastering-the-art-of-incorporating-text-into-images-on-pcmacos/"><u>[Updated] In 2024, A Visual Journey Mastering the Art of Incorporating Text Into Images on PC/MacOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-why-is-instagram-turning-my-video-sideways/"><u>[Updated] In 2024, Why Is Instagram Turning My Video Sideways?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-enhance-experience-using-your-logitech-webcam-properly/"><u>2024 Approved Enhance Experience Using Your Logitech Webcam Properly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nt-creation-crossroads-igtv-vs-youtube-which-one-fits-best/"><u>Content Creation Crossroads IGTV Vs. YouTube - Which One Fits Best?</u></a></li>
+<li><a href="https://games-able.techidaily.com/fixing-broken-link-between-win-and-xbox-controllers/"><u>Fixing Broken Link Between Win and Xbox Controllers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>In 2024, Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-console-capturer-pro-report/"><u>In 2024, Console Capturer Pro Report</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-psd-style-boosting/"><u>Ultimate PSD Style Boosting</u></a></li>
 </ul></div>
 

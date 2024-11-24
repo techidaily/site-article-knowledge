@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Pace Kings & Queens of the Olympics, Year 2022"
-date: 2024-08-22T14:35:52.564Z
-updated: 2024-08-23T14:35:52.564Z
+date: 2024-11-22T20:19:06.027Z
+updated: 2024-11-24T16:26:02.027Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
@@ -61,8 +65,9 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -78,8 +83,9 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -99,8 +105,9 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -112,8 +119,9 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -135,4 +143,26 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-bridging-virtuality-business-applications-in-vr/"><u>[New] Bridging Virtuality Business Applications in VR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-calls-of-tomorrow-iphones-audio-archive-for-2024/"><u>[New] Calls of Tomorrow - iPhone's Audio Archive for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-film-crafting-from-script-to-screen/"><u>[New] In 2024, Film Crafting From Script to Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-revenue-on-youtube-shorts/"><u>[New] In 2024, Mastering Revenue on YouTube Shorts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-6-techniques-for-capturing-your-minecraft-adventures/"><u>[New] In 2024, Top 6 Techniques for Capturing Your Minecraft Adventures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-essentials-acquiring-quality-unboxing-soundtracks/"><u>[Updated] 2024 Approved Essentials Acquiring Quality Unboxing Soundtracks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-boost-communication-merging-skype-and-zoom-functionality-for-2024/"><u>[Updated] Boost Communication Merging Skype and Zoom Functionality for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-essential-tips-for-ppt-screen-capture/"><u>[Updated] Essential Tips for PPT Screen Capture</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-horizon-hopping-reviewing-the-gopro-karma-drone/"><u>[Updated] Horizon Hopping Reviewing the GoPro Karma Drone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-potential-with-magix-paint-pro/"><u>[Updated] Unlocking Potential with MAGIX Paint Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-top-tier-slumber-innovations-that-ensure-a-serene-nights-journey/"><u>Discover Top-Tier Slumber Innovations That Ensure a Serene Night's Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/exploring-the-core-of-m1-apples-innovation-for-2024/"><u>Exploring the Core of M1 Apple's Innovation for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-capturing-moments-with-full-screen-movies-on-iphones/"><u>In 2024, Capturing Moments with Full-Screen Movies on iPhones</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-phantom-v-fold-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Phantom V Fold FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-the-art-of-decreasing-decibents-a-guide-to-fading-out-sounds/"><u>In 2024, Mastering the Art of Decreasing Decibents A Guide to Fading Out Sounds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-sound-exceptional-earbuds/"><u>Mastering Sound: Exceptional Earbuds</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-iphone-15-restoration-a-users-manual/"><u>Mastering the Art of iPhone 15 Restoration: A User's Manual</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/versatile-biz-decks-free-template-and-resource-options/"><u>Versatile Biz Decks FREE Template and Resource Options</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-xiaomi-redmi-note-12-pro-4g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Xiaomi Redmi Note 12 Pro 4G on Windows?</u></a></li>
+</ul></div>
 

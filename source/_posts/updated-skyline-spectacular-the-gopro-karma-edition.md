@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Skyline Spectacular  The GoPro Karma Edition\""
-date: 2024-11-09T08:15:26.524Z
-updated: 2024-11-14T22:29:39.524Z
+date: 2024-11-21T16:36:45.994Z
+updated: 2024-11-24T16:53:27.399Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/bbf8b4ac709b45ef5944f09a459d244c293de523e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -57,10 +61,7 @@ thumbnail: https://thmb.techidaily.com/bbf8b4ac709b45ef5944f09a459d244c293de523e
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/bbf8b4ac709b45ef5944f09a459d244c293de523e
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,24 +141,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-mastering-marketing-magic-20-keywords-for-profound-impact/"><u>[New] 2024 Approved Mastering Marketing Magic 20 Keywords for Profound Impact</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-tier-android-and-ios-timers-unveiled-your-weddings-guardian-angels/"><u>[New] 2024 Approved Top-Tier Android & iOS Timers Unveiled Your Wedding's Guardian Angels</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-expert-selections-unveiling-the-top-5-professional-drones/"><u>[New] In 2024, Expert Selections Unveiling the Top 5 Professional Drones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-spotlight-on-windows-11-innovations/"><u>[New] In 2024, Spotlight on Windows 11 Innovations</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-auroras-approach-to-hdv-standing-out-or-same-old-for-2024/"><u>[Updated] Aurora's Approach to HDV Standing Out or Same Old for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-conquer-the-vr-world-your-first-vr-adventure/"><u>[Updated] In 2024, Conquer the VR World Your First VR Adventure</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-ultimate-checklist-picking-the-best-gimbal-for-drones/"><u>[Updated] In 2024, The Ultimate Checklist Picking the Best Gimbal for Drones</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-ultimate-video-downloader-and-addons-perfect-for-firefox-browser/"><u>[Updated] In 2024, Ultimate Video Downloader & Addons Perfect for Firefox Browser</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-instagrams-music-ip-policies/"><u>[Updated] Instagram's Music IP Policies</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-the-seo-landscape-top-keyword-research-instruments/"><u>[Updated] Navigating the SEO Landscape Top Keyword Research Instruments</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-ultimate-recording-guide-visuals-plus-vibrant-melodies-for-2024/"><u>[Updated] Ultimate Recording Guide Visuals + Vibrant Melodies for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/empower-your-spreadsheets-with-chatgpt-a-step-by-step-guide-to-enhancing-google-sheets-and-docs/"><u>Empower Your Spreadsheets with ChatGPT: A Step-by-Step Guide to Enhancing Google Sheets & Docs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/gripping-gospels-intros-that-draw-ears/"><u>Gripping Gospels Intros That Draw Ears</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-12-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi 12 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-f34-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-samsung-galaxy-s23-tactical-edition-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Samsung Galaxy S23 Tactical Edition to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-nokia-c12-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Nokia C12 Device</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/james-bond-film-series-the-ultimate-viewing-guide/"><u>James Bond Film Series: The Ultimate Viewing Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/mastering-the-new-era-of-editing-with-powerdirector-24-edition-for-2024/"><u>Mastering the New Era of Editing with PowerDirector '24 Edition for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-full-exploration-of-googles-voice-to-text-speech-recognition-tool/"><u>[New] 2024 Approved Full Exploration of Google's Voice-to-Text Speech Recognition Tool</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-metaverse-vs-multiverse-understanding-the-distinctions/"><u>[New] 2024 Approved Metaverse Vs. Multiverse Understanding the Distinctions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-prime-filmmaker-forecasts-group/"><u>[New] 2024 Approved Prime Filmmaker Forecasts Group</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-drone-color-spectrum-20-initial-free-luts-on-dji-mini-and-air-for-2024/"><u>[New] Drone Color Spectrum - 20 Initial FREE LUTS on DJI Mini & Air for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nhance-videos-seamlessly-using-youtube-studio-editor/"><u>[New] Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-synthesizing-success-in-metaverse-sales-techniques/"><u>[New] Synthesizing Success in Metaverse Sales Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-youtube-thumbnail-sizes-for-2024/"><u>[New] The Ultimate Guide to YouTube Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-complete-rotation-recording-versus-stereo-capture/"><u>[Updated] In 2024, Complete Rotation Recording Versus Stereo Capture</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-encoding-showdown-the-av1-and-vp9-race/"><u>Cutting-Edge Encoding Showdown The AV1 & VP9 Race</u></a></li>
+<li><a href="https://program-issues.techidaily.com/eliminating-the-ghostrunner-catastrophe-on-windows-11-expert-strategies-and-fixes/"><u>Eliminating the Ghostrunner Catastrophe on Windows 11 - Expert Strategies and Fixes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-honor-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Honor using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-motorola-moto-g23-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Motorola Moto G23 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/securing-your-data-top-3-techniques-for-safe-hyper-v-storage-transfers/"><u>Securing Your Data: Top 3 Techniques for Safe Hyper-V Storage Transfers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-samsung-galaxy-z-fold-5-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Samsung Galaxy Z Fold 5 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-wi-fi-controller-support-in-win11-release/"><u>Upgrade Wi-Fi Controller Support in Win11 Release</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/windows-11s-latest-traits-unveiled/"><u>Windows 11'S Latest Traits Unveiled</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Beyond the Screen  A VR Odyssey\""
-date: 2024-11-07T20:04:30.600Z
-updated: 2024-11-15T09:53:25.178Z
+date: 2024-11-22T20:09:00.380Z
+updated: 2024-11-24T21:23:08.038Z
 tags: 
   - screen-recording
   - ai video
@@ -40,19 +40,24 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## VR development in 1930s
 
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## VR development in 1960s
 
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
@@ -60,22 +65,12 @@ VR headsets actually started development in the 1960s. Just 30 years from the or
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 2014
 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
 
@@ -86,10 +81,7 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -117,18 +109,17 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-complete-rundown-on-dji-inspire-2/"><u>[New] 2024 Approved The Complete Rundown on DJI Inspire 2</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-elite-cutting-edge-tools-for-app-editing-for-2024/"><u>[New] Elite Cutting-Edge Tools for App Editing for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-audio-file-fusion-seamless-conversion-from-srt-to-other-formats/"><u>[Updated] Audio File Fusion Seamless Conversion From SRT to Other Formats</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-can-image-smoothing-simplify-photo-editing/"><u>[Updated] Can Image Smoothing Simplify Photo Editing?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-video-excellence-via-apple-music-add-on/"><u>[Updated] Video Excellence via Apple Music Add-On</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/acclaimed-choices-17-popular-programs-for-background-removal-for-2024/"><u>Acclaimed Choices 17 Popular Programs for Background Removal for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-v30t-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme V30T? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/automatic-file-backup-comparison-a-history-of-differences-between-windows-10-and-windows-11/"><u>Automatic File Backup Comparison: A History of Differences Between Windows 10 and Windows 11</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/decoding-varieties-in-hand-motion-tracking-for-2024/"><u>Decoding Varieties in Hand Motion Tracking for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/missing-iphone-app-steps-to-recover-deleted-or-hidden-apps-on-your-device/"><u>Missing iPhone App: Steps to Recover Deleted or Hidden Apps on Your Device</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/seamless-slideshows-on-the-go-using-an-android-phone-to-manage-powerpoint/"><u>Seamless Slideshows on the Go: Using an Android Phone to Manage PowerPoint</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unleash-your-photo-potential-with-instagram-filters/"><u>Unleash Your Photo Potential with Instagram Filters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/vita-edit-pro-thorough-review-and-step-by-step-tutorial-2024/"><u>Vita Edit Pro Thorough Review and Step-by-Step Tutorial, 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-ultimate-sd-compatibility-with-sony-a7s-ii/"><u>[New] In 2024, Ultimate SD Compatibility with Sony A7S II</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem-for-2024/"><u>[New] Perfecting Your Playlists Adapting Spotify to the YouTube Music Ecosystem for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-artisans-guide-to-flawless-free-and-paid-software-video-downloads-for-2024/"><u>[New] The Artisan's Guide to Flawless Free and Paid Software Video Downloads for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unlock-full-potential-of-zoom-in-windows-10/"><u>[New] Unlock Full Potential of Zoom in Windows 10</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-5-simple-tricks-for-aspiring-photoshop-editors-for-2024/"><u>[Updated] 5 Simple Tricks for Aspiring Photoshop Editors for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-journey-to-vivid-visuals-top-11-hue-enhancement-guides-for-2024/"><u>[Updated] A Journey to Vivid Visuals Top 11 Hue Enhancement Guides for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-adopting-new-norms-analyzing-changes-in-social-media-with-tiktok-vs-snapchat/"><u>[Updated] Adopting New Norms Analyzing Changes in Social Media with TikTok Vs Snapchat</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-stay-within-the-law-pre-upload-video-copyright-checks-on-tiktok/"><u>[Updated] In 2024, Stay Within the Law Pre-Upload Video Copyright Checks on TikTok</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-12r-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 12R to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-nokia-c12-plus-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Nokia C12 Plus</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-samsung-galaxy-m34-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/thrifty-fliers-list-best-drones-for-the-price-point-for-2024/"><u>Thrifty Flier's List Best Drones for the Price Point for 2024</u></a></li>
 </ul></div>
 

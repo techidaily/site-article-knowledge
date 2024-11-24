@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Simplifying Video Cutting in Windows 10  A Photoshop-Free Guide\""
-date: 2024-08-22T14:37:32.484Z
-updated: 2024-08-23T14:37:32.484Z
+date: 2024-11-23T17:43:32.158Z
+updated: 2024-11-24T18:43:34.181Z
 tags: 
   - screen-recording
   - ai video
@@ -45,9 +45,17 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
@@ -63,6 +71,10 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -70,8 +82,9 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -79,13 +92,11 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +120,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-leading-edge-speech-recognition-tools/"><u>[New] 2024 Approved Leading Edge Speech Recognition Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-discovering-the-quintessential-5-title-creators-online-for-2024/"><u>[New] Discovering The Quintessential 5 Title Creators Online for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-non-google-augmented-reality-visual-aids-for-2024/"><u>[New] Non-Google Augmented Reality Visual Aids for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-nanofilm-whiz/"><u>[Updated] 2024 Approved NanoFilm Whiz</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-boost-communication-merging-skype-and-zoom-functionality-for-2024/"><u>[Updated] Boost Communication Merging Skype and Zoom Functionality for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-crystal-lens-clearness-avoiding-videography-haze-for-2024/"><u>[Updated] Crystal Lens Clearness Avoiding Videography Haze for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-the-world-online-through-major-platforms-facebook-twitter-instagram-and-youtube/"><u>Connecting the World Online Through Major Platforms - Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://win11.techidaily.com/dvdmov-windows-10/"><u>DVDへMOV形式動画を保存: Windows 10での書き込み方法と作業ガイド</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixes-and-solutions-eliminate-audio-stutters-in-bluetooth-devices-on-windows-1011/"><u>Fixes and Solutions: Eliminate Audio Stutters in Bluetooth Devices on Windows 10/11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-apple-airtags-on-sale-save-24-now-during-walmarts-labor-day-promotion-insights/"><u>Get Apple AirTags on Sale: Save $24 Now During Walmart’s Labor Day Promotion - Insights</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/high-definition-streaming-wars-vmix-or-wirecast-in-2024/"><u>High Definition Streaming Wars VMix or Wirecast, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-capturing-moments-with-full-screen-movies-on-iphones/"><u>In 2024, Capturing Moments with Full-Screen Movies on iPhones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-close-up-cinematography-techniques-with-kinemaster-pro/"><u>In 2024, Mastering Close-Up Cinematography Techniques with Kinemaster Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-transform-your-youtube-footage-into-cinematic-delight-with-imovie-expertise/"><u>In 2024, Transform Your YouTube Footage Into Cinematic Delight with iMovie Expertise</u></a></li>
+<li><a href="https://video-capture.techidaily.com/video-editing-software-showdown-bandicam-vs-camtasia-for-2024/"><u>Video Editing Software Showdown Bandicam vs Camtasia for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Discover the Power of Easy Trimming with Windows Photos App"
-date: 2024-11-08T18:05:12.771Z
-updated: 2024-11-14T23:12:48.428Z
+date: 2024-11-19T18:55:55.682Z
+updated: 2024-11-24T20:29:07.626Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -54,14 +58,11 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-**Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -76,10 +77,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -95,19 +93,13 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,20 +127,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-build-your-own-4k-video-editing-pc/"><u>[New] 2024 Approved How To Build Your Own 4K Video Editing PC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unleash-your-creative-edge-with-adjustable-story-videos/"><u>[New] 2024 Approved Unleash Your Creative Edge with Adjustable Story Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-top-10-webcam-applications-in-windows-a-comprehensive-list/"><u>[New] Top 10 Webcam Applications in Windows A Comprehensive List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-devise-giggle-generating-pictorials-for-giphy/"><u>[Updated] Devise Giggle-Generating Pictorials for Giphy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-choosing-spiritual-audio-for-your-cellphone/"><u>[Updated] In 2024, Choosing Spiritual Audio for Your Cellphone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-simplify-your-internet-experience-step-by-step-guide-to-disabling-youtube-on-devices/"><u>[Updated] In 2024, Simplify Your Internet Experience Step-by-Step Guide to Disabling Youtube on Devices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-peering-into-the-future-lg-tv-bp550-2023-review/"><u>2024 Approved Peering Into the Future LG TV BP550 2023 Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-perfect-flying-buddies-top-toys-for-children/"><u>2024 Approved Perfect Flying Buddies Top Toys for Children</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-vivo-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Vivo .</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/digital-image-coloring-upside-down/"><u>Digital Image Coloring Upside Down</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-honor-80-pro-straight-screen-edition-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Honor 80 Pro Straight Screen Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/exploring-sonic-wonders-on-iphone-for-2024/"><u>Exploring Sonic Wonders on iPhone for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-drivers-and-firmware-for-your-epson-xp-310/"><u>Get the Newest Drivers and Firmware for Your Epson XP 310</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/jest-jar-imgur-meme-tool/"><u>Jest Jar Imgur Meme Tool</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-key-tracking-devices/"><u>Top-Rated Key Tracking Devices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-captioning-videos-efficiently-on-vimeo-platform/"><u>[New] Captioning Videos Efficiently on Vimeo Platform</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prime-streamers-selection-the-best-websites/"><u>[New] In 2024, Prime Streamers' Selection The Best Websites</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-seamless-transitions-the-art-of-editing-with-garagebands-power-tools/"><u>[Updated] 2024 Approved Seamless Transitions The Art of Editing with GarageBand's Power Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unlocking-video-potential-top-9-tips-for-vr-storytelling/"><u>[Updated] 2024 Approved Unlocking Video Potential Top 9 Tips for VR Storytelling</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-comprehensive-pathway-to-load-moviemaker-6/"><u>[Updated] In 2024, Comprehensive Pathway to Load Moviemaker 6</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-incorinasmatic-mix-sharing-songs-in-social-spaces/"><u>[Updated] In 2024, Incorinasmatic Mix Sharing Songs in Social Spaces</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-elevating-your-vimeo-clips-a-guide-to-musical-additions/"><u>2024 Approved Elevating Your Vimeo Clips A Guide to Musical Additions</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/effortless-guide-how-to-get-your-favorite-bbc-shows-on-itunes-and-dvds-using-our-simple-downloader/"><u>Effortless Guide: How to Get Your Favorite BBC Shows on iTunes & DVDs Using Our Simple Downloader</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tless-techniques-crafting-youtube-shorts-images-on-the-fly-for-2024/"><u>Effortless Techniques Crafting YouTube Shorts Images on the Fly for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-premium-planet-friendly-recording-software/"><u>In 2024, Premium, Planet-Friendly Recording Software</u></a></li>
+<li><a href="https://solve-news.techidaily.com/multiplecam-professional-live-streaming-and-online-webcam-solutions/"><u>MultipleCam: Professional Live Streaming and Online Webcam Solutions</u></a></li>
 </ul></div>
 

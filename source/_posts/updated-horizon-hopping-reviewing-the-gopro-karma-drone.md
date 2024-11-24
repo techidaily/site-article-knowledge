@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Horizon Hopping  Reviewing the GoPro Karma Drone\""
-date: 2024-11-10T22:26:06.981Z
-updated: 2024-11-15T03:18:55.993Z
+date: 2024-11-22T20:16:24.347Z
+updated: 2024-11-24T18:54:50.696Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -57,10 +61,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,20 +141,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-pioneering-televised-facebook-interactions-via-live-streams/"><u>[New] Pioneering Televised Facebook Interactions via Live Streams</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-perfect-your-windowsmac-call-records-with-15plus-tips-for-skype-users-for-2024/"><u>[Updated] Perfect Your Windows/Mac Call Records with 15+ Tips for Skype Users for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-become-a-viral-sensation-with-these-9-proven-instagram-tricks/"><u>2024 Approved Become a Viral Sensation with These 9 Proven Instagram Tricks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-efficiently-incorporate-media-in-your-tweets/"><u>2024 Approved Efficiently Incorporate Media in Your Tweets</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-exclusive-gathering-of-top-tier-no-fee-vectr-and-illustration-sources/"><u>2024 Approved Exclusive Gathering of Top-Tier No-Fee Vectr and Illustration Sources</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-explore-top-tier-ios-video-playback-tools-top-10/"><u>2024 Approved Explore Top-Tier iOS Video Playback Tools (Top 10)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-final-cut-pros-essential-toolkit-the-top-10-plugin-list/"><u>2024 Approved Final Cut Pro's Essential Toolkit The Top 10 Plugin List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-your-creative-vision-with-digital-cropting-skills/"><u>2024 Approved Master Your Creative Vision with Digital Cropting Skills</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-premium-4k-displays-top-ten-elite-selections/"><u>2024 Approved Premium 4K Displays Top Ten Elite Selections</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-pro-drone-experience-a-thorough-look-at-dji-phantom-4/"><u>2024 Approved The Pro Drone Experience A Thorough Look at DJI Phantom 4</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v13-document-with-electronic-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.3 document with electronic signature software</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-science-behind-sharing-memes-unveiled-for-2024/"><u>The Science Behind Sharing Memes Unveiled for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-sturdy-nikon-w100/"><u>Unveiling the Sturdy Nikon W100</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/wma-avi/"><u>WMA 파일을 AVI로 쉽게 바꾸기: 원활한 온라인 변환 방법</u></a></li>
-<li><a href="https://win-able.techidaily.com/mp3mp/"><u>おススメのビットレート変換フリーソフト MP3/MP オプションのガイド</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-efficiency-in-video-editing-with-these-top-10-apps/"><u>[New] 2024 Approved Unlocking Efficiency in Video Editing with These Top 10 Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-capturing-moments-with-full-screen-movies-on-iphones-for-2024/"><u>[New] Capturing Moments with Full-Screen Movies on iPhones for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-video-experience-12-live-and-on-demand-app-for-2024/"><u>[New] Ultimate Video Experience 12 Live & On-Demand App for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-exploring-the-world-with-a-vr-headset/"><u>[Updated] 2024 Approved Exploring the World with a VR Headset</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-discover-the-leading-8-web-resources-for-free-3d-text-psdfiles/"><u>[Updated] In 2024, Discover the Leading 8 Web Resources for Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-obs-studio-and-lut-application-guide-for-professional-cinematographers/"><u>[Updated] In 2024, OBS Studio & LUT Application Guide for Professional Cinematographers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-6-instagram-money-calculator-safe-and-effective-for-2024/"><u>[Updated] Top 6 Instagram Money Calculator - Safe & Effective for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/developing-mastery-in-professional-interview-processes-for-2024/"><u>Developing Mastery in Professional Interview Processes for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-strategies-for-discovering-an-individuals-email-id/"><u>Effective Strategies for Discovering an Individual's Email ID</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-huawei-p60-frp-by-drfone-android/"><u>Full Guide to Bypass Huawei P60 FRP</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100i-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y100i PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-infinix-note-30-vip-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Infinix Note 30 VIP Android SIM Unlock APK</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726220654877-movavi-mac/"><u>Movavi Mac版本的简单激活方法解析</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/se-viewing-crafts-creative-youtube-video-methods/"><u>Reverse Viewing Crafts Creative Youtube Video Methods</u></a></li>
 </ul></div>
 

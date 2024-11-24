@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Inventory of Videography Items for Exploration"
-date: 2024-11-13T17:02:13.001Z
-updated: 2024-11-15T07:42:45.472Z
+date: 2024-11-19T17:23:13.909Z
+updated: 2024-11-24T20:54:36.124Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,6 @@ Is it worth it? Is it really necessary to upgrade a travel video? Will my money 
 
 ![travel gear review](https://images.wondershare.com/filmora/article-images/2022/07/travel-gear-review.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## My Equipments for Travel Vlogging
 
 First off, I've got a mobile phone, mirrorless camera, action camera, gimbal, tripod, selfie stick, pack of batteries, a camera bag, laptop, and some stuff.
@@ -52,29 +45,23 @@ Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cine
 
 ![travel vlog camera](https://images.wondershare.com/filmora/article-images/2022/07/travel-vlog-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Lenses
 
 Lenses are the most vital part of your camera; it brings light to a fixed object. Will it make a huge impact on your cinematic shot? For your montage? For your b-roll? Yes, yes, and also yes. The use of lenses has a greater and different impact because it has a contrasting effect, especially for sharpness, depth of field, details, and background blur. It is the most important parameter depending on the situation that you might have for traveling. For example, I used Sigma 16mm, a wide lens, which is good for landscape photography or montage. Another one is Sigma 30mm, this lens is good for mid-range shot portraits and it creates a dramatic effect while capturing a person or an object.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Gimbal
 
 Nowadays, many filmmakers and famous vloggers are using gimbals. We often use these for better results in which it may form steady and stable shots compared to handheld cameras that produce shaky and unsteady video. The only question is do we need this? If you can still afford it and you want your videos to be smooth and stable, then I suggest getting one for yourself. This can be very useful when you're always moving while making videos. Gimbal can provide great support if we are struggling with our camera without in-body image stabilization (IBIS). This is a good match in my camera after all.
 
 ![vlog gimbal](https://images.wondershare.com/filmora/article-images/2022/07/vlog-gimbal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Action Camera
 
@@ -89,16 +76,7 @@ In any case, we needed a few accessories to support our equipment better. Simple
 ![battery ssd card](https://images.wondershare.com/filmora/article-images/2022/07/battery-ssd-card.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Laptop, desktop, or phone for editing
@@ -108,10 +86,7 @@ In my own experience, every time I go out and visit different places, I always h
 ![laptop devices](https://images.wondershare.com/filmora/article-images/2022/07/laptop-devices.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
@@ -125,13 +100,6 @@ In my own experience, every time I go out and visit different places, I always h
 click on new project
 
 ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step2IMPORT FILES
 
@@ -166,10 +134,7 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Stabilize the Video in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -186,6 +151,10 @@ from there you can choose and select which video you would like to import
 
 ![import files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3DRAG AND DROP
 
 just drag and drop simple as that
@@ -193,10 +162,7 @@ just drag and drop simple as that
 ![drag and drop](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4STABILIZING THE VIDEO
@@ -206,6 +172,10 @@ choose the TOOLS
 select video and you can choose Stabilization
 
 ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
 
@@ -241,18 +211,14 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-sustaining-system-stability-returning-to-el-capitan/"><u>[New] In 2024, Sustaining System Stability Returning to El Capitan</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-pixel-powerhouse-comparing-leading-8k-tv-innovations-for-2024/"><u>[New] Pixel Powerhouse Comparing Leading 8K TV Innovations for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tep-by-step-guide-youtube-videos-in-avi-format/"><u>[New] Step-by-Step Guide YouTube Videos in AVI Format</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-from-zero-to-hero-achieving-1k-insta-buddies-in-30-days/"><u>2024 Approved From Zero to Hero Achieving 1K Insta Buddies in 30 Days</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-gopro-max-vs-hero-11-a-video-quality-showdown/"><u>2024 Approved GoPro Max vs Hero 11 A Video Quality Showdown</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-itel-a70-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Itel A70</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978855293-chronic-headaches-with-neurological-deficits-can-be-associated-with-tumors-strokes-or-demyelinating-diseases-like-multiple-sclerosis/"><u>Chronic Headaches with Neurological Deficits Can Be Associated with Tumors, Strokes, or Demyelinating Diseases Like Multiple Sclerosis.</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-google-pixel-7a-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Google Pixel 7a Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Xiaomi 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 Passcode without iTunes without Knowing Passcode?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-lightning-fast-photo-reader-for-pcs/"><u>In 2024, Lightning-Fast Photo Reader for PCs</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme Note 50? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224139-9781668070703-the-369-journal/"><u>The 369 Journal | Free Book</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-find-the-perfect-phone-shot-blur/"><u>[New] In 2024, Find the Perfect Phone Shot Blur</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-xml-to-srt-a-step-by-step-solution-approach/"><u>[New] In 2024, From XML to SRT A Step-by-Step Solution Approach</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-craft-crisp-visuals-with-picart-background-sweep/"><u>[Updated] In 2024, Craft Crisp Visuals with PicArt Background Sweep</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-seamless-streaming-tips-for-uninterrupted-broadcasts/"><u>[Updated] In 2024, Seamless Streaming Tips for Uninterrupted Broadcasts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723012414682-aromatic-hydrocarbons-have-a-conjugated-pi-electron-system-that-confers-stability-through-resonance-energy/"><u>Aromatic Hydrocarbons Have a Conjugated Pi Electron System that Confers Stability Through Resonance Energy.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ace-your-phone-the-ios-podcast-downloading-guidebook/"><u>In 2024, Ace Your Phone The iOS Podcast Downloading Guidebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fbstream-viewer-extractor/"><u>In 2024, FbStream Viewer Extractor</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-troubleshooting-fixing-continuous-crashes-in-age-of-wonders-planetfall/"><u>PC Troubleshooting: Fixing Continuous Crashes in Age of Wonders: Planetfall</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-realme-12plus-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Realme 12+ 5G to iPhone 14/15 | Dr.fone</u></a></li>
 </ul></div>
 

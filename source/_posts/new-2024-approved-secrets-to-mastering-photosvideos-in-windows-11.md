@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Secrets to Mastering Photos/Videos in Windows 11\""
-date: 2024-11-07T18:06:39.231Z
-updated: 2024-11-15T01:20:38.304Z
+date: 2024-11-21T21:21:15.942Z
+updated: 2024-11-24T18:43:17.227Z
 tags: 
   - screen-recording
   - ai video
@@ -46,15 +46,16 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
@@ -63,13 +64,6 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
@@ -77,10 +71,7 @@ Your computer will tell you how many pictures and photos were found. You can eit
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
@@ -108,10 +99,7 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Import Photos and Video from a Camera
@@ -123,16 +111,7 @@ Connect the camera to your phone and then follow the above steps to import your 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,21 +145,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-expert-recommendations-the-very-best-ways-to-watch-cricket-on-screen/"><u>[New] 2024 Approved Expert Recommendations The Very Best Ways to Watch Cricket on Screen</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-craft-your-story-pace-with-instagrams-temp-control-feature/"><u>[New] In 2024, Craft Your Story Pace with Instagram's Temp Control Feature</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-extensive-look-at-djis-inspire-1-drone/"><u>[New] In 2024, Extensive Look at DJI's Inspire 1 Drone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-iphoneandroids-top-sticker-adding-apps-the-essential-10-collection/"><u>[New] In 2024, IPhone/Android's Top Sticker-Adding Apps The Essential 10 Collection</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-step-by-step-guide-to-installing-streamlabs-in-obs-mac/"><u>[New] In 2024, Step-by-Step Guide to Installing Streamlabs in OBS (Mac)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-no-budget-no-problem-here-are-the-best-vfx-pages/"><u>[Updated] No Budget? No Problem! Here Are the Best VFX Pages</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-guide-to-creating-gifs/"><u>[Updated] The Ultimate Guide to Creating GIFs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-tier-steadicam-options-for-drone-video-production/"><u>[Updated] Top-Tier Steadicam Options for Drone Video Production</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-apods-made-simple-the-ultimate-audio-solution/"><u>In 2024, APods Made Simple The Ultimate Audio Solution</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-efficiently-managing-youtube-videos-with-the-watch-later-feature/"><u>In 2024, Efficiently Managing YouTube Videos with the Watch Later Feature</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/integrate-advanced-note-organization-on-mematic-for-2024/"><u>Integrate Advanced Note Organization on Mematic for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/study-shows-totobay-as-leading-contender-for-cost-effective-sunrise-alarm-clocks/"><u>Study Shows Totobay as Leading Contender for Cost-Effective Sunrise Alarm Clocks!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tender-whispers-essential-pick-up-italian-lines/"><u>Tender Whispers: Essential Pick-Up Italian Lines</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-slow-motion-photography-techniques-for-instagram-posts/"><u>[New] 2024 Approved Mastering Slow Motion Photography Techniques for Instagram Posts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-maximizing-podcast-discoverability-through-effective-seo/"><u>[New] In 2024, Maximizing Podcast Discoverability Through Effective SEO</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-guide-to-eye-catching-after-effects-texture/"><u>[New] Ultimate Guide to Eye-Catching After Effects Texture</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-keep-your-viewers-hooked-6-compelling-video-types/"><u>[Updated] 2024 Approved Keep Your Viewers Hooked 6 Compelling Video Types</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-vanguard-virtual-venture-voice/"><u>[Updated] 2024 Approved Vanguard Virtual Venture Voice</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-free-live-streaming-software-and-app-for-all-platforms-2023-list/"><u>[Updated] Best Free Live Streaming Software and App for All Platforms [2023 List]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-hololens-review-pioneering-virtual-spacecraft/"><u>[Updated] In 2024, HoloLens Review Pioneering Virtual Spacecraft</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-navigate-the-world-of-digital-humor-with-our-gif-guide/"><u>[Updated] In 2024, Navigate the World of Digital Humor with Our GIF Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oppo-a38-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Oppo A38 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-reviews-and-analysis-at-toms-technology-hub/"><u>Expert Reviews & Analysis at Tom's Technology Hub</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-pova-5-pro-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Pova 5 Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Realme 12 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m34-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy M34 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/iphone-lights-mastery-guide/"><u>IPhone Lights Mastery Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/no-more-queasiness-in-vr-worlds/"><u>No More Queasiness in VR Worlds</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-reasons-behind-avoiding-the-installation-of-chatgpt-on-your-smartphone/"><u>The Reasons Behind Avoiding the Installation of ChatGPT on Your Smartphone</u></a></li>
 </ul></div>
 
