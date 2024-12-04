@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Through the Eyes of One  A Critical Look at '3DR'\""
-date: 2024-08-15T07:11:10.731Z
-updated: 2024-08-16T07:11:10.731Z
+date: 2024-11-28T16:42:13.644Z
+updated: 2024-12-03T19:47:30.343Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 
  The 3DR solo is one of the best examples of the excellent industrial product; it can record footage with amazing results in the air. It possesses so many simple yet powerful controls and users whether they are [professionals](https://tools.techidaily.com/wondershare/filmora/download/) or [beginners](https://tools.techidaily.com/wondershare/filmora/download/) can take full advantage of its incredible features. 3DR solo is one of the best product for [cinematographers](https://tools.techidaily.com/wondershare/filmora/download/) as it can work on aerial shoot with breathtaking clarity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of 3DR Solo
 
 **Pros:**
@@ -49,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -69,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 #### 2\.  Design
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -88,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 #### 5\. Control Range
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -105,9 +112,9 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,4 +140,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essential-watchers-the-1-10-fb-apps/"><u>[New] 2024 Approved Essential Watchers The #1-#10 FB Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-comprehensive-approach-to-online-advertising-mastery-for-2024/"><u>[New] A Comprehensive Approach to Online Advertising Mastery for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-directly-viewing-facebook-videos-on-your-apple-tv-setup/"><u>[New] Directly Viewing Facebook Videos on Your Apple TV Setup</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-introduce-circular-smoothing-transition-via-adobe-photoshop/"><u>[New] Introduce Circular Smoothing Transition via Adobe Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unparalleled-8-visual-augmentations-for-live-cams-for-2024/"><u>[New] Unparalleled 8 Visual Augmentations for Live Cams for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-all-encompassing-look-at-the-ricoh-theta-s-design-for-2024/"><u>[Updated] All-Encompassing Look at the Ricoh Theta S Design for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-drone-trail-tech-your-number-1-picks-for-personal-use-for-2024/"><u>[Updated] Drone Trail Tech Your Number 1 Picks for Personal Use for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-the-art-of-converting-vids-on-pinterest-into-audible-format-for-2024/"><u>[Updated] Mastering the Art of Converting Vids on Pinterest Into Audible Format for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-complete-curve-editing-manual-for-photoshop/"><u>[Updated] The Complete Curve Editing Manual for Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-digital-media-screening-an-insightful-critique/"><u>In 2024, Digital Media Screening - An Insightful Critique</u></a></li>
+<li><a href="https://fox-access.techidaily.com/jokegenius-get-the-best-meme-app-for-2024/"><u>JokeGenius - Get the Best Meme App for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-xiaomi-redmi-a2-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Xiaomi Redmi A2 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/newcomers-guide-profiting-from-live-streaming-on-periscope/"><u>Newcomer’s Guide Profiting From Live Streaming on Periscope</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/petsafes-revolutionary-feeding-system-a-dependable-routine-for-your-furry-friends/"><u>PetSafe's Revolutionary Feeding System: A Dependable Routine for Your Furry Friends</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-7-ai-driven-creative-hubs/"><u>Top 7 AI-Driven Creative Hubs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unveiling-anonymous-access-to-instagram-story-content-on-desktopstablets-and-smartphones-no-cost/"><u>Unveiling Anonymous Access to Instagram Story Content on Desktops/Tablets & Smartphones (No Cost)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/your-guide-to-selecting-a-superior-virtual-reality-headset-mobility-focused-or-connection-centric-for-2024/"><u>Your Guide to Selecting a Superior Virtual Reality Headset Mobility-Focused or Connection-Centric for 2024</u></a></li>
+</ul></div>
 

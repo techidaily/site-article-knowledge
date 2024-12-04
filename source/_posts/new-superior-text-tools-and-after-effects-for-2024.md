@@ -1,7 +1,7 @@
 ---
 title: "[New] Superior Text Tools & After Effects for 2024"
-date: 2024-11-23T17:43:50.489Z
-updated: 2024-11-24T16:20:25.788Z
+date: 2024-11-30T23:37:16.742Z
+updated: 2024-12-03T21:06:08.221Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ Adobe After Effects remains one of the most powerful ways to edit videos. One of
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -32,10 +36,6 @@ Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
 TextDelay is a native plugin, meaning that you will find it already installed on After Effects. As the name suggests, you can use TextDelay to delay any other text transformations that you may add to the text and it allows you to delay these transformations by word, line, or even character. It comes with a range selector that allows you to have precise control over which characters can get the effect.
 
 ![text delay plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-delay-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TextExploder
 
@@ -46,7 +46,7 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## iExpressions 2
@@ -57,6 +57,10 @@ If you want to effectively use the After Effects expressions even if you are not
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -65,10 +69,6 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Font Manager
 
 Link: <https://aescripts.com/font-manager/>
@@ -76,6 +76,14 @@ Link: <https://aescripts.com/font-manager/>
 Font Manager is an After Effects text plugin that is useful when creating and working with animated typefaces. You can use it to create the most complex animated text graphics in just a few simple clicks. You will also find it very familiar to use as the user interface is similar to the Character Panel in After Effects.
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cartoon Moblur
 
@@ -86,11 +94,7 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shadow Studio
@@ -98,10 +102,6 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -112,7 +112,7 @@ This is a bundle of more than 80 different templates to add text effects to any 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
@@ -165,22 +165,24 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-trio-of-professional-digital-cinema-tools/"><u>[Updated] In 2024, Top Trio of Professional Digital Cinema Tools</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-cutting-edge-simple-win-11-recorders/"><u>2024 Approved Cutting-Edge Simple Win 11 Recorders</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhance-visual-impact-crafting-3d-text-in-photo/"><u>2024 Approved Enhance Visual Impact Crafting 3D Text in PHOTO</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-innovative-15-camera-systems-for-uhd-video/"><u>2024 Approved Innovative 15 Camera Systems for UHD Video</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-intuitive-podcast-beginnings-charismatic-hooks/"><u>2024 Approved Intuitive Podcast Beginnings Charismatic Hooks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-movie-magic-tiktok-effects-techniques/"><u>2024 Approved Mastering Movie Magic TikTok Effects Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-navigating-the-world-of-online-livestream-in-vlc/"><u>2024 Approved Navigating the World of Online Livestream in VLC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-organizing-virtual-gatherings-setting-up-zoom-on-android/"><u>2024 Approved Organizing Virtual Gatherings Setting Up Zoom on Android</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-shade-portraits-with-orbital-illumination-technique-cs/"><u>2024 Approved Shade Portraits with Orbital Illumination Technique CS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-visual-magic-grading-through-hue-manipulation/"><u>2024 Approved Visual Magic Grading Through Hue Manipulation</u></a></li>
-<li><a href="https://techtrends.techidaily.com/advanced-windows-administration-techniques-changing-user-passwords-by-default/"><u>Advanced Windows Administration Techniques: Changing User Passwords by Default</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/easy-tutorial-on-implementing-non-standard-fonts-into-kindle-ereaders-legally-and-safely/"><u>Easy Tutorial on Implementing Non-Standard Fonts Into Kindle eReaders Legally and Safely</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a05s-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A05s Location by Number | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-the-fix-for-failed-ryzen-drivers-a-comprehensive-approach/"><u>Mastering the Fix for Failed Ryzen Drivers: A Comprehensive Approach</u></a></li>
-<li><a href="https://extra-information.techidaily.com/music-mashups-for-windows-11-clips/"><u>Music Mashups for Windows 11 Clips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-to-extracting-and-sharing-your-dvd-content-on-facebook/"><u>Step-by-Step Guide to Extracting and Sharing Your DVD Content on Facebook</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-videopad-review-is-it-the-best-video-editing-software-for-you/"><u>Updated 2024 Approved Videopad Review Is It the Best Video Editing Software for You ?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unlocking-cash-on-the-snapchat-grid/"><u>[New] 2024 Approved Unlocking Cash on the Snapchat Grid</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-best-ranked-affordable-video-players-and-streaming-services-pc-and-mobile/"><u>[New] In 2024, Best-Ranked Affordable Video Players and Streaming Services (PC & Mobile)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-finding-value-in-cheap-gopro-sales-online/"><u>[New] In 2024, Finding Value in Cheap GoPro Sales Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-renewal-of-photo-viewing-capabilities-in-windows-10-guide/"><u>[New] Renewal of Photo Viewing Capabilities in Windows 10 - Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-crown-jewel-ios-recorders-for-phones-for-2024/"><u>[Updated] Crown Jewel iOS Recorders for Phones for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-creating-masterpiece-canon-sequence-captures/"><u>[Updated] In 2024, Creating Masterpiece Canon Sequence Captures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-innovation-unleashed-leading-professionals-360cameras-for-2024/"><u>[Updated] Innovation Unleashed Leading Professionals’ 360°Cameras for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-anime-aesthetics-in-viral-tiktoks/"><u>[Updated] Mastering Anime Aesthetics in Viral TikToks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-optimize-sound-speed-with-these-essential-apps/"><u>[Updated] Optimize Sound Speed with These Essential Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/iuwunplusi3teocroocpooditrjg5hjgr3jgrpjg7pkuirjgafjga7jgqrjg7pjg4fjg57jg7pjg4nmll7pgihjga7pjllnllvmiyvmrrui/"><u>実践ガイド:パソコン上でのオンデマンド放送の録画手段</u></a></li>
+<li><a href="https://win-web.techidaily.com/explore-premium-quality-videos-with-no-cost-the-ultimate-guide-to-free-ai-video-makers/"><u>Explore Premium Quality Videos with No Cost - The Ultimate Guide to FREE AI Video Makers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-t2-pro-5g-lock-screen-password-by-drfone-android/"><u>How To Change Vivo T2 Pro 5G Lock Screen Password?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/hue-mastery-interface/"><u>Hue Mastery Interface</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909705-9781088199855-impegnarsi-in-una-conversazione-intima-con-dio-dio-e-desiderato-di-coinvolgerti/"><u>Impegnarsi in una conversazione intima con Dio Dio è DESIDERATO di COINVOLGERTI | Free Book</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-video-privacy-directly-share-yt-clips-using-googleid/"><u>In 2024, Mastering Video Privacy Directly Share YT Clips Using GoogleID</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-seizing-photographic-segments-from-videos-in-windows-11/"><u>In 2024, Seizing Photographic Segments From Videos in Windows 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/inexpensive-sky-explorers-the-least-expensive-drones-for-2024/"><u>Inexpensive Sky Explorers The Least Expensive Drones for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-photo-mystery-why-your-gallery-wont-free-up-and-what-you-can-do-about-it/"><u>IPhone Photo Mystery: Why Your Gallery Won't Free Up, and What You Can Do About It</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-higher-fps-performance-in-the-world-of-tainted-grail-conquest/"><u>Mastering Higher FPS Performance in the World of Tainted Grail: Conquest</u></a></li>
 </ul></div>
 

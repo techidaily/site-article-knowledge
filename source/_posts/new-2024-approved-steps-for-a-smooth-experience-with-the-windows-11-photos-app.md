@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Steps for a Smooth Experience with the Windows 11 Photos App\""
-date: 2024-11-17T16:01:01.949Z
-updated: 2024-11-24T20:18:51.201Z
+date: 2024-11-26T23:45:03.777Z
+updated: 2024-12-03T22:14:16.634Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,11 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-## How to fix Windows 10 Photos app crashes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
 
@@ -62,12 +62,12 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -79,6 +79,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -103,6 +107,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -114,10 +122,6 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -125,14 +129,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,19 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-easy-process-to-turn-any-tiktok-sound-into-cellphone-alerts/"><u>[Updated] Easy Process to Turn Any TikTok Sound Into Cellphone Alerts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-a-roadmap-to-crafting-popular-vlogging-narratives/"><u>[Updated] In 2024, A Roadmap to Crafting Popular Vlogging Narratives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-celebrating-love-with-the-perfect-countdown-timer-mobile-app/"><u>[Updated] In 2024, Celebrating Love with the Perfect Countdown Timer Mobile App</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-mastering-spotifys-ad-landscape-a-comprehensive-guide/"><u>[Updated] In 2024, Mastering Spotify's Ad Landscape A Comprehensive Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-sony-xperia-xz-premium-4k-smartphone-review/"><u>[Updated] In 2024, Sony Xperia XZ Premium 4K Smartphone Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-sprint-through-slow-videos-best-8-android-choices-for-2024/"><u>[Updated] Sprint Through Slow Videos Best 8 Android Choices for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-unlock-instagrams-filter-treasure-trove-without-spending/"><u>2024 Approved How to Unlock Instagram's Filter Treasure Trove Without Spending</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/cutting-edge-strategies-for-efficient-speech-translation-with-google/"><u>Cutting Edge Strategies for Efficient Speech Translation with Google</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/examining-ffmpeg-written-by-user/"><u>Examining FFmpeg' Written by User</u></a></li>
-<li><a href="https://windows11.techidaily.com/expedite-your-epic-experience-with-enhanced-setup/"><u>Expedite Your Epic Experience with Enhanced Setup</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/from-script-to-screenshot-crafting-viral-meme-gifs-for-2024/"><u>From Script to Screenshot Crafting Viral Meme GIFs for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/high-staking-habitats-critical-commentary/"><u>HIGH-STAKING HABITATS Critical Commentary</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-infiltration-suspicious-social-sites/"><u>Identity Infiltration: Suspicious Social Sites</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-se-2022-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone SE (2022) Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-learn-to-craft-instagram-ringtones-with-us/"><u>[New] 2024 Approved Learn to Craft Instagram Ringtones with Us</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-peak-performances-in-oly-x-cross-2022/"><u>[New] In 2024, Peak Performances in Oly X-Cross 2022</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-soft-transitions-in-garageband-audio/"><u>[Updated] 2024 Approved Mastering Soft Transitions in Garageband Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ten-steps-to-keeping-vr-healthy/"><u>[Updated] 2024 Approved Ten Steps to Keeping VR Healthy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-become-a-pro-at-hosting-virtual-meetings-with-zoom-an-android-users-guide/"><u>[Updated] In 2024, Become a Pro at Hosting Virtual Meetings with Zoom An Android User's Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ringtone-vox-transcription-device-iphone-for-2024/"><u>[Updated] Ringtone VOX Transcription Device (iPhone) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-technique-for-capturing-hulu-playbacks-for-2024/"><u>[Updated] The Ultimate Technique for Capturing Hulu Playbacks for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/digital-glow-up-video-quality-boosting-tools-list-for-2024/"><u>Digital Glow-Up Video Quality Boosting Tools List for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/echo-expertise-the-best-audio-quiz-games-available/"><u>Echo Expertise: The Best Audio Quiz Games Available</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essentials-to-produce-a-charismatic-vlog-dialogue/"><u>Essentials to Produce a Charismatic Vlog Dialogue</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-6s-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 6s Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oneplus-ace-2-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your OnePlus Ace 2</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-pixel-8-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Google Pixel 8 Phone Without Password?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-lowdown-on-minitool-movie-maker-review-tips-and-alternative-video-editors-for-2024/"><u>New The Lowdown on Minitool Movie Maker Review, Tips, and Alternative Video Editors for 2024</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/resepsi-pemulihan-drive-windows-11-gagal-langkah-langkah-mendapatkan-penyelesaian/"><u>Resepsi Pemulihan Drive Windows 11 [Gagal] - Langkah-Langkah Mendapatkan Penyelesaian</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/step-by-step-guide-to-earning-on-reddit-no-skills-required/"><u>Step-by-Step Guide to Earning on Reddit - No Skills Required</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-identifying-and-eliminating-mobile-spyware-tips-from-zdnet/"><u>Step-by-Step Guide: Identifying & Eliminating Mobile Spyware - Tips From ZDNet</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-essential-blueprint-for-finding-and-enjoying-premium-cricket-streams-for-2024/"><u>The Essential Blueprint for Finding and Enjoying Premium Cricket Streams for 2024</u></a></li>
 </ul></div>
 

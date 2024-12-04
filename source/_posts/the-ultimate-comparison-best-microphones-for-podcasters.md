@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Comparison  Best Microphones for Podcasters\""
-date: 2024-11-21T16:38:47.253Z
-updated: 2024-11-24T16:37:21.205Z
+date: 2024-11-30T20:46:29.717Z
+updated: 2024-12-03T19:07:55.575Z
 tags: 
   - screen-recording
   - ai video
@@ -43,17 +43,9 @@ Podcasting is all about audio; a good microphone makes a lot of difference in cl
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. The 10 Best Microphones for Podcasting in 2024
 
 The market has decent options regarding microphones, with all of them making tall claims about their features and usability. The real challenge here is to single out an overall best-in-class mic, as everyone's requirements will differ. So instead, we have shortlisted a few standouts for your consideration.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Blue Yeti Nano](https://www.amazon.com/Logitech-Creators-Microphone-Streaming-Computer/dp/B07DTTGZ7M?th=1) – Premium Dual Pattern Mic
 
@@ -142,6 +134,10 @@ If you want to focus more on the recording and less on the process, this excelle
 
 ![samson gtrack](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **What you need to know**
 
 * Weight: 3.52 lb(1.6Kg)
@@ -217,10 +213,6 @@ This USB-based mic from Rode is solid and durable, capable of recording vocals, 
 * The tripod is weak and unstable
 * There is no gain knob
 * The pricy USB-only device
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. [AudioTechnica AT2035](https://www.amazon.com/Audio-Technica-AT2035-Cardioid-Condenser-Microphone/dp/B002T45X1G)\- Entry Level XLR Reliable mic
 
@@ -361,6 +353,10 @@ One such program that we recommend here is [Wondershare Filmora](https://tools.t
 
 ![wondershare record audio 3](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Let's check out some of the critical audio-related features of Wondershare Filmora
 
 * The shortcut key saves you time while editing podcasts.
@@ -377,6 +373,10 @@ Step1 Download, install, and launch the Wondershare Filmora software on your sys
 Step2 Next, record the Full Screen, Custom, or Target Window as desired. Here you need to select if you want to record the audio from the microphone or use the computer system. Finally, choose the icon of the option desired.
 
 ![wondershare record audio 2](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Next, click the REC button, and the recording will start with a countdown of 3 seconds. Stop when the recording is done, and the recorded file can be checked from the media library.
 
@@ -396,6 +396,10 @@ Step3 After the desired changes are made, click on the OK button to confirm the 
 
 ![wondershare adjust audio](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Steps to add audio effects using Wondershare Filmora**
 
 Step1 Launch the software, choose the desired audio file from the media library and drag it to the time. Next, go to Effects > Audio Effects.
@@ -407,6 +411,10 @@ Step2 Next, you will find the 5 sound effect samples – Big Room, Lobby, Small 
 Step3 The settings of these audio effects can also be adjusted by double-clicking on the timeline clip and then going to the Audio Effects option under the Audio tab.
 
 ![double-clicking on the timeline clip](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-18.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Confirm the added effect and save the audio file.
 
@@ -428,10 +436,6 @@ It is an excellent mic that is apt for recording and streaming hassle-free. The 
 
 ![blue yeti nano](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **What you need to know**
 
 * Weight: 139lbs (0.63Kg)
@@ -453,6 +457,10 @@ It is an excellent mic that is apt for recording and streaming hassle-free. The 
 * The pricing is high compared to the other models in a similar category.
 * Not suitable for users looking for stereo or bidirectional mode.
 * We might have compatibility issues with Apple that no longer uses USB 3, and an adapter might be needed in such situations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [Samson Q2U](https://www.amazon.com/Samson-Handheld-Microphone-Recording-Podcasting/dp/B001R747SG) – Best budget podcasting microphone
 
@@ -513,10 +521,6 @@ If you want to focus more on the recording and less on the process, this excelle
 
 ![samson gtrack](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **What you need to know**
 
 * Weight: 3.52 lb(1.6Kg)
@@ -566,7 +570,7 @@ Don't judge this mic by its size. Though small, the device is powerful and packe
 ![rode podmic](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. [Rode NT USB](https://www.amazon.com/Rode-NT-USB-Mini-Microphone-Detachable-Headphone/dp/B084P1CXFD) – Durable and User-friendly mic
@@ -596,10 +600,6 @@ This USB-based mic from Rode is solid and durable, capable of recording vocals, 
 * The tripod is weak and unstable
 * There is no gain knob
 * The pricy USB-only device
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. [AudioTechnica AT2035](https://www.amazon.com/Audio-Technica-AT2035-Cardioid-Condenser-Microphone/dp/B002T45X1G)\- Entry Level XLR Reliable mic
 
@@ -687,10 +687,6 @@ If you scroll across the best gaming mic, you will surely come across HyperX Qua
 
 ![hyper x quad cast](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **What you need to know**
 
 * Weight: 254g
@@ -736,6 +732,10 @@ Another deciding factor is the audio software. Depending on your requirements, c
 
 Last but not least is the budget for your mic. You need to set a budget and then accordingly check which is the best mic that fits into your category.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. What else do you need to start podcasting?
 
 Above, we have discussed the importance of a good podcasting mic and the available varieties and models. In addition, another important thing you would need to create an excellent podcast is a professional audio recording and editing tool. Good software helps customize, edit, and create a polished version of your podcast.
@@ -757,6 +757,10 @@ Step1 Download, install, and launch the Wondershare Filmora software on your sys
 
 ![wondershare record audio 1](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Next, record the Full Screen, Custom, or Target Window as desired. Here you need to select if you want to record the audio from the microphone or use the computer system. Finally, choose the icon of the option desired.
 
 ![wondershare record audio 2](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-14.jpg)
@@ -764,6 +768,10 @@ Step2 Next, record the Full Screen, Custom, or Target Window as desired. Here yo
 Step3 Next, click the REC button, and the recording will start with a countdown of 3 seconds. Stop when the recording is done, and the recorded file can be checked from the media library.
 
 ![wondershare record audio 3](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Steps to adjust and edit audio using Wondershare Filmora**
 
@@ -779,19 +787,11 @@ Step3 After the desired changes are made, click on the OK button to confirm the 
 
 ![wondershare adjust audio](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Steps to add audio effects using Wondershare Filmora**
 
 Step1 Launch the software, choose the desired audio file from the media library and drag it to the time. Next, go to Effects > Audio Effects.
 
 ![wondershare audio effects](https://images.wondershare.com/filmora/article-images/2022/12/10-best-podcasts-microphones-in-2022-17.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Next, you will find the 5 sound effect samples – Big Room, Lobby, Small Room, Echo, and Phone. Download these effects and add them to your audio file, tab on the Add icon or the clip.
 
@@ -833,18 +833,20 @@ So, we hope all your queries related to podcast microphones are resolved. Now, i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-vlc-potentials-the-top-10-undiscovered-features/"><u>[New] 2024 Approved Unlocking VLC Potentials The Top 10 Undiscovered Features</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-cyberlinks-screen-recorder-an-expert-evaluation-for-2024/"><u>[New] Cyberlink's Screen Recorder An Expert Evaluation for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[Updated] In 2024, Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-run-a-giveaway-facebook-post/"><u>[Updated] In 2024, How to Run a Giveaway Facebook Post</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-visualizing-time-the-hyperlapse-filmmakers-guide/"><u>[Updated] In 2024, Visualizing Time The Hyperlapse Filmmaker's Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/digital-dive-for-rookies-the-essentials-of-image-fidelity/"><u>Digital Dive for Rookies The Essentials of Image Fidelity</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-reasons-to-invest-in-apples-latest-creation-the-new-ipad-air-exclusive-opinion-guru/"><u>Discover the Ultimate Reasons to Invest in Apple's Latest Creation, The New iPad Air | Exclusive Opinion Guru</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-update-radeon-hd-7850-drivers-comprehensive-guide-for-windows-11/"><u>Download and Update Radeon HD 7850 Drivers: Comprehensive Guide for Windows 11</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/ending-dark-mode-glitches-on-playback-for-2024/"><u>Ending Dark Mode Glitches on Playback for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unraveling-vrs-impact-on-digital-cinema/"><u>In 2024, Unraveling VR's Impact on Digital Cinema</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-visionary-video-sculpting-stylish-deformed-words/"><u>In 2024, Visionary Video Sculpting Stylish, Deformed Words</u></a></li>
-<li><a href="https://fox-info.techidaily.com/sj7-superstar-4k-camera-a-comprehensive-review-for-action-enthusiasts/"><u>SJ7 Superstar 4K Camera - A Comprehensive Review for Action Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-flavorful-filmmaking-made-easy-the-best-tips-for-food-videography/"><u>[New] In 2024, Flavorful Filmmaking Made Easy The Best Tips for Food Videography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-vimeos-edge-over-youtube-what-the-data-says/"><u>[New] In 2024, Vimeo’s Edge Over YouTube? What the Data Says</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-assessing-your-needs-selecting-the-optimal-4k-camera-lens/"><u>[Updated] 2024 Approved Assessing Your Needs Selecting the Optimal 4K Camera Lens</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-empower-your-imagery-free-lut-techniques-for-ar/"><u>[Updated] 2024 Approved Empower Your Imagery Free LUT Techniques for AR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-cloud-data-economy-comparison-saving-tips-and-price-leaders-for-2024/"><u>[Updated] Cloud Data Economy Comparison, Saving Tips & Price Leaders for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/56gs56kf6lum6ygt5asx5l2n5pmc55qe5pya5l2z6acq6ziy5zkm5ogi5b6p5pa55rov77ya5aac5l2v5lplusd5oyb5pww5o2u5a6m5pw05ocn/"><u>硬碟軌道失位時的最佳預防和恢復方法：如何保持数据完整性</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-roundup-high-quality-zero-price-livestream-software-list/"><u>Exclusive Roundup High-Quality, Zero-Price LiveStream Software List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-iphone-6s-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your iPhone 6s for Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-enhancing-browser-usability-with-pip-in-chrome/"><u>In 2024, Enhancing Browser Usability with PIP in Chrome</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-fashion-finds-filled-with-fun-editing-for-hauls/"><u>In 2024, Fashion Finds Filled with Fun Editing for Hauls</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-samsung-galaxy-m14-4g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Samsung Galaxy M14 4G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/must-have-gear-for-luxury-sedan-sj4000-enthusiasts-for-2024/"><u>Must-Have Gear for Luxury Sedan SJ4000 Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/simplifying-media-sharing-how-to-enable-autoplay-in-facebook-video-spaces/"><u>Simplifying Media Sharing How to Enable Autoplay in Facebook Video Spaces</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-power-of-persuasion-maximizing-facebook-ad-performance-through-animation-for-2024/"><u>The Power of Persuasion Maximizing Facebook Ad Performance Through Animation for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-communication-top-free-mac-text-to-speech-software-rankings-for-2024/"><u>Transform Communication Top Free Mac Text-to-Speech Software Rankings for 2024</u></a></li>
 </ul></div>
 

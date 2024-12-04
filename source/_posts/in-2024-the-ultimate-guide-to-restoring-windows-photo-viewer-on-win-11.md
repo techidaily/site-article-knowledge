@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Ultimate Guide to Restoring Windows Photo Viewer on Win 11"
-date: 2024-11-18T17:34:58.193Z
-updated: 2024-11-24T17:42:33.556Z
+date: 2024-12-01T22:32:49.423Z
+updated: 2024-12-03T17:13:24.501Z
 tags: 
   - screen-recording
   - ai video
@@ -60,7 +60,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -70,16 +78,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -96,13 +100,13 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -110,14 +114,10 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,21 +145,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-androids-latest-advancements-for-immersive-video-viewing-for-2024/"><u>[New] Android's Latest Advancements for Immersive Video Viewing for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-iconic-14-examples-of-animate-texts/"><u>[New] In 2024, Iconic 14 Examples of Animate Texts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-illuminations-mastering-three-highlight-techniques/"><u>[New] In 2024, Instagram Illuminations Mastering Three Highlight Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-stop-automatically-added-podcast-episodes-via-spotifys-suggestions-for-2024/"><u>[New] Stop Automatically Added Podcast Episodes via Spotify's Suggestions for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-strategic-approach-to-advertising-on-spotify/"><u>[New] The Strategic Approach to Advertising on Spotify</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-transform-your-images-with-picart-clear-canvas-technique-for-2024/"><u>[New] Transform Your Images with PicArt Clear Canvas Technique for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-creating-engaging-visual-narratives-from-photographs-using-pixiz-written/"><u>[Updated] 2024 Approved Creating Engaging Visual Narratives From Photographs Using Pixiz' Written</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-breakthrough-14-text-animation-samples-for-2024/"><u>[Updated] Breakthrough 14 Text Animation Samples for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-tier-business-data-haven-selection-for-2024/"><u>[Updated] Top-Tier Business Data Haven Selection for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oneplus-open-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On OnePlus Open?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-edge-enhancement-3-essential-methods/"><u>Instagram Edge Enhancement - 3 Essential Methods</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/mastering-clonezilla-a-comprehensive-look-at-gpt-vs-mbr-for-disk-partitioning-in-discordant-discs/"><u>Mastering Clonezilla: A Comprehensive Look at GPT Vs. MBR for Disk Partitioning in Discordant Discs</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/mending-shattered-media-playback-sequences/"><u>Mending Shattered Media Playback Sequences</u></a></li>
-<li><a href="https://games-able.techidaily.com/skill-up-your-design-with-these-nine-game-adventures/"><u>Skill-Up Your Design with These Nine Game Adventures</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-solution-getting-netflix-up-and-running-again-on-xbox-one-devices/"><u>Step-by-Step Solution: Getting Netflix Up and Running Again on Xbox One Devices</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/unifying-windows-and-nvidia-graphics-for-seamless-performance/"><u>Unifying Windows & NVIDIA Graphics for Seamless Performance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-celebrating-creators-top-notch-otu-designs/"><u>[New] 2024 Approved Celebrating Creators Top-Notch OTU Designs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-create-impactful-video-elements-cardsannotations/"><u>[New] 2024 Approved How to Create Impactful Video Elements Cards/Annotations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-transform-brainstorms-into-youtube-channel-names/"><u>[New] How To Transform Brainstorms Into YouTube Channel Names</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-iphone-saving-and-utilizing-gifs-effectively/"><u>[New] Mastering iPhone Saving & Utilizing GIFs Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vercoming-unseen-thumbnails-in-youtube-shorts/"><u>[New] Overcoming Unseen Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-mic-showdown-for-podcasters/"><u>[New] Ultimate Mic Showdown for Podcasters</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-win-and-mac-users-elevate-your-workflow-with-our-top-8-tools-to-convert-sub-into-srtr/"><u>[New] Win and Mac Users, Elevate Your Workflow with Our Top 8 Tools to Convert SUB Into SRTR</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-exploring-skies-in-4k-with-mi-drone/"><u>[Updated] 2024 Approved Exploring Skies in 4K with MI Drone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-innovative-entryways-for-panzoid-life/"><u>[Updated] 2024 Approved Innovative Entryways for Panzoid Life</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-devices-needed-for-documenting-trips/"><u>[Updated] Devices Needed for Documenting Trips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-6-online-webcam-recorders-2023/"><u>[Updated] In 2024, Top 6 Online Webcam Recorders 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-15-secrets-to-building-quality-free-ad-videos-for-youtube/"><u>2024 Approved Top 15 Secrets to Building Quality Free Ad Videos for YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-se-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone SE in Lost Mode</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-filching-frames-from-films-for-windows-10-photos-collection/"><u>In 2024, Filching Frames From Films for Windows 10 Photos Collection</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlock-full-potential-integrating-zoom-and-fb-live-events/"><u>In 2024, Unlock Full Potential Integrating ZOOM and FB Live Events</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/tools-for-producing-road-trip-videos/"><u>Tools for Producing Road Trip Videos</u></a></li>
 </ul></div>
 

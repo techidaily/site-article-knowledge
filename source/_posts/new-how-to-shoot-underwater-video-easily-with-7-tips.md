@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Shoot Underwater Video Easily (with 7 Tips)"
-date: 2024-08-22T14:32:58.119Z
-updated: 2024-08-23T14:32:58.119Z
+date: 2024-11-27T16:59:29.121Z
+updated: 2024-12-03T23:16:50.440Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -59,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Stay steady
 
@@ -80,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 7\. Shoot the best colour
 
  You will be able to include the full spectrum of colour by remaining in the first five metres of the water. Fascinating marine life can be found in shallow reefs. The deeper you go, the more colour you are likely to lose.
@@ -99,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -125,8 +145,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-androids-leading-photographic-enhancers/"><u>[New] 2024 Approved Android's Leading Photographic Enhancers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-metadata-the-power-of-accurate-video-tags/"><u>[New] 2024 Approved Mastering Metadata The Power of Accurate Video Tags</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-which-is-the-better-gopro-for-pro-video-max-or-hero-11/"><u>[New] 2024 Approved Which Is The Better GoPro for Pro Video? Max or Hero 11</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-harness-your-screen-with-screencastify-recorder/"><u>[New] Harness Your Screen with Screencastify Recorder</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-achieve-premium-picture-standards-without-paying/"><u>[New] How to Achieve Premium Picture Standards Without Paying</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fast-track-uncovering-erased-reddit-conversations/"><u>[New] In 2024, Fast Track Uncovering Erased Reddit Conversations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-compre-cookie-cutter-webinar-logging-a-windows-and-macos-manual/"><u>[Updated] In 2024, Compre Cookie Cutter Webinar Logging A Windows & macOS Manual</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-windows-hdri-a-users-editing-handbook-for-2024/"><u>[Updated] Windows HDRI A User’s Editing Handbook for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-croatian-language/"><u>Dominant Croatian Language</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-editorxperience-deep-dive-complete-look-at-androvids-features/"><u>In 2024, EditorXperience Deep Dive – Complete Look at AndroVid's Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-laying-the-groundwork-for-av1-understanding/"><u>In 2024, Laying The Groundwork for AV1 Understanding</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-perfecting-your-srt-craft-a-compreran-guide-to-tips-and-tricks/"><u>In 2024, Perfecting Your SRT Craft A Compreran Guide to Tips & Tricks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/live-action-anytime-anywhere-our-ultimate-12-stream-service-for-2024/"><u>Live Action Anytime, Anywhere - Our Ultimate 12-Stream Service for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-chatgpt-prompt-crafting-a-guide-for-the-health-conscious-community/"><u>Mastering ChatGPT Prompt Crafting: A Guide for the Health-Conscious Community</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-windows-11-eliminate-xbox-game-pass-error-0x00000001/"><u>Troubleshooting Windows 11: Eliminate Xbox Game Pass Error 0X00000001</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-action-cam-editing-picks-for-2024/"><u>Ultimate Action Cam Editing Picks for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/windows-wide-applications-mf4770n-firmware-update/"><u>Windows-Wide Applications: MF4770n Firmware Update</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

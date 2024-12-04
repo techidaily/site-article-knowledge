@@ -1,7 +1,7 @@
 ---
 title: "[New] Insights Into Crafting Responses to YouTube Comments"
-date: 2024-11-18T17:51:07.691Z
-updated: 2024-11-24T18:09:40.515Z
+date: 2024-11-27T16:29:31.591Z
+updated: 2024-12-03T20:54:42.517Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Want to become the master of moderation? Read on for everything you need to know
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is YouTube Comment
 
 YouTube comments are an opportunity for the site's 1.7 million unique monthly visitors to share what they love, hate or simply must troll. It's like the internet own personal Thunderdome, but while it can be a place for negativity, YouTube comments can also be a powerful opportunity for positive community building and engagement.
@@ -46,7 +42,7 @@ Not only does it show your fans followers that you care about what they have to 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
@@ -56,6 +52,10 @@ If you're wondering whether you really need to monitor your YouTube comments, he
 * YouTube comments can help you gauge customer sentiment: How do your viewers respond to your content? Positively? Negatively? Not at all? Monitoring your comments can help you understand how viewers feel about your brand.
 * YouTube comments present an opportunity for engagement: Responding quickly to negative comments could help you improve your image-not just with an unhappy viewers, but also with other YouTube viewers who see how you respond to conflict.
 * YouTube comments could help you develop new content: YouTube users aren't shy about expressing their opinions. Pay attentions to what they're saying about your content, and how can develop new content that they want to see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Comment on a YouTube Video
 
@@ -68,10 +68,6 @@ Each comment you leave is another reference and exposure to your brand (and a ch
 Step1 Below the video itself, find the comment section.
 
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
 
@@ -96,7 +92,7 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
@@ -110,7 +106,7 @@ Step5 To edit your comment, click on the “vertical ellipsis” (three vertical
 Step6 Make the necessary edits and choose “Save”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Highlighted Comments and Replies on YouTube
@@ -138,6 +134,10 @@ Retrieve a comment so that you can share it with others outside of YouTube.
 Comments history also contains the link to the video where you've left the comment along with the date and time when the comment was made. Clicking on this link will open the video page with your comment highlighted at the top of the comment section.
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -175,22 +175,22 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ideal-hues-the-ultimate-guide-to-color-enhancement-11-steps/"><u>[New] 2024 Approved Ideal Hues The Ultimate Guide to Color Enhancement (11 Steps)</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-disable-live-recording-in-quicktime-player-for-2024/"><u>[New] How to Disable Live Recording in QuickTime Player for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unlocking-the-power-of-authenticity-in-testimonial-videography/"><u>[New] In 2024, Unlocking the Power of Authenticity in Testimonial Videography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-essential-guide-pick-from-8-great-free-android-mp3-clients/"><u>[Updated] 2024 Approved Essential Guide Pick From 8 Great Free Android MP3 Clients</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-simplifying-the-complexities-of-vr-devices/"><u>[Updated] 2024 Approved Simplifying the Complexities of VR Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-audio-selection-tips-for-impactful-unboxing-clips/"><u>[Updated] Audio Selection Tips for Impactful Unboxing Clips</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-efficiently-recording-desktop-screens-for-various-purposes-for-2024/"><u>[Updated] Efficiently Recording Desktop Screens for Various Purposes for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-selfie-verification-examining-its-impact-on-social-platforms-for-2024/"><u>[Updated] Selfie Verification Examining Its Impact on Social Platforms for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-green-canvas-essential-templates-to-enhance-your-cinematographic-journey/"><u>2024 Approved Green Canvas Essential Templates to Enhance Your Cinematographic Journey</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125655-9781609256173-coventry-magic-with-candles-oils-and-herbs/"><u>Coventry Magic with Candles, Oils, and Herbs | Free Book</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/facetime-photo-retrieval-uncovering-the-secrets-of-image-location-on-ios/"><u>FaceTime Photo Retrieval: Uncovering the Secrets of Image Location on iOS</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-essential-guide-to-top-16-free-video-enthusiasts/"><u>In 2024, Essential Guide to Top 16 Free Video Enthusiasts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-must-see-mac-video-frames-selection-limited-to-156-characters/"><u>In 2024, Must-See Mac Video Frames Selection (Limited to 156 Characters)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-definitive-srt-file-generation-manual/"><u>In 2024, The Definitive SRT File Generation Manual</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-the-signup-landscape-of-chatgpt-features/"><u>Navigating the Signup Landscape of ChatGPT Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlocking-m1-max-clip-potentials-for-2024/"><u>Unlocking M1 Max Clip Potentials for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-learn-to-craft-instagram-ringtones-with-us/"><u>[New] 2024 Approved Learn to Craft Instagram Ringtones with Us</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-streamlined-audio-processing-in-windows-media-player/"><u>[New] Streamlined Audio Processing in Windows Media Player</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-soft-transitions-in-garageband-audio/"><u>[Updated] 2024 Approved Mastering Soft Transitions in Garageband Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ten-steps-to-keeping-vr-healthy/"><u>[Updated] 2024 Approved Ten Steps to Keeping VR Healthy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-become-a-pro-at-hosting-virtual-meetings-with-zoom-an-android-users-guide/"><u>[Updated] In 2024, Become a Pro at Hosting Virtual Meetings with Zoom An Android User's Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ringtone-vox-transcription-device-iphone-for-2024/"><u>[Updated] Ringtone VOX Transcription Device (iPhone) for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/adobe-full-voice-booster-evaluation-techniques-for-superior-sound-quality/"><u>Adobe Full Voice Booster Evaluation: Techniques for Superior Sound Quality</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/digital-glow-up-video-quality-boosting-tools-list-for-2024/"><u>Digital Glow-Up Video Quality Boosting Tools List for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/improve-conference-efficiency-webcam-assisted-powerpoint-for-2024/"><u>Improve Conference Efficiency Webcam-Assisted PowerPoint for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-vivo-v27e-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Vivo V27e to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-youtube-video-sizing-a-step-by-step-approach/"><u>In 2024, Mastering YouTube Video Sizing A Step-by-Step Approach</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-videovantage-warriors/"><u>In 2024, VideoVantage Warriors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/minecraft-game-walkthrough-and-evaluation-for-all-skill-levels/"><u>Minecraft Game Walkthrough and Evaluation for All Skill Levels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/step-by-step-guide-to-earning-on-reddit-no-skills-required/"><u>Step-by-Step Guide to Earning on Reddit - No Skills Required</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-essential-blueprint-for-finding-and-enjoying-premium-cricket-streams-for-2024/"><u>The Essential Blueprint for Finding and Enjoying Premium Cricket Streams for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-5-advanced-cognitive-robots-for-psychological-relief/"><u>Unveiling 5 Advanced Cognitive Robots for Psychological Relief</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Vivo Y27s? | Dr.fone</u></a></li>
 </ul></div>
 

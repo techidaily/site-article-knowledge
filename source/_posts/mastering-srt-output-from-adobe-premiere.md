@@ -1,7 +1,7 @@
 ---
 title: "Mastering SRT Output From Adobe Premiere"
-date: 2024-08-15T07:12:18.609Z
-updated: 2024-08-16T07:12:18.609Z
+date: 2024-11-28T19:37:19.127Z
+updated: 2024-12-03T18:00:37.494Z
 tags: 
   - screen-recording
   - ai video
@@ -47,8 +47,9 @@ If, unfortunately, you select the wrong settings for your file during the export
 Fixing the Premiere pro export subtitles fail error is not a daunting task if you know the right tricks to execute the operation. Here, we’ve explained three methods that are not just reliable but also work for fixing export SRT from Premiere pro not working issue. Keep reading to find out more about these fixes.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 1: Use Export Media Option
 
 The “Export Media” option in Adobe Premiere Pro is effective for exporting SRT without problems. However, using this method means you’re exploring the .srt file with a video file. The process to use this method is outlined below;
@@ -56,8 +57,9 @@ The “Export Media” option in Adobe Premiere Pro is effective for exporting S
 Step1 Firstly, right-click on the SRT file from the Premiere pro software project panel. Then select 'Export Media.'
 
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
@@ -65,11 +67,16 @@ Step2 Once you click on “Export Media” you’ll notice different options. Ig
 Step3 Click on “Create Sidecar File” under 'Export Options.
 
 ![click on create sidecar file](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Export SRT as Sidecar File
 
@@ -81,9 +88,6 @@ Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Method 3: Export SRT File with Timestamps
 
 The previously mentioned methods will allow you to export SRT either with video or as a sidecar file. But if you’re looking to export SRT file with timestamps, this method will work for you. The process is straightforward as the prior discussed methods.
@@ -115,9 +119,6 @@ Here is the step-by-step process to edit band export SRT with Wondershare Filmor
 Step1 First, download and install the Filmora software on your computer, then start the program.
 
 ![download and install filmora software](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
@@ -164,24 +165,19 @@ The “Export Media” option in Adobe Premiere Pro is effective for exporting S
 Step1 Firstly, right-click on the SRT file from the Premiere pro software project panel. Then select 'Export Media.'
 
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
 
 Step3 Click on “Create Sidecar File” under 'Export Options.
 
 ![click on create sidecar file](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 
 Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 2: Export SRT as Sidecar File
 
 Another way to export SRT files from Adobe Premiere Pro is by exporting the file as a sidecar file. You might ask “What is a sidecar file?” A sidecar file refers to a computer file that stores data that is not supported by the format of its source file. The sidecar file from the source could be more than one, and it could contain meta databases.
@@ -192,23 +188,6 @@ Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### Method 3: Export SRT File with Timestamps
 
 The previously mentioned methods will allow you to export SRT either with video or as a sidecar file. But if you’re looking to export SRT file with timestamps, this method will work for you. The process is straightforward as the prior discussed methods.
@@ -220,11 +199,16 @@ Step1 Firstly, select SEQUENCE in the project panel.
 Step2 Up next, click File -> Export -> Captions. Once you complete that, you’ll export the SRT file as a sidecar file with timestamps.
 
 ![open export settings](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-3.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** for this to work, the video must be on one video layer.
 
@@ -247,32 +231,31 @@ Step1 First, download and install the Filmora software on your computer, then st
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Step3 Move the uploaded SRT file to the Timeline by dragging and dropping it there, then right-click on it from the Timeline and choose “Advance Edit” from the pop-up list.
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
 Step4 Start editing your SRT file. You can edit the text, time code, speed, text color, etc.
 
 ![edit text color](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Once you’re done with the editing, right-click on the SRT file from the Timeline again and this time, select “Export Subtitle File” from the pop-up list and save it to your computer storage.
 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Final Words
 
 If you’re experiencing the export SRT from Premiere pro not working error, the article above has explained all possible methods that you can utilize to fix it quickly and easily. You can either
@@ -301,4 +284,23 @@ That being said, if you want to save yourself from unwanted errors during the ex
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-crash-course-in-surf-cameras-2e3/"><u>[New] 2024 Approved The Crash Course in Surf Cameras (2E3)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-transforming-yi-4k-capture-with-ideal-adjuncts/"><u>[New] 2024 Approved Transforming YI 4K Capture with Ideal Adjuncts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-complete-introduction-to-snapchats-new-feature-for-2024/"><u>[New] A Complete Introduction to Snapchat's New Feature for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-discovering-elite-camera-operators-best-practices-for-2024/"><u>[New] Discovering Elite Camera Operators' Best Practices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-illuminate-your-world-top-iphone-lights-techniques/"><u>[New] In 2024, Illuminate Your World Top iPhone Lights Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-innovative-color-grading-integrating-free-lut-resources/"><u>[New] In 2024, Innovative Color Grading Integrating FREE LUT Resources</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-methods-to-rectify-obs-fullscreen-crash/"><u>[New] In 2024, Methods to Rectify OBS Fullscreen Crash</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-your-step-by-step-apk-to-funimate-play-for-2024/"><u>[New] Your Step-by-Step APK to Funimate Play for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-behind-the-scenes-of-online-content-monetization/"><u>[Updated] 2024 Approved Behind the Scenes of Online Content Monetization</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-online-oasis-viewer/"><u>[Updated] In 2024, Online Oasis Viewer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-most-inspiring-yoga-channels-on-the-web/"><u>10 Most Inspiring Yoga Channels on the Web</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/constructing-compelling-trailer-crafts/"><u>Constructing Compelling Trailer Crafts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-vivo-y77t-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Vivo Y77t FRP</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/nikons-journey-to-excellence-the-4k-camera-review/"><u>Nikon's Journey to Excellence The 4K Camera Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fix-guide-stop-vmware-virtual-machine-error-in-win11/"><u>Quick Fix Guide: Stop VMware Virtual Machine Error in Win11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-guide-resolving-connection-issues-with-your-stadia-gaming-headset/"><u>Troubleshooting Guide: Resolving Connection Issues with Your Stadia Gaming Headset</u></a></li>
+</ul></div>
 

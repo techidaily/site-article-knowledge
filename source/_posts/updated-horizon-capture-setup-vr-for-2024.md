@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Horizon Capture Setup VR for 2024"
-date: 2024-08-15T07:10:22.939Z
-updated: 2024-08-16T07:10:22.939Z
+date: 2024-12-02T18:19:32.209Z
+updated: 2024-12-03T17:01:50.101Z
 tags: 
   - screen-recording
   - ai video
@@ -35,8 +35,9 @@ The years of work on the creation of a beautiful world with the Virtual Reality 
 * [3.3D Print Your Own Rig](#part3)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Rigs for Multiple Cameras
 
 When we talk about capturing 360-degree videos then GoPro camera is one of the best choices for VR setup. Following 360 rigs use to work perfectly with GoPro:
@@ -54,9 +55,6 @@ The freedom 360-degree mount allows users to join almost 6 Hero cameras that all
 #### [360RIZE (formerly 360Heros):](https://www.360rize.com/)
 
 ![360 camera rigs - 360Hero](https://images.wondershare.com/filmora/article-images/360-camera-rigs-360-hero.jpg)
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The workflow of 360RIZE is same as that of all other video creation processes and it also allows easy stitching of captured content to develop amazing spherical stuff. It comes with specialized color processing abilities and graphic overlays to create better outcome.
 
@@ -68,6 +66,10 @@ The workflow of 360RIZE is same as that of all other video creation processes an
 
 ![360 camera rigs - iZugar](https://images.wondershare.com/filmora/article-images/360-camera-rigs-izugar.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Everything is possible with latest iZugar rig as it comes with wider lens arrangements that have better focus on all directions leading to much better spherical content. You need to connect only 2 GoPro cameras with it to capture complete scene in all directions due to its ability to capture with wider angles.
 
 **Pros:** Less camera arrangement required so stitching also becomes easier.
@@ -77,8 +79,9 @@ Everything is possible with latest iZugar rig as it comes with wider lens arrang
 #### [Entaniya Fisheye lens:](http://www.entapano.com/en/l/)
 
 ![360 camera rigs - Entaniya](https://images.wondershare.com/filmora/article-images/360-camera-rigs-entaniya-fisheye-lenses.png)
+
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Entaniya is believed to work on simplification of process to create 360 videos with its compatible GoPro cameras. The three associated fisheye lenses allows to focus over 220, 250 and 280 degrees with horizontal angles. If you don’t want to stitch the captured videos then it is also possible to use it with one 280 cam rig.
@@ -92,8 +95,9 @@ Entaniya is believed to work on simplification of process to create 360 videos w
 #### [360 Designs: Mini EYE:](http://360designs.io/product/mini-eye/)
 
 ![360 camera rigs - Mini EYE](https://images.wondershare.com/filmora/article-images/360-camera-rigs-mini-eye.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here is a latest rig design for VR content that can serve with 3 to 10 cameras connected per rig. It is one of the best solutions for the creation of stunning VR content that is essential for broadcasters, cinematographers, production companies as well as internet companies. The price range is much higher that goes up to $9000 to $55000 for the complete package which also contains all required accessories and applications.
@@ -105,9 +109,6 @@ Here is a latest rig design for VR content that can serve with 3 to 10 cameras c
 #### [Kodak PIXPRO SP360 4k – Dual Pro Pack:](https://www.bhphotovideo.com/c/product/1235855-REG/kodak%5Fsp360%5F4k%5Fbk5%5Fpixpro%5Fsp360%5F4k%5Faction.html)
 
 ![360 camera rigs - Kodak Dual Pro Pack](https://images.wondershare.com/filmora/article-images/360-camera-rigs-kodak-action.jpeg)
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 This Pack is simply a wonderful advancement over original 360 video quality as it comes with single camera unit that don’t even demand efforts for stitching. The available dual pro type camera pack allows users to design VR content using specialized software that is much easier to use.
 
@@ -118,6 +119,10 @@ This Pack is simply a wonderful advancement over original 360 video quality as i
 #### [Elmo: QBiC Panorama:](https://www.elmousa.com/product/qbic-panorama-x/)
 
 ![360 camera rigs - Elmo QBiC Panorama](https://images.wondershare.com/filmora/article-images/360-camera-rigs-qbic-panorama.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here is a low cost solution for your 360-degree video recording needs and the best thing to know is that it is compatible with post production as well as live streaming where resolution goes up to 4K. It works with four QBiC MS XP Cameras that have wider focus and are able to record vertical portion with 180-degree ability and horizontal part with complete 360-degree view.
 
@@ -135,9 +140,6 @@ This rig is designed with highly customized features and its four cameras use to
 
 **Cons:** Needs 4 different MicroSD Cards for storage and you have to make efforts for stitching too.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. 3D Print Your Own Rig
 
 ![360 camera rigs - 3D Print](https://images.wondershare.com/filmora/article-images/360-camera-rigs-3d-print.png)
@@ -169,4 +171,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-unleash-camera-potential-with-10-premium-freebies-and-personalized-purchase-choices/"><u>[New] Unleash Camera Potential with 10 Premium Freebies & Personalized Purchase Choices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-djis-minis-and-air-2-get-20-free-custom-luts-for-mixing/"><u>[Updated] 2024 Approved DJI's Minis & Air 2 Get 20 Free Custom LUTs for Mixing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhancing-your-interview-impact-and-credibility/"><u>[Updated] 2024 Approved Enhancing Your Interview Impact and Credibility</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-the-secret-of-hashtags-for-six-figures/"><u>[Updated] 2024 Approved Unlocking the Secret of #Hashtags for Six Figures</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elevate-your-photography-access-to-10plus-free-purchasable-luts-for-canon-cams-for-2024/"><u>[Updated] Elevate Your Photography Access to 10+ Free, Purchasable LUTs for Canon Cams for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-epic-finale-for-virtual-escapades-for-2024/"><u>[Updated] Epic Finale for Virtual Escapades for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-excellence-in-offline-speech-recognition-software-for-2024/"><u>[Updated] Excellence in Offline Speech Recognition Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-key-10-acoustic-amplifiers-for-android-ios-for-2024/"><u>[Updated] Key 10 Acoustic Amplifiers for Android, iOS for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-hp-laserjet-pro-multi-function-printer-mfp-m127fn-drivers-free/"><u>Download HP LaserJet Pro Multi-Function Printer (MFP) M127FN Drivers - Free</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-iphone-11-pro-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On iPhone 11 Pro Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-inspiration-on-a-plate-top-20-instagram-food-photos/"><u>In 2024, Inspiration on a Plate Top 20 Instagram Food Photos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/innovation-unveiled-the-complete-moto-z2-review/"><u>Innovation Unveiled The Complete Moto Z2 Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/peak-color-alignment-tool-for-2024/"><u>Peak Color Alignment Tool for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/professional-mobile-photography-strategies-for-2024/"><u>Professional Mobile Photography Strategies for 2024</u></a></li>
+</ul></div>
 

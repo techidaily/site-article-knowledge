@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review and Analysis of the Samsung 55 RU73 <B>4K Smart TV</B>: Worth Its Bends?"
-date: 2024-11-19T19:36:04.217Z
-updated: 2024-11-24T16:41:40.793Z
+date: 2024-11-30T00:54:20.199Z
+updated: 2024-12-03T17:30:28.306Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review and Analysis of the Samsung 55 RU73 <B>4K Smart TV</B>: Worth Its Bends?"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/6d09665be2a2fe83c31f111bbc0153ce5984e036a
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## LG OLED C9 65" 4K Smart TV
 
@@ -45,13 +49,13 @@ Lifewire / Emily Isaacs
 
 4.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -77,7 +81,15 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Ky7KFEDgeAy-u_D_Tv7zaOPYQMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_03-f111424cfd584bfeac329fa2932278ca.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Smart and sleek**
 
@@ -93,10 +105,6 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
  Due to its large size and fragile nature, consider where the LG C9 will be most secure before moving ahead with setup. It shouldn’t be placed anywhere where there’s a risk it could be knocked down or climbed on, for instance, so choose a location safely tucked away from pets and children.
@@ -111,10 +119,6 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -126,7 +130,7 @@ Lifewire / Emily Isaacs
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Better than expected**
@@ -171,10 +175,6 @@ Lifewire / Emily Isaacs
 
  With its excellent smart features, gorgeous 4K image quality, and an easy-to-use interface, LG has only improved on last year’s model with the LG OLED C9\. That said, these improvements aren’t significant leaps, mainly coming from processor improvements and the addition of HDMI 2.1 ports. If you’re simply looking for the best TV from last year and price isn’t a consideration, look no further. On the other hand, there are other great 65-inch 4K TV models that may not have all the extra features the C9 does, but do have comparable quality without breaking the bank.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  OLED C9 65" 4K Smart TV
@@ -216,20 +216,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-why-cant-my-a6400-show-movies/"><u>[New] 2024 Approved Why Can't My A6400 Show Movies?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-from-zero-to-hero-3-proven-strategies-for-livestream-success-on-youtube/"><u>[New] From Zero to Hero 3 Proven Strategies for Livestream Success on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-from-isolation-to-integration-how-to-mesh-obs-with-zoom/"><u>[Updated] From Isolation to Integration How to Mesh OBS with Zoom</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-standout-book-trailer-highlights/"><u>[Updated] Standout Book Trailer Highlights</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-step-by-step-to-adobe-cloud-success-and-non-adobe-options-for-2024/"><u>[Updated] Step-by-Step to Adobe Cloud Success & Non-Adobe Options for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-sunny-side-up-videography-for-android/"><u>[Updated] Sunny Side-Up Videography for Android</u></a></li>
-<li><a href="https://driver-download.techidaily.com/expert-advice-effective-methods-to-download-and-install-asus-wifi-drivers/"><u>Expert Advice: Effective Methods to Download and Install ASUS WiFi Drivers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Tecno Spark 20C | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-perfecting-film-grading-a-deep-dive-into-cg-centrals-look-up-tables/"><u>In 2024, Perfecting Film Grading A Deep Dive Into CG Central's Look-Up Tables</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-reno-8t-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo Reno 8T Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/mastering-iphones-podcast-downloads-made-easy-for-2024/"><u>Mastering iPhones Podcast Downloads Made Easy for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tailored-views-adopting-the-compact-method-for-windows-11/"><u>Tailored Views: Adopting the Compact Method for Windows 11</u></a></li>
-<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-xiaomi-14-pro-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Xiaomi 14 Pro.</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/xiaomi-redmi-note-12r-can-t-play-mp4-video-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Xiaomi Redmi Note 12R can't play MP4 video files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-cyberspace-screenplays-virtual-movie-journeys/"><u>[New] Cyberspace Screenplays Virtual Movie Journeys</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fastest-phone-apps-for-faster-audio-streaming/"><u>[New] In 2024, Fastest Phone Apps for Faster Audio Streaming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-the-art-of-cropping-in-the-digital-age/"><u>[New] Mastering the Art of Cropping in the Digital Age</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-professional-iphone-cinematography-nine-crucial-tips-to-perfect-videos-for-2024/"><u>[Updated] Professional iPhone Cinematography Nine Crucial Tips to Perfect Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-screen-mirroring-apple-iphone-15-plus-to-tv-or-pc-drfone-by-drfone-ios/"><u>How Screen Mirroring Apple iPhone 15 Plus to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-a-freezing-or-crashing-windows-10-system/"><u>How to Fix a Freezing or Crashing Windows 10 System</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-groundbreaking-screenplays-in-8-movie-categories/"><u>In 2024, Groundbreaking Screenplays in 8 Movie Categories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/master-psd-saturation-tweaks-for-2024/"><u>Master PSD Saturation Tweaks for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/navigating-immediate-account-suspension-due-to-copyright-violations/"><u>Navigating Immediate Account Suspension Due to Copyright Violations</u></a></li>
+<li><a href="https://win-able.techidaily.com/reactivate-and-fix-your-windows-11-spotlight-issue-a-step-by-step-guide/"><u>Reactivate and Fix Your Windows 11 Spotlight Issue - A Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/step-by-step-guide-countdown-timer-setup-for-broadcasts-for-2024/"><u>Step-by-Step Guide Countdown Timer Setup for Broadcasts for 2024</u></a></li>
 </ul></div>
 

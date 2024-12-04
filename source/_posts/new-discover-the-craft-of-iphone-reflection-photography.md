@@ -1,7 +1,7 @@
 ---
 title: "[New] Discover the Craft of iPhone Reflection Photography"
-date: 2024-11-17T18:30:00.154Z
-updated: 2024-11-24T16:04:39.835Z
+date: 2024-11-30T23:14:54.792Z
+updated: 2024-12-03T17:25:30.690Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips For Perfect Reflective Photography With Your iPhone
 
 #### 1\.  The Surface
@@ -53,16 +49,12 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 
 ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  A Crystal/Glass Ball
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Water in a wine glass (turns everything upside down too!)
@@ -82,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 ![reflection-composition-tips](https://images.wondershare.com/filmora/article-images/reflection-composition-tips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To activate the lines simply go to **Settings > Camera and Photographs > Grid**
@@ -98,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Awful
@@ -122,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -153,6 +149,10 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 #### 3\. [Photo Reflection](https://itunes.apple.com/us/app/photo-reflection/id484604482?mt=8)
 
 ![photo-reflection-app](https://images.wondershare.com/filmora/article-images/photo-reflection-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you're not looking for professional level images then photo reflection is a good choice because it's free! It lacks some of the advanced features of the other apps but great for the very occasional photographer!
 
@@ -191,22 +191,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-break-through-the-crowd-your-guide-to-choosing-free-intro-masters/"><u>[New] In 2024, Break Through the Crowd - Your Guide to Choosing Free Intro Masters</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-iphones-simple-methods-for-effective-screening-for-2024/"><u>[New] IPhone's Simple Methods for Effective Screening for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-synthesize-sounds-and-images-in-ppts-for-2024/"><u>[New] Synthesize Sounds and Images in PPTS for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-expert-psd-borderline-elegance/"><u>[Updated] Expert PSD Borderline Elegance</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-high-performance-windows-editing-tools-roundup-reviewed/"><u>[Updated] High Performance Windows Editing Tools Roundup Reviewed</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-smartphone-guide-crafting-engaging-video-content/"><u>[Updated] Smartphone Guide Crafting Engaging Video Content</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortlessly-upload-and-convert-your-3gp-videos-to-high-quality-mpeg-no-cost-solution/"><u>Effortlessly Upload and Convert Your 3GP Videos to High-Quality MPEG - No Cost Solution!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/game-on-with-premium-screens-for-your-xbox-series-x-console/"><u>Game on with Premium Screens for Your Xbox Series X Console</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-narrative-wordsmithing-weaving-a-story-through-speech/"><u>In 2024, Narrative Wordsmithing Weaving a Story Through Speech</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-outstanding-20-anime-opening-melodies/"><u>In 2024, Outstanding 20 Anime Opening Melodies</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-video-directors-ultimate-companion-powerdirector-full-review/"><u>In 2024, Video Directors' Ultimate Companion - PowerDirector Full Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-whatsapp-voice-dialogues-explained/"><u>In 2024, WhatsApp Voice Dialogues Explained</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ey-around-the-world-on-youtube-including-you-for-2024/"><u>Journey Around the World on YouTube, Including You for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/quantum-leap-in-photography-understanding-hdr-for-2024/"><u>Quantum Leap in Photography Understanding HDR for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/revolutionary-slim-form-factor-explore-minisforums-latest-mini-pc-with-powerful-amd-processor-and-enhanced-gaming-gpu-options/"><u>Revolutionary Slim Form Factor: Explore Minisforum's Latest Mini PC with Powerful AMD Processor and Enhanced Gaming GPU Options</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stop-the-flash-seven-effective-fixes-for-a-smooth-screen-experience-on-your-mobile-device/"><u>Stop the Flash: Seven Effective Fixes for a Smooth Screen Experience on Your Mobile Device</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-platform-prowess-twitch-vs-youtube-comparison/"><u>The Platform Prowess Twitch vs YouTube Comparison</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-dive-into-full-rotation-cinematography-9-critical-tips/"><u>[New] 2024 Approved Dive Into Full Rotation Cinematography 9 Critical Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlock-full-potential-of-canon-cams-with-gratuitous-and-fee-based-luts/"><u>[New] 2024 Approved Unlock Full Potential of Canon Cams with Gratuitous & Fee-Based LUTs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-capturing-motion-in-4k-with-nikon-d500/"><u>[New] Capturing Motion in 4K with Nikon D500</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-improve-office-productivity-with-speech-to-text-conversion-in-microsoft-word-for-2024/"><u>[New] Improve Office Productivity with Speech to Text Conversion in Microsoft Word for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-guide-to-secure-and-cost-free-youtube-music-extraction/"><u>[New] In 2024, Guide to Secure and Cost-Free YouTube Music Extraction</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-essential-guide-to-tracking-igtv-viewership-metrics-for-2024/"><u>[New] The Essential Guide to Tracking IGTV Viewership Metrics for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-full-disclosure-insights-into-the-google-podcast-app/"><u>[Updated] 2024 Approved Full Disclosure Insights Into the Google Podcast App</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-building-mental-armor-against-online-critics/"><u>[Updated] Building Mental Armor Against Online Critics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-how-to-choose-between-portable-and-plugged-in-vr-headsets-picking-between-wireless-mobile-or-connected-tethered-for-2024/"><u>[Updated] How to Choose Between Portable and Plugged-In VR Headsets Picking Between Wireless (Mobile) or Connected (Tethered) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-detailed-explanation-of-youtubes-operation-after-a-video-goes-live/"><u>[Updated] In 2024, Detailed Explanation of YouTube's Operation After a Video Goes Live</u></a></li>
+<li><a href="https://win-guides.techidaily.com/1-step-by-step-guide-capturing-tv-shows-and-movies-as-mp4-files-on-macwindows/"><u>1. Step-by-Step Guide: Capturing TV Shows & Movies as MP4 Files on Mac/Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-your-sketches-essential-free-drawing-software-on-mac/"><u>Elevate Your Sketches - Essential Free Drawing Software on Mac</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-rotate-your-avi-videos-with-ease-5-best-free-tools/"><u>New 2024 Approved Rotate Your AVI Videos with Ease 5 Best Free Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-vivo-y200e-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Vivo Y200e 5G Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unveiling-the-hidden-gem-best-free-text-to-speech-macapps-for-2024/"><u>Unveiling the Hidden Gem Best Free Text to Speech macApps for 2024</u></a></li>
 </ul></div>
 

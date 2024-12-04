@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Professional Take  The Syma X5C – Ideal First-Timer's Droning Companion\""
-date: 2024-08-15T07:09:46.859Z
-updated: 2024-08-16T07:09:46.859Z
+date: 2024-12-02T00:05:22.466Z
+updated: 2024-12-03T19:33:18.027Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
 
 **You may also like:** [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of Syma X5C
 
 **Pros:**
@@ -61,9 +65,9 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -94,8 +98,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 #### 5. Control Range
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
@@ -103,22 +108,21 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -144,4 +148,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-discover-7-unforgettable-marriage-videos-on-vimeo/"><u>[New] In 2024, Discover 7 Unforgettable Marriage Videos on Vimeo</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-polar-prowess-highlighting-the-elite-of-snowboard-cross-winter-games-for-2024/"><u>[New] Polar Prowess Highlighting the Elite of Snowboard Cross, Winter Games for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-selecting-peak-frame-rate-for-exceptional-slow-motion-video/"><u>[New] Selecting Peak Frame Rate for Exceptional Slow Motion Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-premium-editing-enhance-iphone-hdr-with-these-four-master-techniques-in-adobe/"><u>[Updated] [Premium Editing] Enhance iPhone HDR with These Four Master Techniques in Adobe</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-tempo-treasure-hunters-dive-into-free-online-scanners/"><u>[Updated] 2024 Approved Tempo Treasure Hunters Dive Into FREE Online Scanners</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-getting-your-vlogging-started-key-items-and-software/"><u>[Updated] Getting Your Vlogging Started Key Items & Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-beginners-guide-to-easy-multi-snap-chat-videos-and-edits/"><u>[Updated] In 2024, The Beginner's Guide to Easy Multi-Snap Chat Videos & Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-nextgen-hexacopters-the-definitive-ten/"><u>[Updated] NextGen Hexacopters The Definitive Ten</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-huawei-p60-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Huawei P60 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comprehensive-examination-for-straightforward-hdr-for-2024/"><u>Comprehensive Examination for Straightforward HDR for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/decoding-periscope-its-features-pricing-and-registration-guide/"><u>Decoding Periscope Its Features, Pricing & Registration Guide</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/error-code-36-reclaim-space-in-trash/"><u>Error Code 36: Reclaim Space in Trash</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Oppo Reno 11 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-your-youtube-presence-with-strategic-post-publish-video-updates/"><u>In 2024, Elevating Your YouTube Presence with Strategic Post-Publish Video Updates</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/intelligent-mobile-browsing-with-bing-elevate-your-android-and-ios-experience-through-ai-innovation/"><u>Intelligent Mobile Browsing with Bing - Elevate Your Android and iOS Experience Through AI Innovation!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/rapid-photo-reader-for-windows-users/"><u>Rapid Photo Reader for Windows Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Vivo X Fold 2? | Dr.fone</u></a></li>
+</ul></div>
 

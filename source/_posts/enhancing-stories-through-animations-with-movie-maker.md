@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Stories Through Animations with Movie Maker"
-date: 2024-08-15T07:09:40.439Z
-updated: 2024-08-16T07:09:40.439Z
+date: 2024-11-29T17:12:12.987Z
+updated: 2024-12-04T00:31:33.930Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** You have the option to upload one file at a time or many files simultaneously.
 
 ##### Step2Go to Edit Menu
@@ -41,6 +45,10 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 If you wish to clip off a section, go to "Edit" under "Video Tools" and choose the "Split" option. Depending on where you place the cursor during the section, the software will divide it into two halves. If you want to remove certain snippets, just touch the clip to reveal the context menu and choose "Remove" or "Delete" from the keyboard.
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3Open the Animation Tab
 
@@ -53,6 +61,10 @@ You may add two distinct types of animations—Transitions and Pan and Zoom—to
 Between two multimedia portions, a transition effect may be added. In the "Animations" section, there are many different transitions available, including dissolves, patterns, and forms. The transition will be included at the start of the chosen medium. You may alter the effect's duration by writing or choosing a new time frame from the dropdown menu next to "Duration."
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step5Save the Video
 
@@ -87,8 +99,9 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -108,36 +121,24 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 If you wish to clip off a section, go to "Edit" under "Video Tools" and choose the "Split" option. Depending on where you place the cursor during the section, the software will divide it into two halves. If you want to remove certain snippets, just touch the clip to reveal the context menu and choose "Remove" or "Delete" from the keyboard.
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ##### Step4Add Transitions
 
 Between two multimedia portions, a transition effect may be added. In the "Animations" section, there are many different transitions available, including dissolves, patterns, and forms. The transition will be included at the start of the chosen medium. You may alter the effect's duration by writing or choosing a new time frame from the dropdown menu next to "Duration."
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -166,8 +167,9 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -204,4 +206,23 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-stitching-photographs-into-an-eye-catching-canvas/"><u>[New] 2024 Approved Stitching Photographs Into an Eye-Catching Canvas</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-detailed-tutorial-implementing-custom-lut-filters-in-obs-productions/"><u>[New] Detailed Tutorial Implementing Custom LUT Filters in OBS Productions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-difference-between-srgb-and-rgb/"><u>[New] In 2024, The Difference Between Srgb & Rgb</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-master-the-art-of-cinematic-vibrance-top-11-post-production-insights-for-2024/"><u>[New] Master the Art of Cinematic Vibrance Top 11 Post-Production Insights for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-natures-set-pieces-a-collection-of-easy-to-download-templates-for-pros-and-beginners/"><u>[New] Nature's Set Pieces A Collection of Easy-to-Download Templates for Pros & Beginners</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-foundations-of-virtual-reality-speak/"><u>[Updated] 2024 Approved Foundations of Virtual Reality Speak</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-high-definition-excellence-selecting-the-top-youtube-converters/"><u>[Updated] 2024 Approved High Definition Excellence Selecting the Top YouTube Converters</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-artistry-behind-capturing-evening-light-and-people-for-2024/"><u>[Updated] The Artistry Behind Capturing Evening Light and People for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-powered-productivity-6-essential-chatgpt-tools-for-remote-jobs/"><u>AI-Powered Productivity: 6 Essential ChatGPT Tools for Remote Jobs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-share-on-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>How to Screen Share on Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-s23-tactical-edition-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy S23 Tactical Edition to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-redmi-k70-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi Redmi K70 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-ten-skype-capture-devices-reviewed/"><u>In 2024, Top Ten Skype Capture Devices Reviewed</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/master-your-pcs-energy-consumption-with-yl-software-a-comprehensive-tutorial-on-tweaking-control-panel-settings/"><u>Master Your PC's Energy Consumption with YL Software: A Comprehensive Tutorial on Tweaking Control Panel Settings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/sonic-sharing-adding-music-to-your-whatsapp-status-for-2024/"><u>Sonic Sharing Adding Music to Your WhatsApp Status for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-comparison-best-microphones-for-podcasters/"><u>The Ultimate Comparison Best Microphones for Podcasters</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Capturing Movie Scenes as Single Image Snapshots (Windows 10)"
-date: 2024-08-15T07:09:58.787Z
-updated: 2024-08-16T07:09:58.787Z
+date: 2024-11-26T20:49:29.085Z
+updated: 2024-12-03T21:52:11.079Z
 tags: 
   - screen-recording
   - ai video
@@ -59,8 +59,9 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -68,18 +69,20 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -92,24 +95,23 @@ Here comes the guide –
 * See your mouse cursor appear like a blue crosshair. Hold down the mouse and drag to select the parts of the video you wish to shoot. While moving the mouse, you can see that the application window is covered with a blue border. You can capture the window by clicking there.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,4 +136,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-creating-chuckles-with-gifs-a-meme-masterclass/"><u>[New] 2024 Approved Creating Chuckles with GIFs A Meme Masterclass</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-best-practices-in-choosing-tiktok-wallpapers/"><u>[New] Best Practices in Choosing TikTok Wallpapers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-elite-quad-pack-of-superior-4k-video-gear/"><u>[New] Elite Quad Pack of Superior 4K Video Gear</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fusion-of-video-files-for-ios-devices/"><u>[New] Fusion of Video Files for iOS Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-generate-laughter-kapwings-meme-creator-for-2024/"><u>[New] Generate Laughter Kapwing's Meme Creator for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-commanders-canvas-painting-victory-in-the-top-7-total-wars/"><u>[New] In 2024, Commanders' Canvas Painting Victory in the Top 7 Total Wars</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leveraging-free-luts-a-pathway-to-improved-obs-streaming/"><u>[New] Leveraging Free LUTs A Pathway to Improved OBS Streaming</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-secure-and-quality-the-best-5-conference-recorders-online/"><u>[New] Secure & Quality The Best 5 Conference Recorders Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dive-into-the-most-effective-online-tools-your-guide-to-perfect-captions/"><u>[Updated] In 2024, Dive Into the Most Effective Online Tools Your Guide to Perfect Captions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-essential-guide-to-asmr-for-sleep-enthusiasts/"><u>[Updated] The Essential Guide to ASMR for Sleep Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-wordsmith-whispers-picks-for-the-best-transcription-programs-for-2024/"><u>[Updated] Wordsmith Whispers Picks for the Best Transcription Programs for 2024</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/enhance-your-site-with-cookiebots-ai-powered-behavioral-tracking-and-tailoring-techniques/"><u>Enhance Your Site with Cookiebot's AI-Powered Behavioral Tracking & Tailoring Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-f34-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy F34 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-break-free-from-small-viewing-mastering-facebooks-full-screen-function/"><u>In 2024, Break Free From Small Viewing Mastering Facebook's Full-Screen Function</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-screenstreamer-pro-cutting-edge-review-for-march-2023/"><u>In 2024, ScreenStreamer Pro Cutting-Edge Review for March 2023</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/leading-heavy-duty-uavs-for-maximum-carry-capacity/"><u>Leading Heavy-Duty UAVs for Maximum Carry Capacity</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-list-of-why-chatgpt-became-an-instant-hit-in-the-tech-world/"><u>The Ultimate List of Why ChatGPT Became an Instant Hit in the Tech World</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/ultimate-device-compatible-backup-solutions-top-clone-and-recovery-programs-for-all-users/"><u>Ultimate Device-Compatible Backup Solutions: Top Clone & Recovery Programs for All Users</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best 5 Quick Filming DIY Hacks to Try at Home"
-date: 2024-11-20T16:43:21.666Z
-updated: 2024-11-24T17:27:00.079Z
+date: 2024-12-02T01:27:16.677Z
+updated: 2024-12-04T01:26:35.340Z
 tags: 
   - screen-recording
   - ai video
@@ -31,19 +31,11 @@ When we set up the light near the subject, the light might be leaked onto the ba
 
 On film sets and studios, the professionals use flags to absorb and make shapes of light. A flag is a thick black fabric that does not reflect light. To make your flag at home, you can try cardboard and a black t-shirt.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. A Cardboard
 
 You can buy it from a nearby stationery store. Ensure the cardboard is not too big to fit the t-shirt around the board.
 
 ![cardboard used for diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. A Black T-shirt
 
@@ -55,11 +47,11 @@ After managing all the required things, you must wrap and secure the t-shirt aro
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
 
-With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
 
 ### Final Results for the Flag Light Shaping
 
@@ -68,7 +60,7 @@ After filming the video, see the precise results before using the flag, when the
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
@@ -77,6 +69,10 @@ The black wrap is used in professional studios and set up to block and shape lig
 
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. A Light Bulb
 
 You can take any LED bulb present at our home. Ensure that the bulb size is manageable to avoid any issues handling it.
@@ -84,7 +80,7 @@ You can take any LED bulb present at our home. Ensure that the bulb size is mana
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Foil Paper
@@ -94,7 +90,7 @@ The foil paper used to cover the lightbulb should be aluminum because foils usua
 ![foil paper used in the black wrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, all the tools are ready and waiting for further processing. For this, follow the processing step to make it work. To proceed further, you have to follow the below step-by-step process as shown:
@@ -106,7 +102,7 @@ Step2 Then, you need to install the bulb on the lamp.
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** During wrapping, you don't have to allow the foil to touch the bottom part of the bulb.
@@ -126,6 +122,10 @@ You can observe that the light is only at the required place, with no dispersion
 ![results after using cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-8.png)
 
 After experimenting with light shaping and blocking hacks, we will move toward the light reflector hack!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Hack. DIY Light Reflector
 
@@ -154,18 +154,19 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-economical-cloud-lofting-efficient-storage-at-minimal-price/"><u>[New] 2024 Approved Economical Cloud Lofting Efficient Storage at Minimal Price</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-mastering-live-streaming-for-peak-engagement/"><u>[Updated] 2024 Approved Mastering Live Streaming for Peak Engagement</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-spectrum-signatures-filmmakers-guide-to-adjustment/"><u>[Updated] Spectrum Signatures Filmmaker's Guide to Adjustment</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-quick-route-to-joy-embracing-the-ifunny-meme-app/"><u>[Updated] The Quick Route to Joy Embracing the iFunny Meme App</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/adjusting-windows-sign-in-restrictions-after-errors/"><u>Adjusting Windows Sign In Restrictions After Errors</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/pair-audio-with-video-webspace-hub/"><u>Pair Audio with Video Webspace Hub</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-error-0x80041015-in-ms-word-and-excel/"><u>Quick Fixes for Error 0X80041015 in MS Word & Excel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/streamlining-revenue-adsense-tips-for-youtubers-for-2024/"><u>Streamlining Revenue AdSense Tips for YouTubers for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/ultimate-choice-top-tier-webcam-mounts-and-grips/"><u>Ultimate Choice Top-Tier Webcam Mounts & Grips</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-s17-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/online-nef/"><u>무료 Online NEF 파일 바이트 대비터 매김: 모바리</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-elevating-your-tiktok-unboxing-video-popularity-a-guide/"><u>[New] 2024 Approved Elevating Your TikTok Unboxing Video Popularity A Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-narrative-power-in-marketing-20-must-use-phrases/"><u>[New] 2024 Approved Narrative Power in Marketing 20 Must-Use Phrases</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-yt-shorts-soundtrack-hits-top-10-trending-sounds/"><u>[New] 2024 Approved YT Shorts Soundtrack Hits Top 10 Trending Sounds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-of-breed-premium-4k-camera-mounts-for-pros-for-2024/"><u>[New] Best of Breed Premium 4K Camera Mounts for Pros for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-audio-interface-guide-for-podcasters/"><u>[New] Essential Audio Interface Guide for Podcasters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-impressive-display-innovations-top-10-mac-displays-of-the-year/"><u>[New] Impressive Display Innovations - Top 10 Mac Displays of the Year</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-sound-step-down-strategy-a-pro-guide-to-fading-audio-for-2024/"><u>[New] Sound Step-Down Strategy A Pro Guide to Fading Audio for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-zero-to-hero-with-photoshop-basics-in-snapseed/"><u>[Updated] 2024 Approved From Zero to Hero with Photoshop Basics in Snapseed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-how-to-use-gopro-hero5-black-tips-for-shooting-great-photos-and-video/"><u>[Updated] 2024 Approved How to Use GoPro Hero5 Black Tips for Shooting Great Photos and Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-an-in-depth-look-at-basic-and-simplified-hdr-photography/"><u>[Updated] An In-Depth Look at Basic and Simplified HDR Photography</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-shrouded-screen-images-techniques-for-redacting-info-for-2024/"><u>[Updated] Shrouded Screen Images Techniques for Redacting Info for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-tecno-spark-go-2023-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Tecno Spark Go (2023) Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-silence-the-rhythm-an-expert-approach-to-drum-free-song-editing-online/"><u>New In 2024, Silence the Rhythm An Expert Approach to Drum-Free Song Editing Online</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/unveiling-key-distinctions-a-comparison-of-containers-and-vms/"><u>Unveiling Key Distinctions: A Comparison of Containers and VMs</u></a></li>
 </ul></div>
 

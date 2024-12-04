@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Rapid Windows Revision Techniques Explored for 2024"
-date: 2024-11-18T21:42:11.714Z
-updated: 2024-11-24T16:05:05.469Z
+date: 2024-12-01T00:50:55.477Z
+updated: 2024-12-03T20:36:37.788Z
 tags: 
   - screen-recording
   - ai video
@@ -26,7 +26,7 @@ Windows operating system comes with an inbuilt file preview feature embedded in 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Download Quick Look App on Microsoft Store
@@ -42,7 +42,7 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
@@ -51,14 +51,10 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -75,9 +71,17 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
@@ -90,10 +94,6 @@ Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years
 Meanwhile, it’s expected that QuickLook will come with a small preview screen. However, that should be enough space to preview whatever file you’re searching for. Also, it’s expected that Windows will embed the QuickLook capabilities into the Photos app. But it’s not yet clear if Peek will work with media files like videos and audio as it is on Mac.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
 
@@ -143,21 +143,18 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pixels-of-peaceful-tales-video-critique/"><u>[New] In 2024, Pixels of Peaceful Tales Video Critique</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-analyzing-the-impact-of-burst-on-live-action-shoots/"><u>[Updated] 2024 Approved Analyzing the Impact of Burst on Live-Action Shoots</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-slipping-into-the-social-scene-of-online-tiktok-gigs/"><u>[Updated] 2024 Approved Slipping Into the Social Scene of Online TikTok Gigs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-artisans-nexus-reports-in-depth-studio-scrutiny-2023-edition-for-2024/"><u>[Updated] Artisan's Nexus Reports In-Depth Studio Scrutiny, 2023 Edition for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-crafting-softer-beats-with-ableton-for-2024/"><u>[Updated] Crafting Softer Beats with Ableton for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevating-movie-visuals-applying-cg-centrals-luts-techniques/"><u>[Updated] Elevating Movie Visuals Applying CG Central's Luts Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-liminal-film-narrative-plan-for-2024/"><u>[Updated] Liminal Film Narrative Plan for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-make-a-video-from-photo-with-music/"><u>[Updated] Make a Video From Photo with Music</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamless-social-media-video-extraction-2023-app/"><u>2024 Approved Seamless Social Media Video Extraction - 2023 App</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-transform-your-workflow-harnessing-the-power-of-luts-in-adobe-suite/"><u>2024 Approved Transform Your Workflow Harnessing the Power of LUTs in Adobe Suite</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-effective-privacy-rules-for-youth-on-facebook/"><u>Implementing Effective Privacy Rules for Youth on Facebook</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-advanced-camera-control-for-iphone-users/"><u>In 2024, Advanced Camera Control for iPhone Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-elite-entrance-selections-in-panzoids/"><u>In 2024, Elite Entrance Selections in Panzoids</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-facebook-efficiency-5-key-techniques-for-busy-users/"><u>Mastering Facebook Efficiency: 5 Key Techniques for Busy Users</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y100i-power-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y100i Power 5G FRP Bypass</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-which-is-the-better-gopro-for-pro-video-max-or-hero-11/"><u>[New] 2024 Approved Which Is The Better GoPro for Pro Video? Max or Hero 11</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-accelerate-creativity-pro-level-lunapic-techniques-unveiled/"><u>[Updated] Accelerate Creativity Pro-Level LunaPic Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cost-effective-recording-devices-the-ultimate-list/"><u>[Updated] Cost-Effective Recording Devices The Ultimate List</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-futures-best-cameras-in-visual-storytelling-2024-edition/"><u>[Updated] Future's Best Cameras in Visual Storytelling, 2024 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-in-depth-zoom-guidance-for-virtual-team-spaces-in-msteams/"><u>[Updated] In 2024, In-Depth Zoom Guidance for Virtual Team Spaces in MSTEAMS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-tranquility-trove-pcs-best-bets-for-2024/"><u>[Updated] Tranquility Trove PC's Best Bets for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-editorxperience-deep-dive-complete-look-at-androvids-features/"><u>In 2024, EditorXperience Deep Dive – Complete Look at AndroVid's Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-perfecting-your-srt-craft-a-compreran-guide-to-tips-and-tricks/"><u>In 2024, Perfecting Your SRT Craft A Compreran Guide to Tips & Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-sync-your-device-pace-youtube-audio-control-guide/"><u>In 2024, Sync Your Device Pace YouTube Audio Control Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-understanding-camera-shake-in-photographyvideo/"><u>In 2024, Understanding Camera Shake in Photography/Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/live-action-anytime-anywhere-our-ultimate-12-stream-service-for-2024/"><u>Live Action Anytime, Anywhere - Our Ultimate 12-Stream Service for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-action-cam-editing-picks-for-2024/"><u>Ultimate Action Cam Editing Picks for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-motorola-moto-g84-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Motorola Moto G84 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  10 Tips to Prevent Oculus Rift VR Motion Sickness\""
-date: 2024-08-15T07:09:31.926Z
-updated: 2024-08-16T07:09:31.926Z
+date: 2024-11-29T23:18:24.469Z
+updated: 2024-12-03T22:36:37.195Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -51,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -60,8 +65,9 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -87,4 +93,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-prime-selections-of-maximum-digital-safekeeping/"><u>[New] Prime Selections of Maximum Digital Safekeeping</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-accurate-ranking-of-top-free-subtitle-makers-srt-online/"><u>[Updated] 2024 Approved Accurate Ranking of Top Free Subtitle Makers (Srt) Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-immersive-horizon-the-rise-of-virtual-reality/"><u>[Updated] 2024 Approved Immersive Horizon The Rise of Virtual Reality</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-canva-expertise-10-sneak-peek-tips-for-photo-editors/"><u>[Updated] In 2024, Canva Expertise 10 Sneak Peek Tips for Photo Editors</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-sequel-of-seconds-measuring-20mb-footage/"><u>[Updated] Sequel of Seconds Measuring 20MB Footage</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-subtlety-in-chords-pc-and-mac-music-settings-for-2024/"><u>[Updated] Subtlety in Chords PC & Mac Music Settings for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-preventing-disorientation-in-virtual-environments/"><u>2024 Approved Preventing Disorientation in Virtual Environments</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/accelerer-le-travail-les-avantages-du-formatage-rapide-par-rapport-au-formatage-lent-guide-pour-lutilisateur-final/"><u>Accélérer Le Travail : Les Avantages Du Formatage Rapide Par Rapport Au Formatage Lent - Guide Pour L'utilisateur Final</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ver-top-platforms-for-youtube-brand-partnerships/"><u>Discover Top Platforms for YouTube Brand Partnerships</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Pro Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-redefining-virtual-adventure-with-jaunt-vr/"><u>In 2024, Redefining Virtual Adventure with Jaunt VR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/integrating-zoom-and-fb-live-effortlessly-for-2024/"><u>Integrating ZOOM and FB Live Effortlessly for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-cross-service-playlist-migration-step-by-step-guide-for-2024/"><u>Mastering Cross-Service Playlist Migration Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/no-fuss-guide-to-recording-virtual-classes-on-windowsmacos/"><u>No-Fuss Guide to Recording Virtual Classes on Windows/macOS</u></a></li>
+<li><a href="https://fox-making.techidaily.com/toplogiciels-de-sauvegarde-gratuit-qui-nenregistrent-que-les-changements-recents-comparatif/"><u>Toplogiciels De Sauvegarde Gratuit Qui N'enregistrent Que Les Changements Récents : Comparatif</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlock-android-games-efficient-button-mapping-techniques/"><u>Unlock Android Games: Efficient Button Mapping Techniques</u></a></li>
+</ul></div>
 

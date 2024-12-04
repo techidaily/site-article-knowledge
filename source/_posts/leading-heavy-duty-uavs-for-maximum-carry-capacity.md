@@ -1,7 +1,7 @@
 ---
 title: "\"Leading Heavy-Duty UAVs for Maximum Carry Capacity\""
-date: 2024-11-23T16:29:51.451Z
-updated: 2024-11-24T21:16:19.611Z
+date: 2024-12-02T23:40:02.447Z
+updated: 2024-12-03T20:28:17.939Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ With this rising need of consumers needing more than just a [flying camera](http
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Heavy lift drones
 
 Here are the best heavy lifting drones available in 2020, broken into over-10 kg and under-10 kg payloads.
@@ -55,15 +59,15 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
@@ -100,7 +104,7 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Heavy lifting Drones: Over-10kg payload
@@ -115,15 +119,15 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -140,7 +144,7 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
@@ -148,10 +152,6 @@ The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads w
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -178,15 +178,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-crafting-soft-declines-in-volume-using-audacity/"><u>[New] 2024 Approved Crafting Soft Declines in Volume Using Audacity</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-like-a-pro-with-telegram-web/"><u>[New] 2024 Approved Navigating Like a Pro with Telegram Web</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-big-sur-tech-requirements-a-quick-reference-guide/"><u>[Updated] In 2024, Big Sur Tech Requirements A Quick Reference Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-laughter-lines-timely-meme-trends-to-share/"><u>[Updated] In 2024, Laughter Lines Timely Meme Trends to Share</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-ultimate-guide-faster-periscope-streams/"><u>[Updated] In 2024, The Ultimate Guide Faster Periscope Streams</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlock-creative-communication-get-free-voice-effects-today/"><u>[Updated] In 2024, Unlock Creative Communication - Get FREE Voice Effects Today</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-expert-picks-for-best-timelapse-tools/"><u>2024 Approved Expert Picks for Best Timelapse Tools</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-8-ultimate-apps-for-seamless-trip-itinerary-management/"><u>Discover the 8 Ultimate Apps for Seamless Trip Itinerary Management</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-sharing-violation-error-when-saving-excel-by-stellar-guide/"><u>How to Fix Sharing Violation Error when Saving Excel?</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rx-570-graphics-upgrade-new-windows-11710-drivers-downloading/"><u>RX 570 Graphics Upgrade: New Windows 11/7/10 Drivers Downloading</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-eliminating-oculus-sickness-key-tactics/"><u>[New] 2024 Approved Eliminating Oculus Sickness Key Tactics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>[New] Navigating KineMaster Wisely Skills and Top-Ranked Digital Counterparts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-real-reviews-real-results-in-branding-for-2024/"><u>[New] Real Reviews, Real Results in Branding for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-straightforward-storyline-outline/"><u>[New] Straightforward Storyline Outline</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-to-boost-periscope-live-video-speed/"><u>[New] Techniques to Boost Periscope Live Video Speed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-best-websites-for-digital-gold-and-silver-text-effects/"><u>[Updated] In 2024, Best Websites for Digital Gold and Silver Text Effects</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-captivate-with-voice-intros-that-intrigue/"><u>[Updated] In 2024, Captivate with Voice Intros That Intrigue</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-fading-audio-tips-for-better-mixes-in-ableton/"><u>[Updated] In 2024, Fading Audio Tips for Better Mixes in Ableton</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-auditory-explorers-manual-crafting-unique-sounds-and-ringtones-for-android-users/"><u>[Updated] In 2024, The Auditory Explorer's Manual Crafting Unique Sounds & Ringtones for Android Users</u></a></li>
+<li><a href="https://article-helps.techidaily.com/basic-story-blueprint/"><u>Basic Story Blueprint</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-a-lagging-phone-connection-understanding-7-wi-fi-woes/"><u>How to Fix a Lagging Phone Connection: Understanding 7 Wi-Fi Woes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-before-you-fly-drone-purchase-tips-and-considerations/"><u>In 2024, Before You Fly Drone Purchase Tips and Considerations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-comprehensive-guide-to-platform-choice-and-management/"><u>In 2024, Comprehensive Guide to Platform Choice and Management</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-watchlist-best-apps-for-real-time-track-and-field-events/"><u>In 2024, Ultimate Watchlist Best Apps for Real-Time Track & Field Events</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unleash-video-magic-the-best-camcorders-to-try/"><u>In 2024, Unleash Video Magic – The Best Camcorders to Try</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-utilizing-top-users-to-increase-visibility/"><u>In 2024, Utilizing Top Users to Increase Visibility</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/review-magix-editing-suite/"><u>Review MAGIX Editing Suite</u></a></li>
 </ul></div>
 

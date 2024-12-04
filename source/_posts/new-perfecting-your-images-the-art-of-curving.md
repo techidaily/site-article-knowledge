@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfecting Your Images  The Art of Curving\""
-date: 2024-11-21T21:40:38.554Z
-updated: 2024-11-24T16:18:55.261Z
+date: 2024-12-01T19:25:30.760Z
+updated: 2024-12-04T00:06:44.906Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -49,23 +49,19 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
@@ -75,12 +71,16 @@ The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4Save the Image
@@ -90,7 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,20 +127,20 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-delete-comments-from-youtube-with-minimal-hassle/"><u>[New] 2024 Approved How to Delete Comments From YouTube with Minimal Hassle</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-a-complete-guide-to-premiere-pro-full-scene-preview/"><u>[New] A Complete Guide to Premiere Pro Full Scene Preview</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-dji-mini-and-air-2-mixing-made-easy-with-20-free-luts/"><u>[New] DJI Mini & Air 2 Mixing Made Easy with 20 Free LUTS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-smartphone-accessories-for-making-videos/"><u>[Updated] 2024 Approved Smartphone Accessories for Making Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-advanced-lighting-strategies-for-superior-iphone-photos-for-2024/"><u>[Updated] Advanced Lighting Strategies for Superior iPhone Photos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastering-your-photos-a-comprehensive-guide-to-facetune/"><u>[Updated] Mastering Your Photos A Comprehensive Guide to Facetune</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-in-class-android-storage-in-the-cloud-for-2024/"><u>Best-in-Class Android Storage in the Cloud for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-motorola-moto-g34-5g-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Motorola Moto G34 5G has native HEVC support?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-latest-realtek-sound-card-drivers-compatible-with-windows-11-10-and-7/"><u>Get the Latest Realtek Sound Card Drivers Compatible with Windows 11, 10 & 7</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-v29-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo V29 Pro without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-expand-your-creative-toolkit-incorporating-custom-fonts-into-after-effects/"><u>In 2024, Expand Your Creative Toolkit Incorporating Custom Fonts Into After Effects</u></a></li>
-<li><a href="https://games-able.techidaily.com/palworld-simplified-for-everyone/"><u>PalWorld Simplified for Everyone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/pro-photo-framegers-to-polish-pictures-online/"><u>Pro Photo Framegers to Polish Pictures Online</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/shooting-the-best-sports-moments-iphone-burst-mode/"><u>Shooting the Best Sports Moments IPhone Burst Mode</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/top-free-software-para-copiar-hd-em-ssds-compativeis-com-win11-8-ou-7/"><u>Top Free Software Para Copiar HD Em SSDs Compatíveis Com Win11, 8 Ou 7</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-enhancing-visual-storytelling-with-well-chosen-b-roll/"><u>[New] 2024 Approved Enhancing Visual Storytelling with Well-Chosen B-Roll</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-10-tools-revolutionizing-the-art-of-virtual-performer-sound-design/"><u>[New] 2024 Approved Top 10 Tools Revolutionizing the Art of Virtual Performer Sound Design</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-audacity-techniques-for-smooth-sound-blending-for-2024/"><u>[New] Audacity Techniques for Smooth Sound Blending for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-knowledge-for-effective-screensaver-use-in-mobile-applications/"><u>[New] Essential Knowledge for Effective Screensaver Use in Mobile Applications</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>[New] In 2024, Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-dive-into-dynamic-footage-the-review-of-polaroid-cubeplus/"><u>[New] In 2024, Dive Into Dynamic Footage The Review of Polaroid Cube+</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-essential-streamers-guide-top-10-sports-apps-for-real-time-action/"><u>[New] In 2024, Essential Streamers' Guide Top 10 Sports Apps for Real-Time Action</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-20-mobiles-perfecting-dji-visual-content/"><u>[New] In 2024, Top 20 Mobiles Perfecting DJi Visual Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-transform-your-photos-using-adobes-power/"><u>[New] In 2024, Transform Your Photos Using Adobe's Power</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-master-list-of-best-mp4-players/"><u>[Updated] 2024 Approved Master List of Best MP4 Players</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-drone-propellers-selecting-prime-quadcopter-engines/"><u>[Updated] Top Drone Propellers Selecting Prime Quadcopter Engines</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/asus-proart-pa32u-4k-hdr-professional-monitor-review-for-2024/"><u>ASUS ProArt PA32U 4K HDR Professional Monitor Review for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-realme-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Realme Through Google Earth?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-to-resolve-constant-crashes-in-guilty-gear-strive-on-windows/"><u>Troubleshooting Steps to Resolve Constant Crashes in Guilty Gear Strive on Windows</u></a></li>
 </ul></div>
 

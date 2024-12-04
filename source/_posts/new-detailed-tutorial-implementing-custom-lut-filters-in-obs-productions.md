@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Detailed Tutorial  Implementing Custom LUT Filters in OBS Productions\""
-date: 2024-11-19T17:39:10.078Z
-updated: 2024-11-24T22:03:59.595Z
+date: 2024-11-29T17:47:59.147Z
+updated: 2024-12-03T22:47:41.453Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,13 @@ LUTs aid in pleasing the client, completing the job on time, and achieving magni
 
 However, you still want to provide a good project; color grading might take a long time to go through all of the clips and make them appear beautiful, and you may not have the time. Here, LUTs can definitely help.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. It provides a polished finish
 
 Lookup tables might save you time when editing, but for many creative filmmakers and editors, LUTs are a way of polishing the final appearance of a film. When color grading is poorly done, it can impair the aesthetic of a movie and distract the audience. The beautiful thing about LUTs is that most of them on the market are created by other videographers, so you know they'll work on your movies right out of the box; all you have to do is make little tweaks to match the vision you have in your brain. If you've never used LUTs before but want to take your short films to an extraordinary level, try cinematic LUTs, which will give you that blockbuster vibe on a budget.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. A command to adaptability
 
@@ -74,12 +74,16 @@ For more easy-to-use effects and filters to make your video cinematic, have a tr
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora 3d lut](https://images.wondershare.com/filmora/features/3d-lut-banner.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use LUTs in OBS Studio
 
@@ -96,6 +100,10 @@ How to use LUTs in Lumafuison
 1. Go to Effect Filters. Then click "+" located on the bottom left, click apply LUT, then give your LUT a name in the Filters panel.
 
 ![how to use obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Add Luts to OBS
 
@@ -121,10 +129,6 @@ This package contains 76 ready-to-use LUT filter files for OBS. Use these filter
 
 ![free obs luts - OBS Forums ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 OBS forums
 
 ### 3\. [Video Mark free LUTs](https://videomark.net/obs-studio-cinematic-lut-pack-free-download/)
@@ -133,14 +137,10 @@ You'll get 18 cinematic LUTs with this Video Mark package. This filter set focus
 
 ![free obs luts - Video Mark](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Video Mark
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. [Rocket stock free LUTs](https://www.rocketstock.com/free-after-effects-templates/35-free-luts-for-color-grading-videos/)
@@ -157,10 +157,6 @@ Then there's Christian Mate Grab's LUT. It's only a single LUT filter with an or
 
 ![free obs luts - Christian Mate Grab](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-7.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Christian Mate Grab
 
 Closing Thoughts:
@@ -174,10 +170,6 @@ As a result, adding professionalism to your talents is now even easier and more 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -205,6 +197,10 @@ Add Luts to OBS
 2. You can then modify the quantity slider to choose how powerful you want your LUT to be.
 3. You've just finished installing a LUT on your webcam. If you use the right LUT, you can radically transform the tone of your stream.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Free LUTs resource for OBS studio
 
 Many of the greatest free LUTs may now be found freely on the internet. So, we did some digging and came up with the top list of the top free LUTs that every filmmaker and colorist should have. You'll probably find what you're looking for here, whether it's strong, dramatic LUTs or stylish, vintage LUTs.
@@ -214,6 +210,10 @@ Many of the greatest free LUTs may now be found freely on the internet. So, we d
 Gaming Careers has created a LUT package that includes 30 free webcam filters that you may use on your webcam footage. It's a little bothersome that you have to join an email list to get the bundle, but it's well worth it. Each LUT is well-made and suitable for various situations and live feeds.
 
 ![free obs luts - Gaming careers ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Gaming careers
 
@@ -225,6 +225,10 @@ This package contains 76 ready-to-use LUT filter files for OBS. Use these filter
 
 OBS forums
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. [Video Mark free LUTs](https://videomark.net/obs-studio-cinematic-lut-pack-free-download/)
 
 You'll get 18 cinematic LUTs with this Video Mark package. This filter set focuses more on a film effect. We suggest watching the accompanying demo film, which walks you through some of the LUTs included in this package and how to use them. Because this is an older video, it will use an older version of OBS, but the method should be the same.
@@ -234,7 +238,7 @@ You'll get 18 cinematic LUTs with this Video Mark package. This filter set focus
 Video Mark
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. [Rocket stock free LUTs](https://www.rocketstock.com/free-after-effects-templates/35-free-luts-for-color-grading-videos/)
@@ -243,14 +247,10 @@ For your next video production, you can get 35 FREE LUTs. Add one of these retro
 
 ![free obs luts - Rocket stock ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Rocket stock
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Christian Mate Grab free LUT
@@ -291,22 +291,20 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enhancing-follows-into-genuine-subscriptions/"><u>[New] 2024 Approved Enhancing Follows Into Genuine Subscriptions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-seamless-integration-combining-b-roll-and-main-scenes/"><u>[New] 2024 Approved Seamless Integration Combining B-Roll and Main Scenes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-blades-kaleidoscope-unleashed-through-4k-lens-clarity-for-2024/"><u>[New] Blade's Kaleidoscope Unleashed Through 4K Lens Clarity for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-efficiently-enhance-iphone-videos-dimensions-in-focus/"><u>[New] In 2024, Efficiently Enhance iPhone Videos Dimensions in Focus</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-successful-youtube-collaborations-step-by-step/"><u>[Updated] 2024 Approved Building Successful YouTube Collaborations Step by Step</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-discover-the-best-8-innovative-5k-panels/"><u>[Updated] 2024 Approved Discover the Best 8 Innovative 5K Panels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-banishing-black-edges-on-your-youtube-video/"><u>[Updated] Banishing Black Edges on Your YouTube Video</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-clearer-captures-await-with-next-gen-tracker-tech/"><u>[Updated] Clearer Captures Await with Next-Gen Tracker Tech</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-dive-into-this-collection-of-14-text-animation-marvels/"><u>[Updated] Dive Into This Collection of 14 Text Animation Marvels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-guerrilla-mic-guide-top-chip-selection-on-a-shoestring/"><u>2024 Approved Guerrilla Mic Guide Top Chip Selection on a Shoestring</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-reactivate-and-enhance-photo-viewing-with-ease-win-11/"><u>2024 Approved Reactivate and Enhance Photo Viewing with Ease (Win 11)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gaming-revolutionized-learn-and-create-via-chatgpts-my-bot-features/"><u>Gaming Revolutionized: Learn & Create via ChatGPT's My Bot Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-abletons-pathway-to-harmonious-declines/"><u>In 2024, Ableton's Pathway to Harmonious Declines</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-bend-and-shape-your-text-with-3d-effects-in-illustrator/"><u>In 2024, Bend and Shape Your Text with 3D Effects in Illustrator</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-gif-genius-unleashed-the-best-tools-and-methods-of-memetic-artistry/"><u>In 2024, GIF Genius Unleashed The Best Tools and Methods of Memetic Artistry</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-samsung-galaxy-s24-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Samsung Galaxy S24 to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/syncopated-screecher-symphony/"><u>Syncopated Screecher Symphony</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-crash-course-in-surf-cameras-2e3/"><u>[New] 2024 Approved The Crash Course in Surf Cameras (2E3)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-holographic-horizons-reimagined-movies/"><u>[New] In 2024, Holographic Horizons Reimagined Movies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-launch-success-a-guide-to-10-motivating-movies/"><u>[New] Launch Success A Guide to 10 Motivating Movies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-precision-craftsmanship-building-exquisite-circle-sphere-objects/"><u>2024 Approved Precision Craftsmanship Building Exquisite Circle, Sphere Objects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-list-of-mac-screen-capture-software/"><u>2024 Approved The Ultimate List of Mac Screen Capture Software</u></a></li>
+<li><a href="https://review-topics.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/choosing-between-the-macbook-pro-and-macbook-air-a-comprehensive-guide-to-find-your-perfect-apple-laptop-techsavvy/"><u>Choosing Between the MacBook Pro and MacBook Air: A Comprehensive Guide to Find Your Perfect Apple Laptop | TechSavvy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ient-video-categorization-with-tags/"><u>Efficient Video Categorization with Tags</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-technology-with-tom-in-depth-hardware-insights/"><u>Exploring Technology with Tom - In-Depth Hardware Insights</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-decoding-the-clues-in-your-facebooks-unseen-activity-trail/"><u>In 2024, Decoding the Clues in Your Facebook's Unseen Activity Trail</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-iphones-hdr-features-for-professional-photography/"><u>In 2024, Exploring iPhone's HDR Features for Professional Photography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/nikons-journey-to-excellence-the-4k-camera-review/"><u>Nikon's Journey to Excellence The 4K Camera Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-language-of-interaction-engaging-viewers-on-youtube-for-2024/"><u>The Language of Interaction Engaging Viewers on YouTube for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-itel-p55-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Itel P55 5G Device</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/unlocking-nvidia-monitor-configurations/"><u>Unlocking NVIDIA Monitor Configurations</u></a></li>
 </ul></div>
 

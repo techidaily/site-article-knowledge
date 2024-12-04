@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Quest for Perfection  Topiary Angles in Mobile Photography\""
-date: 2024-08-15T07:11:56.043Z
-updated: 2024-08-16T07:11:56.043Z
+date: 2024-12-01T00:00:51.408Z
+updated: 2024-12-03T18:55:32.231Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 ![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Care Solutions
 
  A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
@@ -47,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 #### 2\.  Low-Angle Shots
 
 ![low-angle-shot-photography](https://images.wondershare.com/filmora/article-images/low-angle-shot-photography.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: google
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 ![bird-eye-view-shots](https://images.wondershare.com/filmora/article-images/bird-eye-view-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Google
 
  Looking down on a beautiful view impresses everyone, but putting yourself in a position to watch the world from a top of a mountain or even a building requires a certain level of preparation. However, a bird's eye view angle can be captured on any location, and you just need to place yourself above the subject of your photo. This type of shot can be used for portraits, areal shots, and even breathtaking landscapes, but all objects depicted in bird's eye view photos will appear smaller than they actually are.
@@ -94,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 ![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Photo Secrets
 
  You don't have to know anything about camera lens filters in order to use them. Your sunglasses, glasses of water or any other transparent or reflecting surface can be used as a filter through which you take pictures.
@@ -101,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
  If you take a photo through a glass of water you'll be able to create a distorted image of the view behind the glass. Taking photos through transparent objects can be a lot of fun, but it is often more complicated than it seems. Controlling aperture, exposure or focus manually from your iPhone may help you get better results because you'll be able to decide where the focal point of the photo will be or fine-tune the amount of light your iPhone camera can pick up.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,9 +145,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-diving-deep-into-the-features-of-the-dell-p2715q-monitor/"><u>[New] Diving Deep Into the Features of the Dell P2715Q Monitor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-uncover-youtubes-preview-disabling-secret/"><u>[New] Uncover YouTube's Preview Disabling Secret</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-iphone-hdr-capturing-dynamic-range-in-your-images/"><u>[Updated] 2024 Approved IPhone HDR Capturing Dynamic Range in Your Images</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-add-transitions-in-kinemaster/"><u>[Updated] Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-array-of-unique-video-cameras-by-type-for-2024/"><u>[Updated] Array of Unique Video Cameras by Type for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-design-an-eye-catching-logo-for-podcasts/"><u>[Updated] In 2024, How to Design an Eye-Catching Logo for Podcasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-understanding-transient-suppression-via-audacity-for-2024/"><u>[Updated] Understanding Transient Suppression via Audacity for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-professioneller-transfer-manager-fur-iphone-und-ipad-macx-mediatrans-einfache-bild-video-and-musikubertragung/"><u>1. Professioneller Transfer-Manager Für iPhone Und iPad: MacX MediaTrans - Einfache Bild-, Video- & Musikübertragung</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/best-full-screen-recorders-windows-and-macos-version-for-2024/"><u>Best Full-Screen Recorders - Windows & macOS Version for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhance-visual-appeal-opt-for-expansive-cabinet-panels/"><u>Enhance Visual Appeal: Opt for Expansive Cabinet Panels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-audio-interface-guide-for-podcasters-for-2024/"><u>Essential Audio Interface Guide for Podcasters for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/fusion-of-light-combining-images-and-videos-on-iphone/"><u>Fusion of Light Combining Images & Videos on iPhone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-c51-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Realme C51 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/optimizing-your-system-reducing-excessive-cpu-demand-from-recent-updates/"><u>Optimizing Your System: Reducing Excessive CPU Demand From Recent Updates</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/q500-typhoon-yuneecs-high-resolution-bliss-for-2024/"><u>Q500 Typhoon - Yuneec's High-Resolution Bliss for 2024</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-vivo-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Vivo on Windows</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/swift-shots-on-iphone-time-lapse-recording-guide/"><u>Swift Shots on iPhone Time-Lapse Recording Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->

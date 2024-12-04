@@ -1,7 +1,7 @@
 ---
 title: "[New] What Are the Disadvantages of Virtual Reality?"
-date: 2024-08-15T07:09:27.094Z
-updated: 2024-08-16T07:09:27.094Z
+date: 2024-11-27T21:23:59.177Z
+updated: 2024-12-03T21:51:53.516Z
 tags: 
   - screen-recording
   - ai video
@@ -32,13 +32,18 @@ thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8
 _[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The equipment used for VR is very expensive
 
  Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Low resoultion content, large file size
 
  The new goggles or headsets that are coming out offer best available high resolution displays. But gaming experience is coming on at low resolution, leaving you with a low resolution experience. Below is a greatly condensed technical discussion explaining why VR is still so profoundly mediocre.
@@ -60,18 +65,21 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -97,4 +105,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-a-comprehensive-approach-to-online-advertising-mastery-for-2024/"><u>[New] A Comprehensive Approach to Online Advertising Mastery for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-cinematic-creator-win8-studio/"><u>[New] Cinematic Creator Win8 Studio</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-matches-free-and-paid-ultra-hd-playback-tools-for-windows-macos/"><u>[New] Ideal Matches Free & Paid Ultra HD Playback Tools for Windows, macOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unparalleled-8-visual-augmentations-for-live-cams-for-2024/"><u>[New] Unparalleled 8 Visual Augmentations for Live Cams for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-drone-trail-tech-your-number-1-picks-for-personal-use-for-2024/"><u>[Updated] Drone Trail Tech Your Number 1 Picks for Personal Use for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-advanced-strategies-for-professional-gif-craftsmanship/"><u>2024 Approved Advanced Strategies for Professional GIF Craftsmanship</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fiscal-football-footage-how-to-capture-and-edit-for-dirt-cheap/"><u>2024 Approved Fiscal Football Footage How To Capture and Edit for Dirt-Cheap</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-iphone-7-without-a-passcode-drfone-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your iPhone 7 Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-6-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone 6 Plus</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-digital-media-screening-an-insightful-critique/"><u>In 2024, Digital Media Screening - An Insightful Critique</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-get-a-new-look-free-online-face-generators-for-everyone/"><u>In 2024, Get a New Look Free Online Face Generators for Everyone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-samsung-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Samsung .</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplify-your-macs-photo-edits-with-our-ultimate-guide-to-using-preview-software/"><u>Simplify Your Mac's Photo Edits with Our Ultimate Guide to Using Preview Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-tecno-pova-6-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Tecno Pova 6 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/your-guide-to-selecting-a-superior-virtual-reality-headset-mobility-focused-or-connection-centric-for-2024/"><u>Your Guide to Selecting a Superior Virtual Reality Headset Mobility-Focused or Connection-Centric for 2024</u></a></li>
+</ul></div>
 

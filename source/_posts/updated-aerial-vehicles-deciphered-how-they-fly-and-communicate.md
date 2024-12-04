@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Aerial Vehicles Deciphered  How They Fly & Communicate\""
-date: 2024-11-23T16:34:20.845Z
-updated: 2024-11-24T16:54:03.648Z
+date: 2024-11-29T17:05:38.657Z
+updated: 2024-12-03T23:20:20.038Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 ![history of drones](https://images.wondershare.com/filmora/article-images/history-of-drones.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does a Drone Work?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 ![how does drones work](https://images.wondershare.com/filmora/article-images/how-does-drone-work.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How does it fly?
@@ -71,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
 ![dji drone logo](https://images.wondershare.com/filmora/article-images/dji-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2\. [Yuneec >>](http://www.yuneec.com/products )
 
 ![yuneec drone logo](https://images.wondershare.com/filmora/article-images/yuneec-logo.png)
@@ -84,7 +88,7 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 ![3d robotics drone logo](https://images.wondershare.com/filmora/article-images/3d-robotics-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  5\. [Hubsun >>](http://www.hubsan.com/ )
@@ -95,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
 ![syma toy drone logo](https://images.wondershare.com/filmora/article-images/syma-toy-logo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  7\. [Autel Robotics >>](https://www.autelrobotics.com )
 
 ![Autel logo](https://images.wondershare.com/filmora/article-images/autel-robotics-logo.jpg)
@@ -106,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
  8\. [Xiro >>](http://xirodrone.com/ )
 
 ![xiro drone logo](https://images.wondershare.com/filmora/article-images/xiro-logo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  9\. [Vantage >>](https://vantagerobotics.com/ )
 
@@ -115,10 +119,6 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
 ![Horizon Hobby logo](https://images.wondershare.com/filmora/article-images/horizon-hobby-logo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Summary
 
  There is no doubt to say that drones are one of the most wonderful and precious advancement of technology. Presently almost all countries are developing their drones for different applications. There are still some clauses for improvements and many professionals are continuously working on it. Drone carrying camera units inside them are more useful for commercial as well as military applications and they are being developed by almost all top companies in the world. It is a combination of all advanced technologies like micro controllers, GPS, Wi-Fi and sensor units- they all work in perfect coherence to deliver awesome performance for different applications. Most of the countries these days have decided their specific rule set for drone flights and few restrictions are poses on their weight carrying capacity. If you want to use drones for commercial applications then it is important to take permission from CAA.
@@ -126,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -154,22 +154,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-swift-tip-extracting-and-storing-twitter-video-on-phone/"><u>[New] 2024 Approved Swift Tip Extracting and Storing Twitter Video on Phone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-demystifying-advanced-video-coding-techniques/"><u>[New] Demystifying Advanced Video Coding Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-enhance-your-gopro-videos-time-lapse-guide/"><u>[New] Enhance Your GoPro Videos Time-Lapse Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-quickcapture-pro-efficient-win11-video-recorder/"><u>[New] QuickCapture Pro - Efficient Win11 Video Recorder</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-saving-your-social-moments-facebook-video-guide-for-2024/"><u>[New] Saving Your Social Moments Facebook Video Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-amplify-slides-with-melodies-in-ppt/"><u>[Updated] 2024 Approved Amplify Slides with Melodies in PPT</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-lights-spectrum-in-focus-pro-hdr-creation-tips-for-ps/"><u>[Updated] 2024 Approved Light's Spectrum in Focus Pro HDR Creation Tips for PS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-dji-phantom-3-pro-an-in-depth-analysis/"><u>[Updated] DJI Phantom 3 Pro An In-Depth Analysis</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-grappling-giants-twitch-triumph-or-hitbox-heroics-in-2024/"><u>[Updated] Grappling Giants Twitch Triumph or Hitbox Heroics, In 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-troubleshoot-and-repair-missing-vcompdll-files-successfully/"><u>How to Troubleshoot and Repair Missing vcomp.dll Files Successfully</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-streamlining-your-streams-choosing-between-xsplit-and-obs/"><u>In 2024, Streamlining Your Streams Choosing Between XSplit and OBS</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-iphone-se-2020-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On iPhone SE (2020) Making It Possible</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-13-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 13 With Forgotten Passcode Different Methods You Can Try</u></a></li>
-<li><a href="https://network-issues.techidaily.com/navigate-through-sims-solid-walls/"><u>Navigate Through Sims' Solid Walls</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/navigating-tight-scenes-minecraft-edition-for-2024/"><u>Navigating Tight Scenes Minecraft Edition for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-essential-list-of-cost-free-audio-to-transcription-tools-for-the-modern-user/"><u>New 2024 Approved Essential List of Cost-Free Audio to Transcription Tools for the Modern User</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/top-9-live-stream-enhancers-ultimate-filter-guide-for-2024/"><u>Top 9 Live-Stream Enhancers Ultimate Filter Guide for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-a-prism-of-design-from-theory-to-practice/"><u>[New] 2024 Approved A Prism of Design From Theory to Practice</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-excellent-storage-upgrade-for-sony-a7s-ii-cameras-for-2024/"><u>[New] Excellent Storage Upgrade for Sony A7S II Cameras for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-premier-sound-pivot-for-podcast-masters/"><u>[Updated] In 2024, Premier Sound Pivot for Podcast Masters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-linking-perfection-incorporating-linktree-into-your-tiktok-profile/"><u>[Updated] Linking Perfection Incorporating Linktree Into Your TikTok Profile</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-options-cheap-but-premium-4k-projector-systems/"><u>Best Options Cheap but Premium 4K Projector Systems</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/catalog-films-for-streamlined-playback-for-2024/"><u>Catalog Films for Streamlined Playback for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/common-reasons-behind-gas-station-game-crashing-episodes-on-personal-computers-pc/"><u>Common Reasons Behind Gas Station Game Crashing Episodes on Personal Computers (PC)</u></a></li>
+<li><a href="https://games-able.techidaily.com/compatible-console-excellence-best-mac-emulators-unveiled/"><u>Compatible Console Excellence: Best Mac Emulators Unveiled</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/find-your-missing-text-messages-top-8-iphone-message-retrieval-solutions-with-a-spotlight-on-stellar/"><u>Find Your Missing Text Messages: Top 8 iPhone Message Retrieval Solutions with a Spotlight on Stellar</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-boost-iphone-cinematic-experience-essential-film-gear/"><u>In 2024, Boost iPhone Cinematic Experience Essential Film Gear</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-tecno-camon-20-pro-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Tecno Camon 20 Pro 5G</u></a></li>
 </ul></div>
 
