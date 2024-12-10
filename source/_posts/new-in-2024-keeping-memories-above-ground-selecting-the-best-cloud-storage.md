@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Keeping Memories Above Ground  Selecting the Best Cloud Storage\""
-date: 2024-08-08T02:13:54.768Z
-updated: 2024-08-09T02:13:54.768Z
+date: 2024-12-07T16:29:59.341Z
+updated: 2024-12-10T16:08:24.744Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Nowadays, we are clicking more pictures than ever. But what will you do when you
 
 ## Part 1: The most secured cloud storage
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mega Cloud
 
 Mega Cloud is one of the most popular cloud media storage .It offers a massive 50 GB of free storage. Plus, Mega is known for its security features, like end-to-end encryption and two-factor authentication. If you want a secure way to store files, Mega is a great option.
@@ -58,10 +62,11 @@ First, the free storage is only suitable for a year. After that, you’ll need t
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![mega cloud pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Pros
 
@@ -112,9 +117,6 @@ SpiderOak ONE 6.0 has arrived! This new version includes a lots of improvements.
 
 Overall, SpiderOak is an excellent online backup and storage option, and its unlimited storage is a huge plus.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## Part 2: Biggest photo storage choices
 
 ### Google Drive
@@ -156,9 +158,6 @@ There are many features of Google Drive, but some of them are here :
 * Limiting the number of uploads per day
 * File size limits
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Flickr
 
 Flickr is a photo-sharing website created by Ludicorp in 2004 and later acquired by Yahoo in 2005\. You can upload your 1000 pictures and videos are free. Flickr also offers a pro account which gives users unlimited storage, ad-free browsing, and other features.
@@ -178,18 +177,6 @@ Flickr allows you to upload, share, and organize your photos.
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![flickr pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-4.jpg)
 
  Pros
@@ -205,6 +192,10 @@ Flickr allows you to upload, share, and organize your photos.
 * Flickr Uploader is challenging to use on a MAC Operating system
 * Ads in the free version
 * No control over the layout of the profile page
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3: Best cloud photo storage choice for video editors
 
@@ -241,10 +232,11 @@ Step2 Click on "New Project" to get started.
 
 Step3 A new interface will pop up informing you to open Wondershare to get space. Click on the "Authorize" button.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cloud storage open drive](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Mark the check box and click "Authorize."
 
@@ -256,9 +248,6 @@ Step5 Wait till logging in.
 
 Step6 Now, you can enjoy unlimited features of the Wondershare Cloud.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cloud storage upload file](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-9.jpg)
 
 **Pricing:**
@@ -315,15 +304,8 @@ Check the website here <https://www.adobe.com/creativecloud/plans.html> to see f
 * A bit expensive
 * No guarantee of a fixed price
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part4: Best photo storage choice for iPhone users
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### Apple iCloud
 
 Apple iCloud is a cloud storage service that lets you store your photos, videos, contacts, and other data in iCloud. You can access this data on all your devices. iCloud is free to use. You can also use iCloud to back up your devices.
@@ -358,6 +340,10 @@ iCloud's pricing varies from region to region and how much storage capacity you 
 * It doesn't back up everything on your iOS device
 * iCloud doesn't work with Android devices
 * You have to pay for more storage if you need it
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -380,14 +366,12 @@ However, to conclude the discussion, I want to recommend Google Drive and Wonder
 
 1. [Apple iCloud](#part4-1)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: The most secured cloud storage
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Mega Cloud
 
 Mega Cloud is one of the most popular cloud media storage .It offers a massive 50 GB of free storage. Plus, Mega is known for its security features, like end-to-end encryption and two-factor authentication. If you want a secure way to store files, Mega is a great option.
@@ -439,9 +423,6 @@ SpiderOak ONE 6.0 has arrived! This new version includes a lots of improvements.
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![spideroak pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-2.jpg)
 
  Pros
@@ -460,8 +441,9 @@ SpiderOak ONE 6.0 has arrived! This new version includes a lots of improvements.
 Overall, SpiderOak is an excellent online backup and storage option, and its unlimited storage is a huge plus.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Biggest photo storage choices
 
 ### Google Drive
@@ -483,10 +465,11 @@ There are many features of Google Drive, but some of them are here :
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![google drive pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Pros
 
@@ -506,9 +489,6 @@ There are many features of Google Drive, but some of them are here :
 * Limiting the number of uploads per day
 * File size limits
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Flickr
 
 Flickr is a photo-sharing website created by Ludicorp in 2004 and later acquired by Yahoo in 2005\. You can upload your 1000 pictures and videos are free. Flickr also offers a pro account which gives users unlimited storage, ad-free browsing, and other features.
@@ -528,9 +508,6 @@ Flickr allows you to upload, share, and organize your photos.
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![flickr pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-4.jpg)
 
  Pros
@@ -578,9 +555,6 @@ Step1 Download the Wondershare Cloud from the following link.
 
 Step2 Click on "New Project" to get started.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![cloud storage new project](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-5.jpg)
 
 Step3 A new interface will pop up informing you to open Wondershare to get space. Click on the "Authorize" button.
@@ -597,16 +571,10 @@ Step5 Wait till logging in.
 
 Step6 Now, you can enjoy unlimited features of the Wondershare Cloud.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![cloud storage upload file](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-9.jpg)
 
 **Pricing:**
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![cloud storage](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-10.jpg)
 
 **pricing**:
@@ -647,9 +615,6 @@ Download free through the link: <https://www.adobe.com/hk%5Fen/creativecloud.htm
 
 Check the website here <https://www.adobe.com/creativecloud/plans.html> to see full pricing detail. They are offering **"The Best value plan-Business plan".**
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![adobe creative pricing](https://images.wondershare.com/filmora/article-images/2022/11/cloud-storage-11.jpg)
 
  Pros
@@ -663,9 +628,14 @@ Check the website here <https://www.adobe.com/creativecloud/plans.html> to see f
 * No guarantee of a fixed price
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part4: Best photo storage choice for iPhone users
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Apple iCloud
 
@@ -702,9 +672,6 @@ iCloud's pricing varies from region to region and how much storage capacity you 
 * iCloud doesn't work with Android devices
 * You have to pay for more storage if you need it
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 All the mentioned cloud photo software is best. You can choose anyone according to your comfort and need.
@@ -737,4 +704,21 @@ However, to conclude the discussion, I want to recommend Google Drive and Wonder
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-techniques-for-bypassing-obscuring-elements-in-affinity-photo/"><u>[New] 2024 Approved Cutting-Edge Techniques for Bypassing Obscuring Elements in Affinity Photo</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-brand-engagement-through-opening/"><u>[New] In 2024, Brand Engagement Through Opening</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-creative-conceptions-selecting-the-finest-10-free-macdrawers/"><u>[New] In 2024, Creative Conceptions Selecting the Finest 10 FREE MacDrawers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-elevate-your-video-game-on-instagram-with-right-dimensions-for-2024/"><u>[Updated] Elevate Your Video Game on Instagram with Right Dimensions for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-essential-cameras-of-the-year-top-10-reviewed-for-2024/"><u>[Updated] Essential Cameras of the Year - Top 10 Reviewed for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-quick-fixes-eliminate-ssgnatures-in-a-blink/"><u>[Updated] In 2024, Quick Fixes Eliminate Ssgnatures in a Blink</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-perfecting-close-angles-in-movie-filming-for-2024/"><u>[Updated] Perfecting Close Angles in Movie Filming for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-guide-to-vehicle-monitoring-cameras/"><u>[Updated] Ultimate Guide to Vehicle Monitoring Cameras</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/efficiently-archive-social-media-videos-with-top-5-pick/"><u>Efficiently Archive Social Media Videos with Top 5 Pick</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-path-to-higher-rankings-a-podcast-seo-guidebook/"><u>In 2024, The Path to Higher Rankings A Podcast SEO Guidebook</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-the-art-of-win10-blue-screen-recovery/"><u>Mastering the Art of Win10 Blue Screen Recovery</u></a></li>
+<li><a href="https://fox-where.techidaily.com/troubleshooting-apowermanagers-inability-to-access-notes-on-iphones-and-ipads/"><u>Troubleshooting ApowerManager's Inability to Access Notes on iPhones and iPads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-collection-no-cost-ae-template-gold/"><u>Ultimate Collection No-Cost AE Template Gold</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/uncovering-the-methods-finding-your-email-id-easily/"><u>Uncovering The Methods: Finding Your Email ID Easily</u></a></li>
+</ul></div>
 

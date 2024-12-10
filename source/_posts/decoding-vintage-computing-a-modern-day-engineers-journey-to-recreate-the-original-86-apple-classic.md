@@ -1,7 +1,7 @@
 ---
 title: "Decoding Vintage Computing: A Modern-Day Engineer's Journey to Recreate the Original '86 Apple Classic"
-date: 2024-08-15T07:06:44.682Z
-updated: 2024-08-16T07:06:44.682Z
+date: 2024-12-06T16:08:34.215Z
+updated: 2024-12-10T16:12:56.133Z
 tags:
   - desktop
 categories:
@@ -54,6 +54,10 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -62,14 +66,11 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -78,8 +79,20 @@ __Ayaneo Retro Mini PC AM01 Specification__
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-mastering-online-persona-transformation-in-discord/"><u>[New] 2024 Approved Mastering Online Persona Transformation in Discord</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-first-steps-in-mastering-the-av1-codec/"><u>[Updated] 2024 Approved First Steps in Mastering the AV1 Codec</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-actors-availability-for-video-downloads/"><u>[Updated] Actors' Availability for Video Downloads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-illustrate-effortlessly-prime-ios-design-software/"><u>[Updated] Illustrate Effortlessly Prime iOS Design Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-proven-methods-for-professional-video-editing-and-dvd-burning-on-mac/"><u>[Updated] In 2024, Proven Methods for Professional Video Editing and DVD Burning on Mac</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pioneering-efficient-editing-embrace-inshot-software-for-2024/"><u>[Updated] Pioneering Efficient Editing Embrace Inshot Software for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-waveforms-and-windows-mac-sound-recording-for-2024/"><u>[Updated] Waveforms and Windows Mac Sound Recording for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-mastering-video-trimming-a-step-by-step-guide-using-vlc-media-player/"><u>1. Mastering Video Trimming: A Step-by-Step Guide Using VLC Media Player</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-sonic-full-screen-pitfalls-on-windows-11-os/"><u>Avoiding Sonic Full-Screen Pitfalls on Windows 11 OS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cross-sonic-blending-a-deep-dive-into-crossfade-for-2024/"><u>Cross-Sonic Blending - A Deep Dive Into Crossfade for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/elevating-your-nba-experience-with-advanced-streaming/"><u>Elevating Your NBA Experience with Advanced Streaming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-professionals-choice-premium-youtube-cameras/"><u>In 2024, Professionals' Choice Premium YouTube Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/underwater-cinematography-made-simple-top-7-tips/"><u>Underwater Cinematography Made Simple Top 7 Tips</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->

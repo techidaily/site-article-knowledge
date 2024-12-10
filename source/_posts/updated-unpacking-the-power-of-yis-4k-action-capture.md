@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unpacking the Power of Yi's 4K Action Capture"
-date: 2024-08-15T07:07:25.619Z
-updated: 2024-08-16T07:07:25.619Z
+date: 2024-12-08T16:26:41.542Z
+updated: 2024-12-10T16:21:04.221Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-decoding-uavs-the-science-behind-airborne-machines/"><u>[New] 2024 Approved Decoding UAVs The Science Behind Airborne Machines</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-auditory-interpretation-accessible-at-no-expense/"><u>[New] In 2024, Auditory Interpretation Accessible at No Expense</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-reducing-inertia-induced-jello-in-uav-videos-for-2024/"><u>[New] Reducing Inertia-Induced Jello in UAV Videos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-streamlined-editing-best-apps-compatible-with-macos-big-sur-for-2024/"><u>[New] Streamlined Editing Best Apps Compatible with macOS Big Sur for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-vr-unleashed-in-depth-reviews-of-peripherals/"><u>[New] VR Unleashed - In-Depth Reviews of Peripherals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-harmonizing-background-sounds-with-film-trailers/"><u>[Updated] 2024 Approved Harmonizing Background Sounds with Film Trailers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-insights-into-huawei-p10s-software-optimization-and-updates/"><u>[Updated] 2024 Approved Insights Into Huawei P10’s Software Optimization and Updates</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-fusing-youtube-beats-into-film-scenes/"><u>[Updated] Fusing YouTube Beats Into Film Scenes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amd-powerhouse-in-a-truck-shell-xyber-xpc-the-ultimate-bugs-and-bird-droppings-resistant-mini-pc-with-impressive-specs/"><u>AMD Powerhouse in a Truck Shell: Xyber XPC, the Ultimate Bugs & Bird Droppings Resistant Mini-PC with Impressive Specs</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/breaking-down-asuss-revolutionary-new-wireless-speed-monarch-the-rt-be96u/"><u>Breaking Down Asus's Revolutionary New Wireless Speed Monarch: The RT-BE96U</u></a></li>
+<li><a href="https://blog-min.techidaily.com/converte-3gp-para-wma-online-de-graca-movavi/"><u>Converte 3GP Para WMA Online De Graça - Movavi</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-honor-x7b-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Honor X7b Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://win-premium.techidaily.com/lost-genshin-impact-images-discover-6-effective-solutions/"><u>Lost Genshin Impact Images? Discover 6 Effective Solutions!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-choices-top-10-best-vectors-websites/"><u>Prime Choices Top 10 Best Vectors Websites</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/step-by-step-guide-identifying-your-gpu-on-windows-11-yl-tech-tips/"><u>Step-by-Step Guide: Identifying Your GPU on Windows 11 - YL Tech Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-algorithm-advantage-tips-for-achieving-instagram-video-fame/"><u>The Algorithm Advantage Tips for Achieving Instagram Video Fame</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-experts-method-for-timestamping-your-youtube-videos/"><u>The Expert's Method for Timestamping Your YouTube Videos</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/tracking-and-tallying-crypto-earnings-insights-from-yl-softwares-capital-gains-calculation-methodology/"><u>Tracking and Tallying Crypto Earnings: Insights From YL Software's Capital Gains Calculation Methodology</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

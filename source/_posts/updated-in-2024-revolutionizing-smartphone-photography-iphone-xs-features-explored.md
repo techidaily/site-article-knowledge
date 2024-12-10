@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Revolutionizing Smartphone Photography  IPhone X's Features Explored\""
-date: 2024-11-26T20:43:19.108Z
-updated: 2024-12-03T21:16:28.175Z
+date: 2024-12-04T16:29:03.541Z
+updated: 2024-12-10T16:05:57.549Z
 tags: 
   - screen-recording
   - ai video
@@ -38,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -75,11 +75,11 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -88,11 +88,11 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Conclusion
 
@@ -127,20 +127,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-free-ai-hearing-and-handling-software/"><u>[New] 2024 Approved Free AI Hearing and Handling Software</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beyond-indexation-decoding-the-purpose-of-unlisted-videos/"><u>[New] In 2024, Beyond Indexation Decoding the Purpose of 'Unlisted' Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-chucklechamber-laughter-in-a-click/"><u>[New] In 2024, ChuckleChamber - Laughter in a Click</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-innovative-techniques-for-unique-canon-timelapse-vids-for-2024/"><u>[New] Innovative Techniques for Unique Canon Timelapse Vids for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-multi-stream-experience-on-netflix-for-2024/"><u>[New] Navigating the Multi-Stream Experience on Netflix for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-personal-drones-that-perfectly-trace-their-owners-path/"><u>[New] Personal Drones That Perfectly Trace Their Owner's Path</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-gopro-karma-quest-for-altitude-dominance-for-2024/"><u>[New] The GoPro Karma Quest for Altitude Dominance for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-power-of-apples-m1-max-clip-for-2024/"><u>[New] The Power of Apple’s M1 Max Clip for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-manufacture-mirthful-animations-on-giphy/"><u>[Updated] 2024 Approved Manufacture Mirthful Animations on Giphy</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-13-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off Apple iPhone 13 without Password</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoiding-steam-authentication-setbacks-in-rust-for-windows-users/"><u>Avoiding Steam Authentication Setbacks in Rust for Windows Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/first-timers-insights-into-pixel-density-matters/"><u>First-Timer's Insights Into Pixel Density Matters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-stepwise-instructions-enabling-or-disabling-youtubes-pip-mode/"><u>In 2024, Stepwise Instructions Enabling or Disabling YouTube's PIP Mode</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on iPhone 6s Plus</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/what-to-do-if-your-nvidia-component-is-disconnected-discover-fixes-here/"><u>What To Do If Your Nvidia Component Is Disconnected? Discover Fixes Here!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-excellent-apps-to-keep-your-data-on-the-go-androids-cloud-keeper-list/"><u>[New] In 2024, Excellent Apps to Keep Your Data on the Go - Android's Cloud Keeper List</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-guide-to-metaverse-laughter/"><u>[New] The Ultimate Guide to Metaverse Laughter</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unleash-your-auditory-adventures-installing-apple-podcasts-app-for-2024/"><u>[New] Unleash Your Auditory Adventures Installing Apple Podcasts App for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-learn-how-to-utilize-telegrams-web-functionality-professionally/"><u>[Updated] 2024 Approved Learn How To Utilize Telegram's Web Functionality Professionally</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-book-trailers-reviewed-top-5-picks-revealed/"><u>[Updated] Book Trailers Reviewed Top 5 Picks Revealed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-precision-in-practice-detailed-manual-on-windows-pc-live-tv-capture/"><u>2024 Approved Precision in Practice Detailed Manual on Windows PC Live TV Capture</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-solutions-for-enabling-audio-in-obs-broadcasts/"><u>2024 Approved Solutions for Enabling Audio in OBS Broadcasts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/convertissez-vos-fichiers-ogg-en-wma-sans-frais-avec-movavi-online-libre-de-changer-des-ogg-en-wma/"><u>Convertissez Vos Fichiers Ogg en Wma Sans Frais Avec Movavi - Online Libre De Changer Des OGG en WMA.</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/exploring-the-gap-between-standard-and-virtual-reality-video-for-2024/"><u>Exploring the Gap Between Standard & Virtual Reality Video for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-yuneec-typhoon-h-dive-professional-takeaways/"><u>In 2024, The Yuneec Typhoon H Dive Professional Takeaways</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/leveraging-time-stamps-for-enhanced-video-clarity-on-youtube-for-2024/"><u>Leveraging Time Stamps for Enhanced Video Clarity on YouTube for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/master-privacy-unveil-faces-less-clearly-for-2024/"><u>Master Privacy Unveil Faces Less Clearly for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/shedding-light-on-brighter-hdr-approaches-with-high-quality-luminosity-for-2024/"><u>Shedding Light on Brighter HDR Approaches with High-Quality Luminosity for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/sysadmin-augusto-explains-complex-mysql-fixes-in-video/"><u>SysAdmin Augusto Explains Complex MySQL Fixes in Video</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-reliable-websites-for-free-video-content-acquisition-without-costs/"><u>Top Reliable Websites for Free Video Content Acquisition Without Costs</u></a></li>
 </ul></div>
 

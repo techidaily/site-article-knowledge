@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, IPhone Exposed  The Art of Prolonged Photography\""
-date: 2024-12-02T20:47:41.538Z
-updated: 2024-12-04T01:34:48.567Z
+date: 2024-12-06T16:20:03.128Z
+updated: 2024-12-10T16:19:27.910Z
 tags: 
   - screen-recording
   - ai video
@@ -35,16 +35,16 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Take Long Exposure Shots on iPhone
 
 * [Section 1: Users on iOS 11](#part1)
 * [Section 2: Not a user of iOS 11?](#part2)
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Users on iOS 11
 
@@ -58,13 +58,13 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
 
@@ -73,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -93,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
@@ -104,7 +104,7 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: WallDevil
@@ -123,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -130,10 +134,6 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
  With the iPhone camera long exposure shots could really up your game on social media. Whether you're a budding travel photographer, a wannabe stock photo entrepreneur or simply an Instagram lover who wants to impress their friends, have a play with the technology available to you and see what you can create. Long exposure shots are massively popular right now, so grab your iPhone and get snapping!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -160,20 +160,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-from-boredom-to-attention-unveiling-the-6-key-videos/"><u>[New] 2024 Approved From Boredom to Attention Unveiling the 6 Key Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-high-def-camera-the-top-audio-mics-guide/"><u>[New] High-Def Camera The Top Audio Mics Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-ffmpeg-audioscape-maintaining-original-audio-formats/"><u>[New] In 2024, FFmpeg Audioscape Maintaining Original Audio Formats</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>[New] In 2024, The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-transition-tunes-mastering-crossfading-in-music/"><u>[New] In 2024, Transition Tunes Mastering Crossfading in Music</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-vegas-pro-21-the-new-standard-for-sportsbook-simplicity-and-complexity-for-2024/"><u>[New] Vegas Pro '21 - The New Standard for Sportsbook Simplicity & Complexity for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-jestmastery-create-share-and-sign-up-with-ease/"><u>[Updated] 2024 Approved JestMastery Create, Share & Sign Up with Ease</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/hd-wallpaper-flipbooks-and-animations-visual-assets-from-storyblocks/"><u>HD Wallpaper Flipbooks and Animations | Visual Assets From Storyblocks</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-seamlessly-add-and-edit-audio-to-canvas-clips/"><u>In 2024, How to Seamlessly Add and Edit Audio to Canvas Clips</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-vintage-racing-sims-our-favorite-five/"><u>In 2024, Vintage Racing Sims Our Favorite Five</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/leading-seo-firms-in-the-eternal-city-of-rome-enhance-visibility-with-expert-strategies/"><u>Leading SEO Firms in the Eternal City of Rome: Enhance Visibility with Expert Strategies</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/prioritizing-elements-what-to-consider-with-a-new-4k-camera-lens/"><u>Prioritizing Elements What to Consider with a New 4K Camera Lens</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-itel-p40plus-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Itel P40+ Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/twilight-crusaders-the-darkened-knight-vs-the-shining-one-for-2024/"><u>Twilight Crusaders The Darkened Knight vs the Shining One for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-comprehensive-degree-of-view-analysis/"><u>[New] In 2024, Comprehensive Degree of View Analysis</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-quick-and-easy-capturing-the-perfect-mac-snapped-footage/"><u>[New] In 2024, Quick & Easy Capturing the Perfect Mac-Snapped Footage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/remium-youtube-insights-everything-you-must-know-for-2024/"><u>[New] Premium YouTube Insights Everything You Must Know for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unmarked-stock-a-beginners-guide-to-clear-content-for-2024/"><u>[New] Unmarked Stock A Beginner's Guide to Clear Content for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-vr-unleashed-in-depth-reviews-of-peripherals/"><u>[New] VR Unleashed - In-Depth Reviews of Peripherals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-harmonizing-background-sounds-with-film-trailers/"><u>[Updated] 2024 Approved Harmonizing Background Sounds with Film Trailers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-fusing-youtube-beats-into-film-scenes/"><u>[Updated] Fusing YouTube Beats Into Film Scenes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/crafting-your-dream-minecraft-house-with-ease-for-2024/"><u>Crafting Your Dream Minecraft House with Ease for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-nokia-130-music-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Nokia 130 Music Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/high-resolution-woman-wallpaper-hd-backgrounds-and-images-premium-collection-by-yl-computing/"><u>High-Resolution Woman Wallpaper HD Backgrounds & Images: Premium Collection by YL Computing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-scouting-the-best-cameras-for-aspiring-muso-videographers/"><u>In 2024, Scouting the Best Cameras for Aspiring Muso Videographers</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-vivo-x90s-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Vivo X90S – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-and-engage-facebooks-defense-protocols/"><u>Navigate & Engage Facebook's Defense Protocols</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-choices-top-10-best-vectors-websites/"><u>Prime Choices Top 10 Best Vectors Websites</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tailor-your-experience-a-guide-to-optimizing-account-preferences-and-settings/"><u>Tailor Your Experience: A Guide to Optimizing Account Preferences and Settings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-experts-method-for-timestamping-your-youtube-videos/"><u>The Expert's Method for Timestamping Your YouTube Videos</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-overcoming-casting-problems-on-windows-11-fixed/"><u>Ultimate Guide: Overcoming Casting Problems on Windows 11 [Fixed]</u></a></li>
 </ul></div>
 

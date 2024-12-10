@@ -1,7 +1,7 @@
 ---
 title: "\"Underwater Cinematography Made Simple  Top 7 Tips\""
-date: 2024-12-01T23:26:12.119Z
-updated: 2024-12-03T23:22:36.612Z
+date: 2024-12-07T16:21:26.157Z
+updated: 2024-12-10T16:30:13.617Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -44,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -60,7 +60,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Lighting is important
@@ -73,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -81,15 +85,15 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 6\. Wide angle
 
@@ -104,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -124,7 +124,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -152,21 +152,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-favourites-revealed-top-20-anime-melodies-for-2024/"><u>[New] Favourites Revealed Top 20 Anime Melodies for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-echoes-of-music-in-video-landscapes/"><u>[New] In 2024, Echoes of Music in Video Landscapes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-pixelwizard-a-comprehensive-top-10-list-of-replacements/"><u>[New] PixelWizard A Comprehensive Top 10 List of Replacements</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-enhance-skills-and-strategy-opt-for-free-voice-modification-in-valorant/"><u>[Updated] Enhance Skills & Strategy Opt for Free Voice Modification in Valorant</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-prime-selection-top-8-webcams-to-upgrade-streaming/"><u>[Updated] In 2024, Prime Selection Top 8 Webcams to Upgrade Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-rhythm-on-rings-creating-tamil-ringtone-playlists-for-2024/"><u>[Updated] Rhythm on Rings Creating Tamil Ringtone Playlists for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-realme-narzo-60-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/comprehensive-breakdown-of-polarr-photo-editors-features/"><u>Comprehensive Breakdown of Polarr Photo Editor's Features</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/get-perfect-film-endings-for-your-projects-on-the-house/"><u>Get Perfect Film Endings for Your Projects - On the House</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-troubleshoot-and-correct-directx-not-starting-up-issues-instantly/"><u>How to Troubleshoot and Correct 'DirectX Not Starting Up' Issues Instantly</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-strategies-to-correct-windows-11-blackout-displays-on-your-pc/"><u>Step-by-Step Strategies to Correct Windows 11 Blackout Displays on Your PC</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/the-ultimate-guide-for-ppt-screen-capture-2023-style-for-2024/"><u>The Ultimate Guide for PPT Screen Capture, 2023 Style for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-guide-to-choosing-between-free-and-paid-zoom-transcribers-for-2024/"><u>The Ultimate Guide to Choosing Between Free & Paid Zoom Transcribers for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/l-your-channels-potential-with-30-top-tier-free-intros-for-2024/"><u>Unveil Your Channel's Potential with 30 Top-Tier Free Intros for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/vrije-movavi-service-efficient-converteer-m4r-filetes-naar-aiff-audio-online/"><u>Vrije Movavi Service: Efficiënt Converteer M4R Filetes Naar AIFF Audio - Online!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-twitter-video-download-tool-for-mp3-conversion/"><u>[New] 2024 Approved Twitter Video Download Tool for MP3 Conversion</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-best-digital-realms-downloadable-alarm-melodies-for-2024/"><u>[New] Best Digital Realms Downloadable Alarm Melodies for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-proven-techniques-and-choices-for-trimming-premium-tamil-melodies/"><u>[New] Proven Techniques and Choices for Trimming Premium Tamil Melodies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-elevating-your-ar-projects-with-custom-downloadable-luts/"><u>[Updated] 2024 Approved Elevating Your AR Projects with Custom, Downloadable LUTS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-eyelaughs-funny-image-generator/"><u>[Updated] 2024 Approved EyeLaughs Funny Image Generator</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-digital-image-detail-enhancement-with-top-frameer-tools-for-2024/"><u>[Updated] Digital Image Detail Enhancement with Top Frameer Tools for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-live-tv-access-a-top-ranked-list-review/"><u>[Updated] Mastering Live TV Access A Top-Ranked List Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-guide-to-adding-video-filter-magic-to-zoom-meetings-for-2024/"><u>[Updated] The Complete Guide to Adding Video Filter Magic to Zoom Meetings for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-synergy-of-business-and-virtual-experience-design/"><u>[Updated] The Synergy of Business and Virtual Experience Design</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-assemble-creative-gifs-for-online-sharing/"><u>2024 Approved Assemble Creative GIFs for Online Sharing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-what-makes-the-netgear-c3700-a-standout-as-a-modem-a-detailed-review/"><u>Discover What Makes the Netgear C3700 a Standout as a Modem - A Detailed Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/experts-guide-to-infinite-space-utilization/"><u>Expert's Guide to Infinite Space Utilization</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/fixing-handbrakes-dvd-scanning-issue-step-by-step-guide-to-resolving-cannot-scan-dvd-title-error/"><u>Fixing Handbrake's DVD Scanning Issue: Step-by-Step Guide to Resolving 'Cannot Scan DVD Title' Error</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722972590761-get-your-linksys-ae1200-wi-fi-router-up-and-running-fast-download-of-the-latest-drivers/"><u>Get Your Linksys AE1200 Wi-Fi Router Up and Running - Fast Download of the Latest Drivers!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/recording-wizardry-5-tactics-for-windows-enthusiasts/"><u>Recording Wizardry 5 Tactics for Windows Enthusiasts</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/understanding-and-correcting-kernel-mode-memory-corruption-errors/"><u>Understanding and Correcting Kernel Mode Memory Corruption Errors</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/voice-of-the-virtual-world-utilizing-chatgpt-for-in-game-dialogues/"><u>Voice of the Virtual World: Utilizing ChatGPT for In-Game Dialogues</u></a></li>
+<li><a href="https://techidaily.com/what-should-i-do-if-i-dont-find-the-deleted-iphone-15-files-after-scanning-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What should I do if I dont find the deleted iPhone 15 files after scanning? | Stellar</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/windows-11-video-production-from-start-to-finish/"><u>Windows 11 Video Production From Start to Finish</u></a></li>
 </ul></div>
 

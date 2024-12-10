@@ -1,7 +1,7 @@
 ---
 title: "[New] Frosty Flourishes at the Winter Games"
-date: 2024-11-30T20:54:51.394Z
-updated: 2024-12-03T17:56:46.033Z
+date: 2024-12-04T16:04:42.637Z
+updated: 2024-12-10T16:27:48.747Z
 tags: 
   - screen-recording
   - ai video
@@ -39,13 +39,13 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
@@ -63,14 +63,10 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
@@ -94,7 +90,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -104,7 +100,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -112,6 +108,10 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,24 +136,18 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-activating-grid-view-in-google-meet-webinars-a-step-by-step-guide/"><u>[New] Activating Grid View in Google Meet Webinars A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-dissecting-high-quality-visuals-with-benqs-27-inch-ultra-hd-display/"><u>[New] Dissecting High-Quality Visuals with BenQ's 27 Inch Ultra HD Display</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-iphone-image-conversion-wizardry-turning-jpgpng-into-pdf-for-2024/"><u>[New] IPhone Image Conversion Wizardry Turning JPG/PNG Into PDF for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-m1-dominance-video-editors-rejoice-in-seamless-experience-for-2024/"><u>[New] M1 Dominance Video Editors Rejoice in Seamless Experience for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-key-ingredients-of-a-powerful-podcast-launch-video-for-2024/"><u>[New] The Key Ingredients of a Powerful Podcast Launch Video for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-top-15-innovative-tools-perfecting-your-virtual-tone-for-2024/"><u>[New] Top 15 Innovative Tools Perfecting Your Virtual Tone for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevating-your-standards-a-path-to-superior-interview-skills/"><u>[Updated] Elevating Your Standards A Path to Superior Interview Skills</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-navigating-towards-excellent-free-photography-choices-for-2024/"><u>[Updated] Navigating Towards Excellent Free Photography Choices for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-1-live-music-broadcasts/"><u>[Updated] Top 1 Live Music Broadcasts</u></a></li>
-<li><a href="https://fox-that.techidaily.com/correcting-random-website-tracking-on-your-iphone-through-screen-time-settings/"><u>Correcting Random Website Tracking on Your iPhone Through Screen Time Settings</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-solutions-to-overcome-laptop-touchpad-not-responding-glitches/"><u>Expert Solutions to Overcome 'Laptop Touchpad Not Responding' Glitches</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-unlock-smooth-communication-best-10-secured-fee-free-apps-for-ios-and-android-users/"><u>In 2024, Unlock Smooth Communication Best 10 Secured, Fee-Free Apps for iOS and Android Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/portable-stabilizer-for-clear-videographers-footage/"><u>Portable Stabilizer for Clear Videographer’s Footage</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/schutz-ihrer-datenpartitionen-im-bildformat-fur-windows-1087-erfahre-zwei-zuverlassige-ansatze/"><u>Schutz Ihrer Datenpartitionen Im Bildformat Für Windows 10/8/7 – Erfahre Zwei Zuverlässige Ansätze</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/seamless-podcast-journey-from-creation-to-google-submission/"><u>Seamless Podcast Journey From Creation to Google Submission</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/selecting-quality-on-a-shoe-string-10-best-free-lut-picks-for-2024/"><u>Selecting Quality on a Shoe String 10 Best Free LUT Picks for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-icloud-discover-7-methods-to-fix-non-syncing-iphone-photos/"><u>Struggling With iCloud? Discover 7 Methods To Fix Non-Syncing iPhone Photos</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-unlock-smooth-conversions-top-10-free-4k-video-converters-for-2024/"><u>Updated Unlock Smooth Conversions Top 10 Free 4K Video Converters for 2024</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/windows-110xc19t0101/"><u>Windows 11中轻松解决0xC19t0101错误：您可以采用四种不同方法</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-chuckle-chipmunks-robotic-jokesters/"><u>[New] In 2024, Chuckle Chipmunks Robotic Jokesters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-zero-to-trendsetter-solo-podcast-success-story/"><u>[New] In 2024, From Zero to Trendsetter Solo Podcast Success Story</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-playback-in-reverse-the-ultimate-youtube-playlist-technique/"><u>[New] In 2024, Playback in Reverse The Ultimate YouTube Playlist Technique</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/recision-in-sound-cutting-out-unwanted-volume-for-2024/"><u>[New] Precision in Sound Cutting Out Unwanted Volume for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed/"><u>[Updated] In 2024, Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ultimate-audio-alerts-high-quality-pages/"><u>[Updated] In 2024, Ultimate Audio Alerts High-Quality Pages</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-professional-video-editor-essentials-top-5-macos-sierra-software/"><u>[Updated] Professional Video Editor Essentials Top 5 macOS Sierra Software</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-dji-quadcopters-starter-upgraded-professional-edition/"><u>2024 Approved DJI Quadcopters Starter, Upgraded, Professional Edition</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-latest-drivers-for-nvidia-quadro-rtx-8000-on-windows-1087/"><u>Download Latest Drivers for Nvidia Quadro RTX ‌‌8000 on Windows 10/8/7</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-know-how-for-video-filter-integration-on-digital-platforms/"><u>Essential Know-How for Video Filter Integration on Digital Platforms</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-elite-rankings-top-10-apps-to-watch-football-and-volleyball-in-the-moment/"><u>In 2024, Elite Rankings Top 10 Apps to Watch Football & Volleyball in the Moment</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y36i-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y36i Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Vivo Y200e 5G? | Dr.fone</u></a></li>
 </ul></div>
 

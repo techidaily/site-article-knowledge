@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Invisible Hand  Mastering Windows 11'S Media Imports\""
-date: 2024-12-01T01:39:47.682Z
-updated: 2024-12-04T01:22:20.640Z
+date: 2024-12-05T16:05:57.810Z
+updated: 2024-12-10T16:12:52.558Z
 tags: 
   - screen-recording
   - ai video
@@ -47,7 +47,11 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Enable File Exchange
@@ -61,7 +65,7 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Import
@@ -95,7 +99,7 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Import Photos and Video from a Camera
@@ -107,7 +111,7 @@ Connect the camera to your phone and then follow the above steps to import your 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -115,10 +119,6 @@ Connect the camera to your phone and then follow the above steps to import your 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,22 +145,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-melodic-melding-understanding-sound-transition/"><u>[New] 2024 Approved Melodic Melding Understanding Sound Transition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-steady-silence-decreasing-volume-in-logic-pro-projects/"><u>[New] 2024 Approved Steady Silence Decreasing Volume in Logic Pro Projects</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlined-methods-to-store-mov-on-your-windows-pc/"><u>[New] In 2024, Streamlined Methods to Store .mov on Your Windows PC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-breakdown-of-cloud-storage-pricing-expert-analysis-and-top-deals-for-2024/"><u>[Updated] Breakdown of Cloud Storage Pricing Expert Analysis & Top Deals for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-essential-vr-devices-for-drone-enthusiasts-for-2024/"><u>[Updated] Essential VR Devices for Drone Enthusiasts for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-how-to-get-free-picture-frame-videos-for-2024/"><u>[Updated] How to Get Free Picture Frame Videos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-fabricate-funny-images-on-giphy/"><u>[Updated] In 2024, Fabricate Funny Images on Giphy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-interacting-with-a-blended-world-the-essence-of-mixed-reality/"><u>[Updated] In 2024, Interacting with a Blended World The Essence of Mixed Reality</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-photo-perfection-in-a-pinch-with-top-apps/"><u>[Updated] In 2024, Photo Perfection in a Pinch with Top Apps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-truth-behind-the-illusion-buying-non-existent-youtube-backers/"><u>[Updated] In 2024, Truth Behind the Illusion Buying Non-Existent YouTube Backers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unrivaled-handwear-elevate-your-vr-world/"><u>[Updated] Unrivaled Handwear Elevate Your VR World</u></a></li>
-<li><a href="https://techtrends.techidaily.com/503-service-unavailable-error-message-what-it-is-and-how-to-fix-it/"><u>503 Service Unavailable Error Message: What It Is and How to Fix It</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oppo-a18-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/crash-free-racing-optimizing-your-play-of-forza-horizon-4-on-pc/"><u>Crash-Free Racing: Optimizing Your Play of Forza Horizon 4 on PC</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-real-score-of-youtube-video-success-beyond-basic-view-counts/"><u>In 2024, The Real Score of YouTube Video Success Beyond Basic View Counts</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-latest-in-hardware-with-toms-expert-insights/"><u>Navigating the Latest in Hardware with Tom's Expert Insights</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-the-best-text-voice-generators-for-all-platforms/"><u>Updated 2024 Approved The Best Text Voice Generators for All Platforms</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-practices-for-reading-youtube-comments/"><u>[New] 2024 Approved Best Practices for Reading YouTube Comments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-crafting-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>[New] In 2024, Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-no-limit-story-saving-at-the-tap-of-a-button-for-2024/"><u>[New] No-Limit Story Saving at the Tap of a Button for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-produce-playful-photoshopped-gifs-via-giphy/"><u>[Updated] 2024 Approved Produce Playful Photoshopped Gifs via Giphy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-real-time-webcast-applications-for-2024/"><u>[Updated] Top Real-Time Webcast Applications for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools/"><u>In 2024, Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-writers-who-defined-genres-through-exceptional-works/"><u>In 2024, Writers Who Defined Genres Through Exceptional Works</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mastering-whiteboard-tech-in-online-classes-ios-android-and-macbooks-for-2024/"><u>Mastering Whiteboard Tech in Online Classes IOS, Android, and MacBooks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/meet-the-next-generation-samsungs-galaxy-buds-pro/"><u>Meet the Next Generation: Samsung's Galaxy Buds Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/speech-to-text-solutions-for-engaging-ppts-for-2024/"><u>Speech-to-Text Solutions for Engaging PPTs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/techniques-to-frame-photos-with-leading-lines-iphone/"><u>Techniques to Frame Photos with Leading Lines (iPhone)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-iphone-7-plus-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From iPhone 7 Plus Making It Possible</u></a></li>
 </ul></div>
 

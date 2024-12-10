@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Overcome Inactive AirDrop on Multiple Apple Devices"
-date: 2024-11-29T01:08:31.315Z
-updated: 2024-12-03T19:55:41.421Z
+date: 2024-12-05T16:32:56.400Z
+updated: 2024-12-10T16:27:31.016Z
 tags: 
   - screen-recording
   - ai video
@@ -64,21 +64,17 @@ Airdrop contains three options to choose from, Off, Contacts Only, and Everyone.
 
 ![airdrop-detail-setting-on-ios](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-ios.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 03:** Now select Airdrop
 
 **Step 04:** From these three options, make sure to choose "Everyone"
 
 ![airdrop-detail-setting-on-ios2](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-ios2.jpg)
 
-It will make your device visible to everyone around you whether they are on your contact list or not.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+It will make your device visible to everyone around you whether they are on your contact list or not.
 
 ## Airdrop Setting on Mac
 
@@ -91,12 +87,16 @@ If you are trying to use Airdrop from iPhone or iPad to Mac but the mac is not b
 ![airdrop-detail-setting-on-mac-step2](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 03:** At the bottom of the screen, you can an option named "Allow me to be discovered by". Click on it and select Everyone from the drop-down list.
 
 ![airdrop-detail-setting-on-mac-step3](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 By doing this, you will make your Mac device ready to be paired with other devices around you. After changing these settings, the Airdrop will start to work fine.
 
@@ -107,7 +107,7 @@ You can do that on your iPhone simply by navigating to Settings > Wi-Fi. Now tap
 ![airdrop-detail-setting-on-mac-step4](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The same is the case with Bluetooth. Navigate to Settings > Bluetooth. Now tap the Bluetooth switch on/off twice.
@@ -133,7 +133,7 @@ After completing all the stated methods, the Airdrop will start to work properly
 3. Press & Hold Sleep button and keep holding it until the screen is off and it is on again.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,19 +169,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-crafting-a-captivating-voice-the-art-of-writing-film-dialogues/"><u>[New] 2024 Approved Crafting a Captivating Voice The Art of Writing Film Dialogues</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-expert-webinar-label-builder-kit/"><u>[New] Expert Webinar Label Builder Kit</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-frame-perfect-capture-leading-slow-motion-cameras-reviewed/"><u>[Updated] 2024 Approved Frame-Perfect Capture Leading Slow Motion Cameras Reviewed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-exclusive-free-player-list-for-windowsmac-users/"><u>[Updated] Exclusive Free Player List for Windows/Mac Users</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-discover-the-best-options-to-apply-vhs-photo-effects-on-computeronline/"><u>[Updated] In 2024, Discover The Best Options to Apply VHS Photo Effects on Computer/Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-instant-inspector-quick-photo-explorer-for-win10-for-2024/"><u>[Updated] Instant Inspector - Quick Photo Explorer for Win10 for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/amd-rx-480-graphics-drivers-download-and-update-easily/"><u>AMD RX 480 Graphics Drivers Download & Update Easily!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-evolution-empowered-by-smart-ai-innovations/"><u>Educational Evolution Empowered by Smart AI Innovations</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-gt-neo-5-se-by-drfone-android-unlock-android-unlock/"><u>How to unlock GT Neo 5 SE</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-7-artificial-intelligence-techniques-employed-by-fraudsters-in-love-deceptions/"><u>Top 7 Artificial Intelligence Techniques Employed by Fraudsters in Love Deceptions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-missing-modules-in-your-system-expert-solutions/"><u>Troubleshooting Missing Modules in Your System – Expert Solutions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/whats-the-real-distinction-between-youtube-and-dailymention-for-2024/"><u>What's the Real Distinction Between YouTube and DailyMention for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/wondershare-filmora-reviewed-features-costs-analyzed-and-more-insights/"><u>Wondershare Filmora Reviewed: Features, Costs Analyzed and More Insights</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-comprehensive-hdr-mastery-for-breathtaking-portraits/"><u>[New] 2024 Approved Comprehensive HDR Mastery for Breathtaking Portraits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-achieving-gradual-sound-boosts-with-lumafusion-for-2024/"><u>[New] Achieving Gradual Sound Boosts with Lumafusion for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-chromes-best-deals-on-screen-recorder-free-tools/"><u>[New] In 2024, Chrome's Best Deals on Screen Recorder Free Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfect-360-rotation-visual-exploration/"><u>[New] Perfect 360° Rotation Visual Exploration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-from-stills-to-movement-mastery-with-polaroids-latest-tech-for-2024/"><u>[Updated] From Stills to Movement Mastery with Polaroid's Latest Tech for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-15-leading-gopro-cutting-software/"><u>[Updated] In 2024, 15 Leading GoPro Cutting Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-perfecting-photography-with-phantoms-retrograde-technique/"><u>[Updated] In 2024, Perfecting Photography with Phantom's Retrograde Technique</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-art-of-blending-digital-canvases/"><u>2024 Approved The Art of Blending Digital Canvases</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/best-seo-firms-in-houston-expertise-with-seo-powersuite-solutions/"><u>Best SEO Firms in Houston - Expertise with SEO PowerSuite Solutions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-brainpower-advanced-strategies-for-conceptualizing-with-mindmaps-and-chatgpt/"><u>Boost Your Brainpower: Advanced Strategies for Conceptualizing with Mindmaps and ChatGPT</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/downloading-with-diligence-how-to-securely-save-imagesvideos-on-iphone/"><u>Downloading with Diligence How to Securely Save Images/Videos on iPhone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-fix-the-usb-cannot-be-installed-problem-due-to-access-issues/"><u>How to Fix the ‘USB Cannot Be Installed’ Problem Due to Access Issues</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-audio-alchemy-transforming-videos-through-music-addition-and-cutting/"><u>In 2024, Audio Alchemy Transforming Videos Through Music Addition & Cutting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-exploring-todays-top-tier-vr-headsets/"><u>In 2024, Exploring Today's Top-Tier VR Headsets</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
+<li><a href="https://os-tips.techidaily.com/iphone-and-ipad-update-discovering-the-newest-ios-and-ipados-versions/"><u>IPhone and iPad Update: Discovering the Newest iOS and iPadOS Versions!</u></a></li>
+<li><a href="https://win11.techidaily.com/reclaiming-the-lost-startup-window-in-windows/"><u>Reclaiming the Lost Startup Window in Windows</u></a></li>
 </ul></div>
 

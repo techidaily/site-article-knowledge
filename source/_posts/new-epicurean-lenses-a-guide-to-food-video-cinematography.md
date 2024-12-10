@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Epicurean Lenses  A Guide to Food Video Cinematography\""
-date: 2024-08-15T07:05:11.616Z
-updated: 2024-08-16T07:05:11.616Z
+date: 2024-12-09T16:19:48.882Z
+updated: 2024-12-10T16:04:16.430Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,10 @@ If you don’t start pulling them in, such as by telling a story, in the first t
 
 ![food](https://images.wondershare.com/filmora/article-images/food-sell-a-story.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Video Editing
 
 Once the video is shot, you’ll have to do some post-production work. In other words, you need to edit your video. This is more time consuming than with food photography, because you must edit by frame, place to music, add title frames, and so on.
@@ -89,17 +93,9 @@ One way to shoot food videos is with your smart phone. To do this, use the built
 Hold very still to prevent shaking, and simply hold the screen for autofocus and exposure prior to beginning your film.
 
 ![smart phone](https://images.wondershare.com/filmora/article-images/iphone-7-plus-4k-smartphone.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Lens
@@ -111,9 +107,6 @@ The lens you shoot with should be able to zoom in or out on the food. You’ll w
 As for the shooting itself, you can feel free to experiment with lenses that offer unique styles, such as soft or hard
 
 ![lens](https://images.wondershare.com/filmora/article-images/fujinon-mk18-55mm-t2.9-lens.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3\. Tripod
 
@@ -122,13 +115,11 @@ Another thing you’ll want when shooting with a camera is a tripod. A tripod is
 You can find a cheap tripod at many chain stores to get you started, although you may want to invest in a better one in the future.
 
 ![tripod](https://images.wondershare.com/filmora/article-images/gitzo-mountaineer-series-2-carbon-fiber-tripod.jpg)
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This basic guide should give you a solid start in creating top-of-the-line food videography for your social media accounts.
@@ -136,13 +127,15 @@ This basic guide should give you a solid start in creating top-of-the-line food 
 If you find your first video isn’t as amazing as you’d thought it would be, remember that it takes time to become a master at something. With practice, you will see the videos shot progressively becoming more professional.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -168,4 +161,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-decoding-uavs-the-science-behind-airborne-machines/"><u>[New] 2024 Approved Decoding UAVs The Science Behind Airborne Machines</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-auditory-interpretation-accessible-at-no-expense/"><u>[New] In 2024, Auditory Interpretation Accessible at No Expense</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-prime-gopro-editing-software-for-iosandroid-users-for-2024/"><u>[New] Prime GoPro Editing Software for iOS/Android Users for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-prime-insta-tunes-locator-a-guide-to-premium-sound-sets-for-2024/"><u>[New] Prime Insta Tunes Locator A Guide to Premium Sound Sets for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-streamlined-editing-best-apps-compatible-with-macos-big-sur-for-2024/"><u>[New] Streamlined Editing Best Apps Compatible with macOS Big Sur for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-aurora-hdr-experience-is-it-transformative-in-2024/"><u>[New] The Aurora HDR Experience Is It Transformative, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-hobbyist-to-professional-your-guide-to-design-success/"><u>[Updated] 2024 Approved From Hobbyist to Professional Your Guide to Design Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-make-a-mark-as-an-hdr-photography-pro-with-lightroom/"><u>[Updated] How to Make a Mark as an HDR Photography Pro with Lightroom</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-iphone-customization-changing-your-phones-tune/"><u>[Updated] IPhone Customization Changing Your Phone's Tune</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-redefining-visual-standards-hdr-vs-standard-sdr-for-2024/"><u>[Updated] Redefining Visual Standards HDR Vs. Standard SDR for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-guide-to-the-best-10-video-saving-devices/"><u>[Updated] Ultimate Guide to the Best 10 Video Saving Devices</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125187993-affordable-phrozen-sonic-mini-8k-ss-resin-3d-printer-now-just-325/"><u>Affordable Phrozen Sonic Mini 8K sS Resin 3D Printer Now Just $325</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-seize-the-money-opportunity-monetizing-on-youtube-through-mobile-devices/"><u>In 2024, Seize the Money Opportunity Monetizing on YouTube Through Mobile Devices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/protecting-your-identity-strategies-to-guard-against-ai-generated-voice-impersonation-fraud/"><u>Protecting Your Identity: Strategies to Guard Against AI-Generated Voice Impersonation Fraud</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-guide-score-unbeatable-gaming-laptop-offers-for-holidays-ranking-the-best-picks/"><u>Ultimate Guide: Score Unbeatable Gaming Laptop Offers for Holidays | Ranking the Best Picks</u></a></li>
+</ul></div>
 
