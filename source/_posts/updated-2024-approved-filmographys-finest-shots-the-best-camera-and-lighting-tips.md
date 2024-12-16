@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Filmography's Finest Shots  The Best Camera & Lighting Tips\""
-date: 2024-12-05T16:28:59.664Z
-updated: 2024-12-10T16:31:17.839Z
+date: 2024-12-12T17:42:54.094Z
+updated: 2024-12-16T18:15:55.979Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,13 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 Step 2 Now open and close the door to get smooth camera movement.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -67,6 +67,10 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -84,6 +88,10 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -107,14 +115,6 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -134,7 +134,11 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
@@ -160,7 +164,7 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
@@ -185,10 +189,6 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -208,11 +208,7 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -234,6 +230,10 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -271,20 +271,24 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-demystifying-premiere-pros-corrections-for-overexposed-iphone-videos/"><u>[New] 2024 Approved Demystifying Premiere Pro's Corrections for Overexposed iPhone Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-auroras-hdv-does-it-elevate-your-home-cinema/"><u>[New] Aurora's HDV Does It Elevate Your Home Cinema?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-samsungs-guide-to-crafting-captivating-time-lapses-with-smartphones/"><u>[New] Samsung's Guide to Crafting Captivating Time-Lapses with Smartphones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-eliminating-camera-tremors-in-gopro-recordings/"><u>[Updated] In 2024, Eliminating Camera Tremors in GoPro Recordings</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-compiling-the-best-12-cost-free-video-apps-for-all-platforms/"><u>2024 Approved Compiling the Best 12 Cost-Free Video Apps for All Platforms</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-premier-10-drone-teams-for-cinematic-mastery/"><u>2024 Approved Premier 10-Drone Teams for Cinematic Mastery</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/capture-moments-on-a-dime-kodaks-fz53-explored/"><u>Capture Moments on a Dime - Kodak's FZ53 Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-criacr-bluetooth-fm-transmitter-cp2n-in-depth-review-and-analysis/"><u>Compact CRIACR Bluetooth FM Transmitter (CP2n): In-Depth Review & Analysis</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-beat-the-best-substitutes-for-samsungs-vr-camera-gear-360/"><u>In 2024, Beat the Best Substitutes for Samsung's VR Camera Gear 360</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-prime-mac-gif-cutter/"><u>In 2024, Prime Mac GIF Cutter</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mastering-steam-troubles-eliminate-black-screens-with-these-7-effective-solutions/"><u>Mastering Steam Troubles: Eliminate Black Screens with These 7 Effective Solutions</u></a></li>
-<li><a href="https://win-net.techidaily.com/seamlessly-save-music-tracks-from-mp3zingvn-in-premium-formats-like-wav-mp3-or-flac-for-enhanced-listening-experience/"><u>Seamlessly Save Music Tracks From mp3.zing.vn in Premium Formats Like WAV, MP3, or FLAC for Enhanced Listening Experience</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/testing-toughness-prohero-hero-vs-nikkor-km-170-for-2024/"><u>Testing Toughness ProHero Hero Vs Nikkor KM-170 for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-no-cost-face-generation-top-online-platforms-for-2024/"><u>Updated No-Cost Face Generation Top Online Platforms for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-broadcast-battles-tech-titans-tussle-for-top-spot/"><u>[New] 2024 Approved Broadcast Battles Tech Titans Tussle for Top Spot</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-drone-enthusiasts-guide-to-vibration-reduction-and-image-quality/"><u>[New] 2024 Approved The Drone Enthusiast's Guide to Vibration Reduction and Image Quality</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-zero-money-high-quality-ranks-of-best-recording-apps/"><u>[New] 2024 Approved Zero Money, High Quality Ranks of Best Recording Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-elevating-your-work-with-dynamic-hdr-techniques-for-2024/"><u>[New] Elevating Your Work with Dynamic HDR Techniques for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-rapid-fire-windowed-image-reader/"><u>[New] In 2024, Rapid-Fire Windowed Image Reader</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-meme-magic-unleashed-top-humorous-creations-for-the-metaverse-world/"><u>[New] Meme Magic Unleashed Top Humorous Creations for the Metaverse World</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treaming-made-easy-google-meet-to-youtube-guide-for-2024/"><u>[New] Streaming Made Easy Google Meet to YouTube Guide for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-explore-the-finest-8-websites-3d-and-luxurious-text/"><u>[Updated] In 2024, Explore the Finest 8 Websites 3D & Luxurious Text</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-filmora-fusion-a-comprehensible-comparative-guide/"><u>2024 Approved Filmora Fusion A Comprehensible Comparative Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-most-popular-5-ios-photoshooting-apps-x-7-8/"><u>2024 Approved Most Popular 5 iOS Photoshooting Apps (X, 7, 8)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/deep-10-immersive-youtube-videos-for-vr-enthusiasts/"><u>Dive Deep 10 Immersive YouTube Videos for VR Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-action-capture-duel-2022-gopro-hero5-versus-garmin-virb/"><u>In 2024, Action Capture Duel 2022 GoPro Hero5 Versus Garmin VIRB</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-how-to-enhance-your-gopros-battery-health/"><u>In 2024, How to Enhance Your GoPro's Battery Health</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-screen-spectacular-sj6-vs-yi-4k-edition/"><u>In 2024, Screen Spectacular SJ6 Vs. Yi 4K Edition</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/itel-p55-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel P55 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-the-persistent-windows-update-issue-error-8007000e-explained-and-resolved/"><u>Overcoming the Persistent Windows Update Issue: Error 8007000E Explained and Resolved</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/seamless-connectivity-find-download-and-update-drivers-for-netgear-wireless-adapters-today/"><u>Seamless Connectivity: Find, Download & Update Drivers for NETGEAR Wireless Adapters Today!</u></a></li>
+<li><a href="https://win11.techidaily.com/unpacking-windows-update-mysteries/"><u>Unpacking Window's Update Mysteries</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ushering-bliss-into-your-unboxing-experience-for-2024/"><u>Ushering Bliss Into Your Unboxing Experience for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chromatic Ingenuity  From Concept to Creation for 2024\""
-date: 2024-12-03T16:47:29.013Z
-updated: 2024-12-10T16:21:37.943Z
+date: 2024-12-14T17:46:00.767Z
+updated: 2024-12-16T17:15:32.868Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -38,7 +34,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -48,20 +44,20 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -83,10 +79,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,18 +123,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-audio-visual-innovators-group/"><u>[New] 2024 Approved Audio-Visual Innovators Group</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-elevate-your-photography-with-polarrs-complete-features/"><u>[New] 2024 Approved Elevate Your Photography with Polarr's Complete Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-list-7-indispensable-devices-in-the-metaverse/"><u>[New] 2024 Approved The Ultimate List 7 Indispensable Devices in the Metaverse</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-narrative-power-in-marketing-20-must-use-phrases/"><u>[New] In 2024, Narrative Power in Marketing 20 Must-Use Phrases</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-get-precise-audio-capturing-for-your-pc-with-x-recorder/"><u>[Updated] Get Precise Audio Capturing for Your PC with X-Recorder</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/como-gesticuar-y-manejar-tu-iphone-de-manera-eficiente-en-windows-10-una-mejor-alternativa-al-anterior/"><u>Cómo Gesticuar Y Manejar Tu iPhone De Manera Eficiente en Windows 10, Una Mejor Alternativa Al Anterior</u></a></li>
-<li><a href="https://win-dash.techidaily.com/comprehensive-solution-to-overcome-intel-hd-graphics-630-drivers-glitch-in-windows-environments/"><u>Comprehensive Solution to Overcome Intel HD Graphics 630 Drivers Glitch in Windows Environments</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/elevate-edits-complimentary-image-enhancer-app-for-2024/"><u>Elevate Edits - Complimentary Image Enhancer App for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme V30? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-11-pro-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 11 Pro Is Unlocked</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-generic-bluetooth-adapter-software-update-compatible-with-windows-systems/"><u>Latest Generic Bluetooth Adapter Software Update – Compatible with Windows Systems</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-musings-video-characters-and-sounds/"><u>Micro Musings Video Characters & Sounds</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1094679-9781742757926-poems-of-love-and-life-for-sagittarius/"><u>Poems of Love and Life for Sagittarius | Free Book</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unveiling-the-art-of-chromatic-mastery-in-video-editing-11-steps/"><u>[New] In 2024, Unveiling the Art of Chromatic Mastery in Video Editing (11 Steps)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-embrace-laughter-and-sorrow-with-these-top-10-meme-igs/"><u>[Updated] Embrace Laughter and Sorrow with These Top 10 Meme IGs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-superior-cameras-for-clear-smooth-podcast-sessions/"><u>[Updated] In 2024, Superior Cameras for Clear, Smooth Podcast Sessions</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-discover-the-secrets-of-tailoring-your-voice-on-tiktok/"><u>2024 Approved Discover the Secrets of Tailoring Your Voice on TikTok</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comprehensively-understanding-iphone-audio-acquisition-for-2024/"><u>Comprehensively Understanding iPhone Audio Acquisition for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722888454571-configure-anything-with-these-simple-steps-for-a-universal-remote-control/"><u>Configure Anything with These Simple Steps for a Universal Remote Control</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/revolutionizing-public-sector-operations-the-intelligent-automation-era-government-technology-podcast-insights/"><u>Revolutionizing Public Sector Operations: The Intelligent Automation Era - Government Technology Podcast Insights</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/transform-your-footage-with-fast-and-flawless-trims-in-windows-11/"><u>Transform Your Footage with Fast & Flawless Trims in Windows 11</u></a></li>
+<li><a href="https://article-files.techidaily.com/ultimate-collection-10-excellent-photo-background-alternators/"><u>Ultimate Collection 10 Excellent Photo-Background Alternators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unleashing-adventures-in-samsung-gear-vr-worlds/"><u>Unleashing Adventures in Samsung Gear VR Worlds</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 6s Plus | Dr.fone</u></a></li>
 </ul></div>
 

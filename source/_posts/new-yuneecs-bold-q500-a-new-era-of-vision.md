@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Yuneec's Bold Q500  A New Era of Vision\""
-date: 2024-12-08T16:19:54.764Z
-updated: 2024-12-10T16:06:39.378Z
+date: 2024-12-13T16:28:14.066Z
+updated: 2024-12-16T16:12:17.196Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Pros and Cons of Yuneec Typhoon Q500 4K Quadcopter
 
@@ -84,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 
 ![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The transmitter as well as personal ground station of this system, both are combined together to form a single device that supports 10 channel functioning at 2.4GHz. Controller helps to make easy adjustments for flight modes and decisions about adventurous activities in air can be done easily. Roughly the control range is reported up to 800 meters. The dynamic return to home buttons offers fast response from drone to get back to its original position and it is very helpful if your device is running out of battery and it is required to make a safe landing as soon as possible. If you are able to understand the surroundings perfectly and learn all the control functions then it will become much easier to avoid crashes on the way and your device will surely work for years with great flight performances.
 
 #### 6\.  Camera
@@ -108,13 +108,13 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,7 +124,7 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -152,18 +152,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-calculator-projected-profits-from-youtube/"><u>[New] Calculator Projected Profits From YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-essential-manual-to-fb-video-playback-settings/"><u>[New] In 2024, The Essential Manual to FB Video Playback Settings</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-high-speed-race-replicas-our-top-picks/"><u>[Updated] 2024 Approved High-Speed Race Replicas Our Top Picks</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-the-proactive-approach-to-guesting-in-livestreams-on-tiktok/"><u>[Updated] 2024 Approved The Proactive Approach to Guesting in Livestreams on TikTok</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-core-principles-for-online-storytelling-craftsmanship/"><u>2024 Approved Core Principles for Online Storytelling Craftsmanship</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-finding-the-best-replacement-for-magixs-acid-pro/"><u>2024 Approved Finding the Best Replacement for Magix's ACID Pro</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-inspirational-movies-for-momentum-and-self-belief/"><u>2024 Approved Inspirational Movies for Momentum and Self-Belief</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-major-firstrow-pursuits-that-arent-games/"><u>2024 Approved Major Firstrow Pursuits That Aren't Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-slow-motion-a-guide-to-photo-editing-tools/"><u>2024 Approved Mastering Slow-Motion A Guide to Photo Editing Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-real-time-photo-editing-on-the-go-cropping-techniques/"><u>2024 Approved Real-Time Photo Editing On-the-Go Cropping Techniques</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/master-straightforward-pc-refresh-methods-with-yl-software-solutions/"><u>Master Straightforward PC Refresh Methods with YL Software Solutions</u></a></li>
-<li><a href="https://win-studio.techidaily.com/step-by-step-guide-how-to-retrieve-unsaved-excel-files-on-windows-10/"><u>Step-by-Step Guide: How to Retrieve Unsaved Excel Files on Windows 10</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-to-digitizing-and-saving-faded-frames/"><u>The Ultimate Guide to Digitizing and Saving Faded Frames</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-blueprint-for-thriving-in-virtual-events-stream-success-tips-for-2024/"><u>[New] Blueprint for Thriving In Virtual Events Stream Success Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-elevate-your-space-top-cloud-choices-for-2024/"><u>[New] Elevate Your Space Top Cloud Choices for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-expertise-in-virtual-assessment-vll-of-apps/"><u>[New] Expertise in Virtual Assessment VLL of Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-isolated-audio-interruption-fixed-guide/"><u>[New] Isolated Audio Interruption Fixed Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pros-hunters-rate-action-camera-winners-for-2024/"><u>[New] Pros Hunters Rate Action Camera Winners for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-step-by-step-for-xml-and-ttml-conversion-to-streamlined-srts-for-2024/"><u>[New] Step-by-Step for XML & TTML Conversion to Streamlined SRTs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-venture-into-virtual-reality-with-top-mobile-headsets/"><u>[Updated] Venture Into Virtual Reality with Top Mobile Headsets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-elitemac-perfect-blend-of-screen-and-audio-capturing-features/"><u>2024 Approved EliteMac Perfect Blend of Screen and Audio Capturing Features</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-make-and-download-your-own-instagram-sound/"><u>2024 Approved How to Make & Download Your Own Instagram Sound</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-xiaomi-redmi-k70-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Xiaomi Redmi K70? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chargetech-27000mah-battery-pack-review/"><u>ChargeTech 27000mAh Battery Pack Review</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dont-miss-out-exclusive-offers-on-amazon-8tb-samsung-t5-ssd-at-36-less-than-retail-price-after-prime-day/"><u>Don't Miss Out: Exclusive Offers on Amazon - 8TB Samsung T5 SSD at 36% Less Than Retail Price After Prime Day!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-choices-of-drones-up-for-grabs/"><u>In 2024, Prime Choices of Drones Up for Grabs</u></a></li>
+<li><a href="https://win-lab.techidaily.com/microsofts-arm-revival-is-it-poised-to-surpass-apples-silicon-dominance-on-windows-platforms/"><u>Microsoft's Arm Revival: Is It Poised to Surpass Apple's Silicon Dominance on Windows Platforms?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smart-selections-top-10-apps-for-in-the-moment-baseball-and-soccer-viewing-for-2024/"><u>Smart Selections Top 10 Apps for In-the-Moment Baseball and Soccer Viewing for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-guide-to-windows-10-picture-and-media-importer-for-2024/"><u>The Ultimate Guide to Windows 10 Picture & Media Importer for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-list-of-easy-free-ios-tools-for-stunning-collage-creation-for-2024/"><u>The Ultimate List of Easy, FREE iOS Tools for Stunning Collage Creation for 2024</u></a></li>
 </ul></div>
 

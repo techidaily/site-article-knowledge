@@ -1,7 +1,7 @@
 ---
 title: "\"Enhance Spark AR Graphics  The Importance of Customized LUT Usage\""
-date: 2024-12-08T16:09:39.263Z
-updated: 2024-12-10T16:35:04.202Z
+date: 2024-12-15T19:21:20.707Z
+updated: 2024-12-16T18:06:07.227Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How to use LUTs in Spark AR?
 
 **How to apply a color LUT to the whole scene in Spark AR:**
@@ -53,6 +57,10 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
@@ -65,13 +73,13 @@ The patch graph that renders the color gradation effect looks like this:
 * ColorLUTShader looks up the RGBA values of this texture in the Tension color LUT array and converts them to a new green color. This will change the texture and create a gradient effect.
 * Finally, the Screen Output patch renders the green color.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
@@ -99,7 +107,7 @@ Even while using large image sequences is frequently discouraged, you can still 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Transition Curves
@@ -108,14 +116,6 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
@@ -123,7 +123,11 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
@@ -133,11 +137,7 @@ Given how beautifully Glitter Rain was received, I believed it would be fitting 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Closing Thoughts
@@ -174,22 +174,22 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-charting-course-videos-as-catalysts-in-teaching/"><u>[New] 2024 Approved Charting Course Videos as Catalysts in Teaching</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enhancing-live-performance-dynamics/"><u>[New] 2024 Approved Enhancing Live Performance Dynamics</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-quest-for-perfection-topiary-angles-in-mobile-photography/"><u>[New] 2024 Approved The Quest for Perfection Topiary Angles in Mobile Photography</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-accelerate-document-creation-learning-ms-words-speech-feature/"><u>[New] Accelerate Document Creation Learning MS Word's Speech Feature</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-embracing-illusion-what-is-vrs-truth-in-2024/"><u>[New] Embracing Illusion What Is VR's Truth, In 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-financial-incentives-behind-vlogger-rating-videos-in-2024/"><u>[New] Financial Incentives Behind Vlogger Rating Videos, In 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unleash-marketing-potential-through-strategy-boxing/"><u>[New] In 2024, Unleash Marketing Potential Through Strategy Boxing</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-infinite-frontier-the-best-sci-fi-films-that-redefine-universes-for-2024/"><u>[New] Infinite Frontier The Best Sci-Fi Films That Redefine Universes for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-streamlining-video-sharing-between-twitter-and-tumblr-for-2024/"><u>[New] Streamlining Video Sharing Between Twitter and Tumblr for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-curated-list-14-captivating-text-animation-showcases/"><u>[Updated] 2024 Approved Curated List 14 Captivating Text Animation Showcases</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-itel-p55-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Itel P55 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-playback-problem-why-cant-i-watch-video-on-sony-a6400/"><u>In 2024, Playback Problem Why Can't I Watch Video on Sony A6400?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-setup-essentials-prepping-for-a-thriving-youtube-channel/"><u>In 2024, Setup Essentials Prepping for a Thriving YouTube Channel</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-smart-7-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Smart 7 FRP Bypass</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/maximize-instagram-network-best-free-safe-androidios-followers-for-2024/"><u>Maximize Instagram Network - Best Free, Safe Android/iOS Followers for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-oppo-a18-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Oppo A18 Phone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-tips-for-maximizing-iphone-xs-cinematic-shots-for-2024/"><u>Top Tips for Maximizing iPhone X's Cinematic Shots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-your-content-10-exceptional-reacting-techniques-for-2024/"><u>[New] Enhancing Your Content 10 Exceptional Reacting Techniques for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-depth-guide-to-simple-high-dynamic-range/"><u>[New] In-Depth Guide to Simple High Dynamic Range</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-the-art-of-youtube-teaser-videos/"><u>[New] Mastering the Art of YouTube Teaser Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unboxing-the-future-a-review-of-polaroid-camplus-cubeplus/"><u>[Updated] 2024 Approved Unboxing the Future A Review of Polaroid Cam+ Cube+</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleashing-funimate-joy-comprehensive-tutorials/"><u>[Updated] 2024 Approved Unleashing Funimate Joy - Comprehensive Tutorials</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-clearer-iphone-hd-images-post-production-with-4-key-premiere-pro-fixes/"><u>[Updated] Clearer iPhone HD Images Post-Production with 4 Key Premiere Pro Fixes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-navigating-macos-to-optimize-mixer-streams/"><u>[Updated] In 2024, Navigating MacOS to Optimize Mixer Streams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-visual-magic-implementing-filters-on-digital-media-for-2024/"><u>[Updated] Visual Magic Implementing Filters on Digital Media for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-boost-your-social-media-presence-through-instagram-video-edits/"><u>In 2024, Boost Your Social Media Presence Through Instagram Video Edits</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-motorola-edge-40-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Motorola Edge 40 Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-xiaomi-14-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Xiaomi 14 Pro to New Phone | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-ideal-companion-15-tripods-and-mounts-for-gopro-excellence/"><u>In 2024, The Ideal Companion 15 Tripods and Mounts for GoPro Excellence</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/online-kostenloos-mpeg-to-mp4-transformator-movavi-gratis-mpeg-in-mp4-upconverteren/"><u>Online Kostenloos MPEG-to-MP4 Transformator Movavi - Gratis MPEG in MP4 Upconverteren</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-complete-harry-potter-film-series-a-viewing-guide/"><u>The Complete Harry Potter Film Series: A Viewing Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-boundaries-with-multilingual-mastery/"><u>Transcend Boundaries with Multilingual Mastery</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-guide-to-premium-automotive-camera-tech/"><u>Ultimate Guide to Premium Automotive Camera Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/understanding-the-magic-behind-quantum-hdr/"><u>Understanding the Magic Behind Quantum HDR</u></a></li>
 </ul></div>
 

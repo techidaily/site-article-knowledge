@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking Creativity  Seamless Integration of Title & Caption Overlays on Video Clips via Microsoft Photos\""
-date: 2024-12-03T16:38:34.637Z
-updated: 2024-12-10T16:19:56.846Z
+date: 2024-12-10T16:00:15.131Z
+updated: 2024-12-16T18:31:42.379Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -48,17 +52,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -75,10 +75,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -86,7 +82,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
@@ -94,10 +90,14 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,21 +130,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-action-capture-duel-2022-gopro-hero5-versus-garmin-virb/"><u>[New] In 2024, Action Capture Duel 2022 GoPro Hero5 Versus Garmin VIRB</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-explore-artistic-possibilities-premier-android-graphics-app-selection/"><u>[New] In 2024, Explore Artistic Possibilities Premier Android Graphics App Selection</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigate-networking-needs-8-free-fb-downloader-apps-for-2024/"><u>[New] Navigate Networking Needs - 8 Free FB Downloader Apps for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-crafting-conversations-proven-techniques-for-telegram-engagement/"><u>[Updated] 2024 Approved Crafting Conversations Proven Techniques for Telegram Engagement</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-whatsapp-status-now-with-symphony/"><u>[Updated] 2024 Approved WhatsApp Status, Now with Symphony</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-all-inclusive-review-of-dji-phantom-4-technology/"><u>[Updated] All-Inclusive Review of DJI Phantom 4 Technology</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-mastering-screenplay-essential-dialogue-techniques/"><u>[Updated] In 2024, Mastering Screenplay Essential Dialogue Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-navigating-through-your-new-laptops-m1-max-clips/"><u>[Updated] In 2024, Navigating Through Your New Laptop's M1 Max Clips</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-top-tier-strategies-for-flawless-srt-file-integration-on-vero-and-tumblr-for-2024/"><u>[Updated] Top-Tier Strategies for Flawless SRT File Integration on Vero & Tumblr for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-elite-15-4k-video-capture-gadgets/"><u>2024 Approved Elite 15 4K Video Capture Gadgets</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-perfect-your-crafting-skills-using-these-7-sounds-tracks/"><u>2024 Approved Perfect Your Crafting Skills Using These 7 Sounds Tracks</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/1728484431990-hddssd/"><u>大型HDDを小型SSDに変換する独自方法：専門家アドバイスあり</u></a></li>
-<li><a href="https://fox-info.techidaily.com/a-pictures-worth-a-thousand-dollars-online-top-photo-cloud-services-reviewed-for-2024/"><u>A Picture's Worth a Thousand Dollars Online Top Photo Cloud Services Reviewed for 2024</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/hd-wallpaper-downloads-of-millie-bobby-brown-2019-high-quality-images-and-pics-by-yl-computing/"><u>HD Wallpaper Downloads of Millie Bobby Brown (2019) - High-Quality Images and Pics by YL Computing</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-quickly-and-successfully-download-the-logitech-k350-software-for-optimal-performance/"><u>How To Quickly and Successfully Download The Logitech K350 Software for Optimal Performance</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-xiaomi-13-ultra-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Xiaomi 13 Ultra? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-explore-new-realms-best-iphoneandroid-vr-games-for-2024/"><u>[New] Explore New Realms Best iPhone/Android VR Games for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-revolutionize-your-augmented-reality-graphics-using-custom-luts-for-2024/"><u>[New] Revolutionize Your Augmented Reality Graphics Using Custom LUTs for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gif-magic-transformations-without-extra-files-downloaded/"><u>[Updated] GIF Magic Transformations Without Extra Files Downloaded</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-recording-winning-calls-a-complete-guide-free-vs-paid-for-windows-and-mac-users/"><u>[Updated] In 2024, Recording Winning Calls A Complete Guide (Free vs Paid) for Windows & Mac Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-smile-spawning-creativity-in-adobe-meme-making-for-2024/"><u>[Updated] Smile Spawning Creativity in Adobe Meme-Making for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-wallet-friendly-skydock-sufficient-file-space-for-2024/"><u>[Updated] Wallet-Friendly SkyDock Sufficient File Space for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-apples-podcast-potential-an-instructional-guide/"><u>2024 Approved Unlocking Apple's Podcast Potential An Instructional Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-message-volume-damaged-0x80071ac3-troubleshooting-steps-for-recovery/"><u>Error Message: Volume Damaged (0X80071AC3) - Troubleshooting Steps for Recovery</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/full-screen-glitch-resolved-in-obs-for-2024/"><u>Full-Screen Glitch Resolved in Obs for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-camera-to-feed-ig-photo-tutorial/"><u>In 2024, From Camera to Feed IG Photo Tutorial</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-photographys-new-era-smartphones-spearheading-change/"><u>In 2024, Photography's New Era Smartphones Spearheading Change</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-proven-methods-for-zooid-creation/"><u>In 2024, Proven Methods for Zooid Creation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/launch-any-video-projects-with-free-kits-for-2024/"><u>Launch Any Video Projects with Free Kits for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-80s-revivalists-handbook-for-dynamic-editing-techniques/"><u>The 80S Revivalist's Handbook for Dynamic Editing Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/utilizing-ai-how-a-modern-store-maintains-stock-with-machine-learning-and-computer-vision-techniques-insights-from-zdnet/"><u>Utilizing AI: How a Modern Store Maintains Stock with Machine Learning & Computer Vision Techniques - Insights From ZDNet</u></a></li>
 </ul></div>
 

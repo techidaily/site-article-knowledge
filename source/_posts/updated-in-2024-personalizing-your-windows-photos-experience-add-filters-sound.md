@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Personalizing Your Windows Photos Experience  Add Filters, Sound\""
-date: 2024-12-08T16:56:16.478Z
-updated: 2024-12-10T16:21:39.902Z
+date: 2024-12-14T19:01:49.414Z
+updated: 2024-12-16T18:43:49.186Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to add filters on Windows 10 Photos App
@@ -60,10 +60,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -79,7 +75,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -87,10 +83,14 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-crafting-compelling-narratives-with-spotify-ads/"><u>[New] 2024 Approved Crafting Compelling Narratives with Spotify Ads</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-leading-websites-your-source-for-legal-skype-ringtones/"><u>[New] Leading Websites Your Source for Legal Skype Ringtones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-engineer-ethical-emojis-on-giphy/"><u>[Updated] Engineer Ethical Emojis on Giphy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-essential-zoom-strategies-for-chromeos-for-2024/"><u>[Updated] Essential Zoom Strategies for ChromeOS for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-revolutionizing-smartphone-photography-iphone-xs-features-explored/"><u>[Updated] In 2024, Revolutionizing Smartphone Photography IPhone X's Features Explored</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-vr-headset-hq-the-top-pc-vr-devices-of-2023-for-2024/"><u>[Updated] VR Headset HQ The Top PC VR Devices of 2023 for 2024</u></a></li>
-<li><a href="https://fox-making.techidaily.com/boilerplate-mastery-for-developers-pro-horizon-ai-framework-advanced-oauth-stripe-and-supabase-features-in-nextjsfigma-combo-by-creative-tim/"><u>Boilerplate Mastery for Developers: Pro Horizon AI Framework - Advanced OAuth, Stripe & Supabase Features in NextJS/Figma Combo by Creative Tim</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/conversione-rapida-online-trasformare-file-mpe-a-formato-m4a-gratuitamente-con-movavi/"><u>Conversione Rapida Online: Trasformare File MPE a Formato M4A Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-fix-disk-issues-on-windows-11-a-comprehensive-guide/"><u>How to Fix Disk Issues on Windows 11 - A Comprehensive Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-insiders-guide-to-dynamic-and-engaging-tiktok-edits-for-2024/"><u>The Insider's Guide to Dynamic and Engaging TikTok Edits for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-saga-tracing-facebooks-footprints/"><u>The Metaverse Saga: Tracing Facebook's Footprints</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-fade-in-fade-out-exploring-two-essential-audio-techniques-in-final-cut-pro/"><u>Updated In 2024, Fade In, Fade Out Exploring Two Essential Audio Techniques in Final Cut Pro</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-tecno-camon-20-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Tecno Camon 20 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-gopro-film-perfection-best-15-lut-list-unveiled/"><u>[New] 2024 Approved GoPro Film Perfection Best 15 LUT List Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-adding-the-latest-social-media-snapchat-to-mac-for-2024/"><u>[New] Adding the Latest Social Media Snapchat to Mac for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-copyright-free-game-audio-repositories-for-2024/"><u>[New] Copyright-Free Game Audio Repositories for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-skills-style-success-your-roadmap-in-the-creative-industry/"><u>[New] In 2024, Skills, Style, Success Your Roadmap in the Creative Industry</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-reducing-noise-sensitivity-in-logic-pro-mixes/"><u>[New] Reducing Noise Sensitivity in Logic Pro Mixes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-insiders-10-list-top-terraria-upgrades-for-2024/"><u>[Updated] Insider's 10 List Top Terraria Upgrades for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-oneplus-12-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to OnePlus 12 FRP Bypass Instantly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-extreme-quality-top-5-for-slow-motion-precision/"><u>In 2024, Extreme Quality Top 5 for Slow Motion Precision</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-windows-11-compatibility-issues-for-non-functional-headphones/"><u>Solving Windows 11 Compatibility Issues for Non-Functional Headphones</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-oppo-reno-11-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Oppo Reno 11 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
 </ul></div>
 
