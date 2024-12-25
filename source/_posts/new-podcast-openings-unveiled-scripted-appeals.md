@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Podcast Openings Unveiled  Scripted Appeals\""
-date: 2024-12-10T19:11:42.242Z
-updated: 2024-12-16T18:18:13.362Z
+date: 2024-12-19T02:10:36.740Z
+updated: 2024-12-25T08:02:11.193Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ If you're new to podcasting or having difficulties attracting an audience, keep 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. What are podcasts intros?
 
 A podcast intro is like a teaser that gives an insight into what the episode will be about. The introduction to the podcast usually appears at the start of the podcast.
@@ -59,10 +63,6 @@ Podcasts have gained massive popularity over the last decade. Currently, over 30
 
 The game is to entice the listener so that he would want more, and for that, we need an intro that is powerful enough to intrigue the audience. After establishing why we need a podcast intro, let's look at some sample intros from popular podcasts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. What do podcast intros in trending podcasts sound like?
 
 We will analyze the intros of the top three podcasts to find out the most important elements that make the introduction snappy enough to capture the audience.
@@ -71,7 +71,15 @@ We will analyze the intros of the top three podcasts to find out the most import
 
 ![this american life](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 According to the US rankings, "This American Life" is the fourth most popular podcast and focuses on people's real-life stories. This podcast has around 2.2 million listeners. Ira Glass hosts the show, and episodes are released weekly. Ira introduces a new character in each episode and inquires about their background.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [My favorite murder](https://www.exactlyrightmedia.com/myfavoritemurder)
 
@@ -99,10 +107,6 @@ _Table 1: shows the analysis of intros of the top 3 podcasts discussed above_
 
 Now that we've established which elements are more prominent in the intros of some of the most popular podcasts. Let's review the essentials you should keep in mind when designing your introduction.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. How to make a good podcast intro?
 
 If you want the audience to be unable to resist your podcast, design your podcast intro with the following tips in mind.
@@ -138,6 +142,10 @@ A call to action is also effective in establishing familiarity with the listener
 
 For instance, in the intro of "This American Life," Ira Glass uses the phrase, "If you haven't tried the previous episodes yet, you should." reminding the new audience to check the previous episodes as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### When is the right time to introduce yourself and your guests?
 
 Logically it would help if you introduced yourself to the new audience right after introducing the name of your podcast. Introducing yourself is not challenging, but you can use guest introductions to create a buzz that will help you gain your listeners' attention.
@@ -145,10 +153,6 @@ Logically it would help if you introduced yourself to the new audience right aft
 The proper way to introduce your episode guest is to tell your audience about their background, how you know them, and why you invited them to your podcast. It will pique the listener's interest, and they will tune in to learn more. Now that you recognize what elements to pay attention to if you want to create a killer podcast intro.
 
 Let's look at the samples of some of the most popular podcast intros.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. Effective podcast introduction examples
 
@@ -159,7 +163,7 @@ Once you've figured out how a good podcast intro should be, the last step would 
 ![crushed](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Crushed is one of the top comedy podcasts in which people narrate their one-sided love stories to the host. First, let's look at its intro.
@@ -179,10 +183,6 @@ This podcast's intro, which lasted for only 25 seconds, was backed by dramatic m
 **Free Template for a Comedy Podcast**
 
 Hello! and welcome to —------------ (podcast name); the podcast is about the —---------------. (what is the podcast about) My guest today is the —---------.(introduction of the guest). We have an excellent episode for you today! So buckle up your seat belts, and let's get right into it!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [Global News Podcast](https://www.bbc.co.uk/programmes/p0d9229j)
 
@@ -242,16 +242,12 @@ The following program contains adult content, violence, and strong language. The
 
 Despite operating in plain sight for almost —-----, it took a twist of fate for his reign of terror to finally come to an end. And yes, you guessed it, right, ladies and gentlemen, today we will talk about the infamous —------.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [Football Weekly](https://www.theguardian.com/football/series/footballweekly)\- A sports podcast
 
 ![football weekly](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Football Weekly is the best sports podcast, and its intro goes like this,
@@ -269,10 +265,6 @@ The intro tells the platform, then what will be discussed in the episode, and en
 This is —-------(the podcast's name). Hello and welcome to the —----------; more votes are needed for—-------, this time losing at the bottom of the league (a tagline related to any of the sports teams to hook the audience)
 
 —-------- is at the panel today with us (introduce the guest of the episode). Yesterday's game of —--- was a bummer, and we'll talk about it later in the episode.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final words
 
@@ -298,6 +290,10 @@ Your podcast intro should be brief and snappy. The ideal duration for a podcast 
 
 The intro of "This American Life" lasted for sixty seconds, while the intro of stuff you should know was over in about forty seconds. Both of these intros were short and to the point. However, they did an excellent job of providing just the correct information to pique the audience's interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Is background music helpful in making the intro more appealing?
 
 Selecting a soundtrack or sound effects for your podcast intro is optional, but it enhances the quality of the content presented. The soundtrack should be chosen carefully as it functions as a logo that presents a brand.
@@ -331,13 +327,13 @@ The proper way to introduce your episode guest is to tell your audience about th
 
 Let's look at the samples of some of the most popular podcast intros.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. Effective podcast introduction examples
 
 Once you've figured out how a good podcast intro should be, the last step would be to glance at the intros of the following popular podcasts to eliminate any further ambiguity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Crushed - A Comedy Podcast
 
@@ -397,6 +393,10 @@ This podcast's intro is a bit of a freestyle that changes with each episode. It'
 
 Hey! What's going on, ladies and gentlemen? This podcast is a —---------------- (explain what the podcast is about). My guest today is —-----, who is a —----- (introduce the guest), and if you are a frequent listener of —------, then you must know that I love talking about life, philosophy, and the differences in society's cultures!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Welcome to Your Fantasy](https://podcasts.apple.com/us/podcast/9-where-the-butt-ends/id1517709981?i=1000533849644) \- A crime show podcast
 
 ![welcome to your fantasy](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-7.jpg)
@@ -423,6 +423,10 @@ Despite operating in plain sight for almost —-----, it took a twist of fate fo
 
 ![football weekly](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Football Weekly is the best sports podcast, and its intro goes like this,
 
 **Football Weekly's Intro**
@@ -438,10 +442,6 @@ The intro tells the platform, then what will be discussed in the episode, and en
 This is —-------(the podcast's name). Hello and welcome to the —----------; more votes are needed for—-------, this time losing at the bottom of the league (a tagline related to any of the sports teams to hook the audience)
 
 —-------- is at the panel today with us (introduce the guest of the episode). Yesterday's game of —--- was a bummer, and we'll talk about it later in the episode.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final words
 
@@ -477,24 +477,14 @@ And hopefully, after going over the crux and tips mentioned above, you will be a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-blended-vocalists-one-platform-at-a-time-for-2024/"><u>[New] Blended Vocalists, One Platform at a Time for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-essential-role-of-voice-in-visual-content-for-2024/"><u>[New] The Essential Role of Voice in Visual Content for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-pro-audio-recordings-the-11-best-tools-for-live-events-for-2024/"><u>[Updated] Pro Audio Recordings The 11 Best Tools for Live Events for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a-guide-to-establishing-a-vlog-centered-on-merchandise-assessments/"><u>A Guide to Establishing a Vlog Centered on Merchandise Assessments</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/a-newbies-compendium-of-best-cinematography-devices-35mm-pands-for-2024/"><u>A Newbie's Compendium of Best Cinematography Devices (35Mm-P&S) for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/adventure-essentials-top-10-gopro-protectors-reviewed/"><u>Adventure Essentials - Top 10 GoPro Protectors Reviewed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/aerial-artistry-mastering-the-craft-of-drone-video-editing-for-2024/"><u>Aerial Artistry Mastering the Craft of Drone Video Editing for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/aesthetic-enhancement-font-integration-for-ae/"><u>Aesthetic Enhancement Font Integration for AE</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/all-about-kinemaster-androids-ultimate-gaming-companion/"><u>All About KineMaster Android's Ultimate Gaming Companion</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/best-5-samsung-gear-vr-experiences/"><u>Best 5 Samsung Gear VR Experiences</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/blueprints-for-successful-docu-screenplays/"><u>Blueprints for Successful Docu-Screenplays</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/color-keying-simplified-an-all-inclusive-beginners-manual-on-green-screens-for-2024/"><u>Color Keying Simplified An All-Inclusive Beginner's Manual on Green Screens for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/youtube-outro-kings-6-top-suggestions/"><u>Free YouTube Outro Kings 6 TOP Suggestions</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-capturing-live-gaming-decide-on-obsshadowplay/"><u>In 2024, Capturing Live Gaming - Decide on OBS/ShadowPlay</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-solidify-iphone-footage-top-stabilization-practices-unveiled/"><u>In 2024, Solidify iPhone Footage Top Stabilization Practices Unveiled</u></a></li>
-<li><a href="https://fox-links.techidaily.com/lighting-setup-tips-to-make-great-videos/"><u>Lighting Setup Tips to Make Great Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/score-an-unbeatable-price-on-the-hp-victus-15-for-gamers-only-515-with-best-buys-exclusive-prime-day-deal-smart-tech-advice/"><u>Score an Unbeatable Price on the HP Victus 15 for Gamers - Only $515 with Best Buy's Exclusive Prime Day Deal | Smart Tech Advice</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-how-to-translate-youtube-videos-without-cc-for-2024/"><u>Updated How to Translate YouTube Videos Without CC for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pinnacle-cloud-solutions-highest-rated-reviewed/"><u>[New] 2024 Approved Pinnacle Cloud Solutions Highest-Rated Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-new-horizons-in-video-player-software/"><u>[New] Navigating New Horizons in Video Player Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-the-no-1-top-12-tycoon-games-a-gamers-quest-to-conquer-commerce/"><u>[Updated] 2024 Approved The No. 1 Top 12 Tycoon Games - A Gamer's Quest to Conquer Commerce</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-color-fidelity-unleashed-in-hps-dreamcolor-monitor-for-2024/"><u>[Updated] Color Fidelity Unleashed in HP's DreamColor Monitor for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-conquering-the-flaws-of-windows-11-photo-app/"><u>[Updated] Conquering the Flaws of Windows 11 Photo App</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-shadowlessedit-advanced-background-removal-app/"><u>[Updated] In 2024, ShadowLessEdit Advanced Background Removal App</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-and-instagram-synergy-posting-content-easily/"><u>[Updated] YouTube and Instagram Synergy Posting Content Easily</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-undisclosed-browsing-of-fb-stories/"><u>2024 Approved Undisclosed Browsing of FB Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-guide-to-implementing-borders-on-instagram-images/"><u>Step-by-Step Guide to Implementing Borders on Instagram Images</u></a></li>
 </ul></div>
 

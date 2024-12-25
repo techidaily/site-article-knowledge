@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Incorinastrating Supplementary Imagery in Projects"
-date: 2024-12-09T16:56:53.454Z
-updated: 2024-12-16T19:35:25.977Z
+date: 2024-12-23T08:22:27.125Z
+updated: 2024-12-25T12:06:03.102Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Now that we know that, let's dive in!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. B roll In TV And Movies
@@ -42,7 +42,7 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -52,10 +52,6 @@ Now that there are so many stock footage platforms, you have a lot of choices wh
 The ideal way to use B roll is to put it behind interviews. This kind of footage can be used in three ways: as establishing shots, cutaways, and transitions. Most of the time, the first few minutes of an interview or video help set the scene with "establishing shots."
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. What types of b roll are there?
 
@@ -69,6 +65,10 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
@@ -81,15 +81,15 @@ B roll footage can be used to tell a story that supports the narrative of your v
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -135,14 +135,15 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-increasing-brilliance-on-your-android-videos/"><u>2024 Approved Increasing Brilliance on Your Android Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-video-capacity-in-64128gb-drives/"><u>2024 Approved Maximizing Video Capacity in 64/128GB Drives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-seamless-image-superimposition-for-desktop/"><u>2024 Approved Seamless Image Superimposition for Desktop</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-syncing-speakers-with-slides-a-handbook-on-music-integration/"><u>2024 Approved Syncing Speakers with Slides A Handbook on Music Integration</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-overcoming-connection-issues-with-steam-servers/"><u>Fixes and Solutions: Overcoming Connection Issues with Steam Servers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-latest-drivers-for-your-msi-gs65-on-windows-download-now/"><u>Get Latest Drivers for Your MSI GS65 on Windows - Download Now!</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y27-4g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y27 4G to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-how-to-create-a-movie-in-minutes-a-quick-start-guide/"><u>Updated 2024 Approved How to Create a Movie in Minutes A Quick Start Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-rapid-revision-windows-protocol-uncovered-for-2024/"><u>[New] Rapid Revision Windows Protocol Uncovered for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-navigating-vitas-editing-world-complete-review-and-tutorial/"><u>[Updated] 2024 Approved Navigating Vita's Editing World Complete Review & Tutorial</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-revolutionizing-healthcare-marketing-via-social-networks-for-2024/"><u>[Updated] Revolutionizing Healthcare Marketing via Social Networks for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-techniques-for-high-quality-rl-footage-for-2024/"><u>[Updated] Techniques for High-Quality RL Footage for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-interactive-television-take-pot-perspectives/"><u>2024 Approved INTERACTIVE TELEVISION TAKE Pot Perspectives</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-world-without-boundaries-with-gpt-4/"><u>A World Without Boundaries with GPT-4</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-t2-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo T2 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-13-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 13 to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/pro-tips-for-background-deletion-in-paint-3d/"><u>Pro Tips for Background Deletion in Paint 3D</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/revolutionize-your-podcast-with-these-ai-name-makers/"><u>Revolutionize Your Podcast with These AI Name Makers</u></a></li>
 </ul></div>
 

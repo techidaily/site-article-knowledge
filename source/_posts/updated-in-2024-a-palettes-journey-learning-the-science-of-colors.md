@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, A Palette's Journey  Learning the Science of Colors\""
-date: 2024-12-13T17:58:02.280Z
-updated: 2024-12-16T17:43:39.650Z
+date: 2024-12-19T18:15:46.965Z
+updated: 2024-12-25T00:47:44.605Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -43,21 +43,17 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -74,7 +70,7 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -84,10 +80,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,16 +123,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-professional-sound-capture-top-10-microphones/"><u>[New] Professional Sound Capture Top 10 Microphones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-pictolaugh-design-humor-graphics/"><u>[Updated] 2024 Approved PictoLaugh Design Humor Graphics</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-maximizing-your-iphones-creative-capabilities/"><u>[Updated] In 2024, Maximizing Your iPhone's Creative Capabilities</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-select-selections-ideal-spots-to-download-snapalert-melodies/"><u>[Updated] In 2024, Select Selections Ideal Spots to Download SnapAlert Melodies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-movie-substitutes-that-shook-up-my-world-7-choices/"><u>2024 Approved Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-capture-in-clarity-best-tools-for-quality-4k-conversion/"><u>In 2024, Capture in Clarity Best Tools for Quality 4K Conversion</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-yuva-2-pro-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Yuva 2 Pro</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-pro-level-scripting-solutions-in-ae/"><u>In 2024, Pro-Level Scripting Solutions in AE</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-xmedia-center-all-in-one-windows-alternative/"><u>In 2024, XMedia Center All-in-One Windows Alternative</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-complete-guide-to-transitioning-sound-elements-in-video-content/"><u>New 2024 Approved Complete Guide to Transitioning Sound Elements in Video Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-5-powerful-windows-commands-that-evoke-the-essence-of-a-skilled-hacker/"><u>Top 5 Powerful Windows Commands That Evoke the Essence of a Skilled Hacker</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unveiling-the-secrets-of-advanced-camera-settings/"><u>[New] 2024 Approved Unveiling the Secrets of Advanced Camera Settings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-visual-impact-in-tiktoks-mastering-the-art-of-digit-alteration/"><u>[New] Visual Impact in TikToks Mastering the Art of Digit Alteration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unforgettable-cinematic-journey-top-15-timeless-motion-pictures/"><u>[Updated] 2024 Approved Unforgettable Cinematic Journey - Top 15 Timeless Motion Pictures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-cross-platform-players-top-10-open-source-selections/"><u>[Updated] Cross-Platform Players Top 10 Open Source Selections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-pioneering-cinematic-experiences-with-vr-tech-for-2024/"><u>[Updated] Pioneering Cinematic Experiences with VR Tech for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-pathway-to-seamless-system-enhancement-in-macos-11-big-sur-for-2024/"><u>[Updated] The Pathway to Seamless System Enhancement in macOS 11 Big Sur for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/craftsmits-and-cinematography-precision-in-aspect-ratios/"><u>Craftsmits and Cinematography Precision in Aspect Ratios</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-xs-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone XS Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-captivating-clips-keywords-that-ignite-viral-shorts-on-youtube/"><u>In 2024, Captivating Clips Keywords That Ignite Viral Shorts on YouTube</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-c33-2023-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme C33 2023 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfersync-notes-from-apple-iphone-15-pro-max-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer/Sync Notes from Apple iPhone 15 Pro Max to iPad | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-samsung-galaxy-a25-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Samsung Galaxy A25 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-voicemod-ai-review-transforming-your-voice-in-real-time/"><u>Updated Voicemod AI Review Transforming Your Voice in Real Time</u></a></li>
 </ul></div>
 

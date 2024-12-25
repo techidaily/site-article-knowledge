@@ -1,7 +1,7 @@
 ---
 title: "[New] Speedy Shot Techniques to Boost Home Filmmaking"
-date: 2024-12-09T16:11:38.028Z
-updated: 2024-12-16T19:18:57.668Z
+date: 2024-12-17T19:37:54.052Z
+updated: 2024-12-24T20:07:36.972Z
 tags: 
   - screen-recording
   - ai video
@@ -31,11 +31,19 @@ When we set up the light near the subject, the light might be leaked onto the ba
 
 On film sets and studios, the professionals use flags to absorb and make shapes of light. A flag is a thick black fabric that does not reflect light. To make your flag at home, you can try cardboard and a black t-shirt.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. A Cardboard
 
 You can buy it from a nearby stationery store. Ensure the cardboard is not too big to fit the t-shirt around the board.
 
 ![cardboard used for diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. A Black T-shirt
 
@@ -43,11 +51,19 @@ For the black t-shirt, you can use an old t-shirt that you don't wear anymore. Y
 
 ![black t-shirt for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After managing all the required things, you must wrap and secure the t-shirt around the board. If the size of the t-shirt is larger than cardboard, tie the sleeves to secure the t-shirt. Or you can also use tape to secure the t-shirt and fasten it on the backside.
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
 
 With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Results for the Flag Light Shaping
 
@@ -56,11 +72,11 @@ After filming the video, see the precise results before using the flag, when the
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
@@ -69,19 +85,11 @@ The black wrap is used in professional studios and set up to block and shape lig
 
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. A Light Bulb
 
 You can take any LED bulb present at our home. Ensure that the bulb size is manageable to avoid any issues handling it.
 
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Foil Paper
 
@@ -96,10 +104,6 @@ Step1 First, carefully wrap the bulb with the foil paper to shape the light.
 Step2 Then, you need to install the bulb on the lamp.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** During wrapping, you don't have to allow the foil to touch the bottom part of the bulb.
 
@@ -117,14 +121,10 @@ You can observe that the light is only at the required place, with no dispersion
 
 ![results after using cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-8.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After experimenting with light shaping and blocking hacks, we will move toward the light reflector hack!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Hack. DIY Light Reflector
@@ -154,24 +154,22 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-android-video-from-end-to-beginning/"><u>[New] 2024 Approved Android Video From End to Beginning</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-harnessing-zooms-potential-with-key-conversion-techniques/"><u>[New] Harnessing Zoom's Potential with Key Conversion Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-maximizing-visual-quality-with-enhancer-22/"><u>[New] In 2024, Maximizing Visual Quality with Enhancer 2.2</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-pcs-best-vr-top-10-immersive-360-video-players/"><u>[New] In 2024, PC's Best VR Top 10 Immersive 360 Video Players</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-guide-for-amateurs-and-pros-on-windows-11-video-creation/"><u>[New] In 2024, The Ultimate Guide for Amateurs & Pros on Windows 11 Video Creation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-selection-of-no-cost-image-transformers-for-ios-and-android/"><u>[New] In 2024, The Ultimate Selection of No-Cost Image Transformers for iOS and Android</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-xperience-photoshoot-iphone-x-classic-clicks/"><u>[Updated] 2024 Approved Xperience Photoshoot IPhone X Classic Clicks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-sony-bdp-s6700-review-updated/"><u>[Updated] In 2024, Sony BDP-S6700 Review - Updated</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastering-the-art-of-crafting-engaging-spotify-promos-for-2024/"><u>[Updated] Mastering the Art of Crafting Engaging Spotify Promos for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-showdown-top-10-royale-warriors-games/"><u>[Updated] Ultimate Showdown Top 10 Royale Warriors' Games</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-liberating-your-media-experience-free-movplay-software/"><u>2024 Approved Liberating Your Media Experience Free MOV/PLAY Software</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978576736-a-reference-population-with-known-phenotypes-and-genotypes-is-essential-for-genomic-prediction-models/"><u>A Reference Population with Known Phenotypes and Genotypes Is Essential for Genomic Prediction Models</u></a></li>
-<li><a href="https://program-issues.techidaily.com/biomutant-pc-overcome-lag-and-faults-with-these-proven-tips-for-a-seamless-gaming-session/"><u>Biomutant (PC): Overcome Lag and Faults with These Proven Tips for a Seamless Gaming Session</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/essential-tiktok-to-gif-convertors-reviewed/"><u>Essential TikTok-to-GIF Convertors Reviewed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-learn-to-cropping-and-composition-the-audio-visual-balance-in-canvas/"><u>In 2024, Learn to Cropping & Composition The Audio-Visual Balance in Canvas</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/inside-the-metaverse-comprehending-6-intricate-instances-for-2024/"><u>Inside the Metaverse Comprehending 6 Intricate Instances for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/live-stream-showdown-xsplit-vs-obs/"><u>Live Stream Showdown XSplit Vs. OBS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/multiplayer-movies-review-poker-edition/"><u>MULTIPLAYER MOVIES REVIEW Poker Edition</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-connecting-your-samsung-soundbar-with-an-external-subwoofer/"><u>Ultimate Guide: Connecting Your Samsung Soundbar with an External Subwoofer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-one-device-two-os-file-migration-tactics/"><u>[New] 2024 Approved One Device, Two OS File Migration Tactics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-reigniting-creativity-a-comprehensive-look-at-windows-10-for-editors-for-2024/"><u>[New] Reigniting Creativity A Comprehensive Look at Windows 10 for Editors for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-10-sites-for-high-end-vector-graphics/"><u>[New] Top 10 Sites for High-End Vector Graphics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-recommendation-best-websites-to-download-classical-ringtones/"><u>[Updated] 2024 Approved Recommendation Best Websites to Download Classical Ringtones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ace-editing-essential-10-final-cut-pro-extensions/"><u>[Updated] In 2024, Ace Editing Essential 10 Final Cut Pro Extensions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-most-reliable-image-archiving-sites-for-2024/"><u>[Updated] Most Reliable Image Archiving Sites for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-live-streamers-analyzed-and-ranked/"><u>[Updated] Top Live Streamers Analyzed and Ranked</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/der8auer-confesses-errors-in-thermal-grizzly-heatsinks-and-direct-die-chillers/"><u>Der8auer Confesses: Errors in Thermal Grizzly Heatsinks & Direct Die Chillers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-gear-for-beginner-filmmakers-under-1000-for-2024/"><u>Essential Gear for Beginner Filmmakers (Under $1,000) for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-potential-influence-of-artificial-intelligence-on-game-development/"><u>Exploring the Potential Influence of Artificial Intelligence on Game Development</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-iphone-7-plus-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-high-altitude-escapades-the-husqvarna-h501s-review-explored/"><u>In 2024, High Altitude Escapades - The Husqvarna H501S Review Explored</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-creating-hdr-in-photoshop/"><u>In 2024, The Ultimate Guide to Creating HDR in Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-display-selection-top-tier-4k-panels-for-videographers/"><u>In 2024, Ultimate Display Selection Top-Tier 4K Panels for Videographers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/speedy-hp-envy-section-1-advanced-problem-on-heat-exchanger-flow-arrangements/"><u>Speedy HP ENVY # Section 1: Advanced Problem on Heat Exchanger Flow Arrangements</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-xiaomi-redmi-13c-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Xiaomi Redmi 13C 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlock-the-6th-richest-strategies-for-successful-ig/"><u>Unlock the 6Th Richest Strategies for Successful IG</u></a></li>
 </ul></div>
 

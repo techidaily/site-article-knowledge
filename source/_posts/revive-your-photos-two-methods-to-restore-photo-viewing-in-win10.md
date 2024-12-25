@@ -1,7 +1,7 @@
 ---
 title: "\"Revive Your Photos  Two Methods to Restore Photo Viewing in Win10\""
-date: 2024-12-13T17:49:07.826Z
-updated: 2024-12-16T18:25:22.566Z
+date: 2024-12-23T10:38:09.908Z
+updated: 2024-12-24T17:03:32.063Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 ## Method 1 to restore Windows Photo Viewer
@@ -71,12 +75,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -92,16 +100,12 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -111,14 +115,10 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,20 +145,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-premium-desktop-and-mobile-video-call-platforms-zoom-replacements/"><u>[New] 2024 Approved Premium Desktop & Mobile Video Call Platforms (Zoom Replacements)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-professional-capture-tools-for-pcmac-devices/"><u>[New] In 2024, Professional Capture Tools for PC/Mac Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-correcting-iphone-camera-focusing-errors-effectively/"><u>2024 Approved Correcting iPhone Camera Focusing Errors Effectively</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-curated-queries-for-spirited-conversations-in-podcasts/"><u>2024 Approved Curated Queries for Spirited Conversations in Podcasts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-elite-eight-camera-line-up-for-professional-cinematography/"><u>2024 Approved Elite Eight Camera Line-Up for Professional Cinematography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-the-craft-of-creating-captivating-podcast-titles/"><u>2024 Approved Mastering the Craft of Creating Captivating Podcast Titles</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-tips-on-how-skip-edgenuity-videos-easily/"><u>2024 Approved Tips on How Skip Edgenuity Videos Easily</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-powerdirector-guide/"><u>2024 Approved Ultimate PowerDirector Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-where-to-find-high-quality-pixel-ringers/"><u>2024 Approved Where to Find High-Quality Pixel Ringers</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-showdown-on-skype-delving-into-8-major-varianebetween-snapchat-my-ai-and-microsofts-bing-chat/"><u>AI Showdown on Skype: Delving Into 8 Major Varianebetween Snapchat My AI and Microsoft's Bing Chat</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/essential-scenery-for-engaging-live-feeds-for-2024/"><u>Essential Scenery for Engaging Live Feeds for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-top-10-free-video-editing-software-for-web/"><u>New 2024 Approved Top 10 Free Video Editing Software for Web</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-direct-connectivity-ios-and-android-file-relay/"><u>[Updated] 2024 Approved Direct Connectivity IOS & Android File Relay</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-boosting-visual-appeal-in-tiktok-videos-for-2024/"><u>[Updated] Boosting Visual Appeal in TikTok Videos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-discovering-your-perfect-vr-experience-should-you-choose-mobile-freedom-or-connectivity-with-tethers/"><u>[Updated] Discovering Your Perfect VR Experience Should You Choose Mobile Freedom or Connectivity with Tethers?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-iphone-photography-boosted-by-ios-11-features-for-2024/"><u>[Updated] IPhone Photography Boosted by iOS 11 Features for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-power-of-precision-an-in-depth-tutorial-for-using-the-background-eraser-in-ps-for-2024/"><u>[Updated] The Power of Precision An In-Depth Tutorial for Using the Background Eraser in PS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>[Updated] The Ultimate Tutorial Transferring YouTube Videos to Dailymotion</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-step-by-step-guide-to-cease-chromes-unintended-tabs/"><u>A Step-By-Step Guide to Cease Chrome's Unintended Tabs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-infinix-zero-30-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Infinix Zero 30 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-oppo-reno-8t-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Oppo Reno 8T to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-crypto-markets-with-ai-discover-5-key-ways-chatgpt-boosts-your-trading-game/"><u>Navigating Crypto Markets with AI: Discover 5 Key Ways ChatGPT Boosts Your Trading Game</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-10-best-free-video-upload-sites-for-online-presence-and-visibility/"><u>New 10 Best Free Video Upload Sites for Online Presence and Visibility</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-strengths-of-asus-zenwifi-ax6600-mesh-router-expert-review-inside/"><u>Unveiling the Strengths of ASUS ZenWifi AX6600 Mesh Router - Expert Review Inside</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/windows-tn/"><u>Windows ˈtɛnでのファイル同期: オフライン設定方法をご紹介</u></a></li>
 </ul></div>
 

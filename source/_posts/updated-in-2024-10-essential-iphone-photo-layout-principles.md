@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, 10 Essential iPhone Photo Layout Principles"
-date: 2024-12-12T17:32:11.207Z
-updated: 2024-12-16T19:35:27.178Z
+date: 2024-12-22T10:48:03.235Z
+updated: 2024-12-25T05:45:38.932Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Rule of Thirds
 
  The Rule of Thirds consists of a set of guidelines to assist a photographer correctly position the subject in a particular scene. It is meant to draw the attention of the viewer directly towards the subject. According to this rule, the picture is divided into nine equal grids that break the entire image with two vertical and two horizontal lines into vertical and horizontal thirds. As per the Rule of Thirds, the subject should be placed at the intersecting points of the grids.
@@ -40,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Leading Lines
@@ -55,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Diagonals
@@ -75,15 +75,15 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Shape
 
  Speaking of shape in photography composition sounds odd? ‘Rule of Thirds’ and ‘Leading Lines’ are not the only rules that make a photo composition. Line, shape, texture, form, space, color, and pattern also play a key role to make your iPhone photography a real treasure. Shape defines the two dimensional view of the subject and the entire scene as well. A well defined subject with a silhouette and backlighting or a black and white picture looks more appealing than a color picture where the shape of the subject or other objects is not prominent. Forms and shapes play an integral role in photography.
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Leave Empty Space
 
@@ -91,15 +91,19 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Direction of Subject
 
  Like all the photography composition rules, it is important to take note of the direction of the subject in a photograph. This is known as the ‘Rule of Space’ and it leads the viewer towards the subject’s direction of motion. For example, if there is a person walking on the road, then there should be space ahead of him. If there is a person sitting in a bench or rock, he should be clicked facing into the frame, and there should be space in front of him. It will help the viewer’s eyes to go along with the direction he is facing and take notice of the other subjects such as, other people walking in front him, or any pet moving around etc.
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fill Your Frame
 
@@ -108,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Break the Rules
@@ -118,11 +122,7 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -158,22 +158,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-advanced-audio-softening-techniques-for-the-proficient-user-on-lumafusion/"><u>[New] 2024 Approved Advanced Audio Softening Techniques for the Proficient User on Lumafusion</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-sony-xperia-xz-bridging-the-gap-to-ultra-hd-phones/"><u>[New] 2024 Approved Sony Xperia XZ - Bridging the Gap to Ultra HD Phones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-iphone-photography-wonders-capturing-surface-mirrors/"><u>[Updated] 2024 Approved IPhone Photography Wonders Capturing Surface Mirrors</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-advanced-text-tools-and-ae-plug-ins-for-2024/"><u>[Updated] Advanced Text Tools & AE Plug-Ins for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-harnessing-the-power-of-azure-transcript-services/"><u>[Updated] Harnessing the Power of Azure Transcript Services</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dynamic-audio-excellence-best-cameras-microphones/"><u>[Updated] In 2024, Dynamic Audio Excellence Best Cameras' Microphones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ensuring-flawless-images-avoid-watermarks/"><u>[Updated] In 2024, Ensuring Flawless Images Avoid Watermarks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-selective-software-optimal-blu-ray-players-free-to-pay/"><u>[Updated] Selective Software Optimal Blu-Ray Players (Free to Pay)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-rings-rhythm-versus-screen-time-symphony/"><u>[Updated] The Ring's Rhythm Versus Screen Time Symphony</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unlock-iphones-potential-download-itunes-radio-effortlessly/"><u>[Updated] Unlock iPhone's Potential Download iTunes Radio Effortlessly</u></a></li>
-<li><a href="https://fox-search.techidaily.com/comprehension-complette-comment-installer-et-lancer-un-systeme-sur-un-lecteur-de-stockage-extern-pour-windows-1011/"><u>Compréhension Complette : Comment Installer Et Lancer Un Systeme Sur Un Lecteur De Stockage Extern Pour Windows 10/11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-nokia-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Nokia</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-fix-live-video-interrupted-on-facebook/"><u>How to Fix Live Video Interrupted on Facebook?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigate-effortlessly-the-best-5-chrome-addons-for-downloading-fb-videos-for-2024/"><u>Navigate Effortlessly The Best 5 Chrome Addons for Downloading FB Videos for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210117984-9781950253159-shamanic-power-animals/"><u>Shamanic Power Animals | Free Book</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/why-paddle-controllers-enhance-my-gaming-experience-an-insider-look/"><u>Why Paddle Controllers Enhance My Gaming Experience - An Insider Look</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-top-independent-game-apps-for-screen-free-android-playing/"><u>[New] 2024 Approved Top Independent Game Apps for Screen-Free Android Playing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-vlcs-place-among-streaming-titans/"><u>[New] 2024 Approved VLC's Place Among Streaming Titans</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-win-11-mastery-exclusive-less-known-hacks-revealed/"><u>[New] 2024 Approved Win 11 Mastery Exclusive, Less-Known Hacks Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-10-power-upgrades-for-os-x-and-win-with-srt-systems/"><u>[New] In 2024, Top 10 Power Upgrades for OS X and Win with SRT Systems</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-sales-surge-strategy-techniques/"><u>[Updated] 2024 Approved Sales Surge Strategy Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-evaluation-the-leading-gopro-cases-1-10/"><u>[Updated] Comprehensive Evaluation The Leading GoPro Cases #1-10</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-access-to-the-top-soundscape-archives/"><u>[Updated] Exclusive Access to the Top Soundscape Archives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-firstrow-leisure-without-the-sports-commitment/"><u>[Updated] In 2024, FirstRow Leisure Without the Sports Commitment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-set-up-zoom-video-meeting/"><u>[Updated] In 2024, How to Set up Zoom Video Meeting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-ultimate-guide-to-personalizing-whatsapp-ringtone-on-all-devices/"><u>[Updated] In 2024, The Ultimate Guide to Personalizing WhatsApp Ringtone on All Devices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-navigating-the-world-of-fbx-for-gamers-for-2024/"><u>[Updated] Navigating the World of FBX for Gamers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-venturing-into-new-realities-best-metaverse-headsets-guide/"><u>[Updated] Venturing Into New Realities Best Metaverse Headsets Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/communication-mastery-for-impactful-interviews-for-2024/"><u>Communication Mastery For Impactful Interviews for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-secure-conversations-with-duckduckgo-ai-chat-your-gateway-to-privacy-first-chatgpt-interactions/"><u>Discover Secure Conversations with DuckDuckGo AI Chat: Your Gateway to Privacy-First ChatGPT Interactions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-13-pro-max-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 13 Pro Max to Computer? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/steps-to-deactivate-the-built-in-news-feed-of-windows-11-os/"><u>Steps to Deactivate the Built-In News Feed of Windows 11 OS</u></a></li>
 </ul></div>
 

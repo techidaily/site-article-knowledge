@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Speed Kings and Queens of 2022"
-date: 2024-12-13T18:24:09.575Z
-updated: 2024-12-16T18:43:13.366Z
+date: 2024-12-23T21:25:13.044Z
+updated: 2024-12-24T21:16:10.004Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
@@ -49,41 +49,37 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -98,6 +94,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,19 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-advanced-tips-for-animation-using-windows-movie-maker/"><u>[New] Advanced Tips for Animation Using Windows Movie Maker</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-combining-skypes-ease-with-zooms-advanced-features-for-2024/"><u>[New] Combining Skype's Ease with Zoom's Advanced Features for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-essential-vr-companies-for-the-next-decade/"><u>[New] Essential VR Companies for the Next Decade</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unleash-creativity-the-newcomers-snapseed-tutorial/"><u>[New] Unleash Creativity The Newcomer's Snapseed Tutorial</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-integrating-mixer-with-macos-for-smooth-streaming-for-2024/"><u>[Updated] Integrating Mixer with macOS for Smooth Streaming for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastering-srt-to-txt-translation-the-fastest-guide-for-2024/"><u>[Updated] Mastering SRT to TXT Translation - The Fastest Guide for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-no-8-advanced-online-photographic-merge-suite-for-2024/"><u>[Updated] No. 8 Advanced Online Photographic Merge Suite for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-realities-of-youtube-view-calculation/"><u>2024 Approved The Realities of YouTube View Calculation</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/best-free-dvd-playback-programs-compatible-with-windows-1111-a-comprehensive-list/"><u>Best Free DVD Playback Programs Compatible with Windows 11/11: A Comprehensive List</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/elevate-your-job-applications-chatgpt-for-exceptional-cover-letters/"><u>Elevate Your Job Applications: ChatGPT for Exceptional Cover Letters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-cutting-edge-4k-cameras-ranked-1-15/"><u>In 2024, Cutting-Edge 4K Cameras Ranked #1-15</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-unified-iptv-streaming-services/"><u>In 2024, Unified IPTV Streaming Services</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722974404929-scansnap-driver-download-and-update-for-windows-easily/"><u>ScanSnap Driver Download & Update for Windows EASILY!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-guide-to-budget-friendly-alternatives-to-samsung-and-google-pixel-watches-expert-insights-at-zdnet/"><u>The Ultimate Guide to Budget-Friendly Alternatives to Samsung & Google Pixel Watches | Expert Insights at ZDNET</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-selection-high-quality-zero-price-free-luts/"><u>[New] 2024 Approved The Ultimate Selection High Quality, Zero Price Free LUTs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-transforming-footage-editing-videos-seamlessly-on-windows-11-and-storyremix/"><u>[New] 2024 Approved Transforming Footage Editing Videos Seamlessly on Windows 11 and StoryRemix</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ultimate-5-display-choices-for-ps5/"><u>[New] 2024 Approved Ultimate 5 Display Choices For PS5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-garmins-pioneering-ultra-30-camera-a-critical-assessment/"><u>[New] In 2024, Garmin's Pioneering Ultra 30 Camera - A Critical Assessment</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-march-unstoppable-videos-hit-the-tweetsphere/"><u>[New] Meme March Unstoppable Videos Hit the Tweetsphere</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-video-virtuosos-guide-amplifying-iphone-hdri-clarity-using-four-editing-steps/"><u>[Updated] [Video Virtuoso's Guide] Amplifying iPhone HDRI Clarity Using Four Editing Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-innovative-photo-display-solutions/"><u>[Updated] 2024 Approved Innovative Photo Display Solutions</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-uniting-visuals-on-iphone-photos-with-videos/"><u>[Updated] In 2024, Uniting Visuals on iPhone Photos with Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-visual-flair-a-collection-of-ae-text-presets/"><u>[Updated] In 2024, Visual Flair A Collection of AE Text Presets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-leading-10-lenses-revolutionizing-photography-for-2024/"><u>[Updated] Leading 10 Lenses Revolutionizing Photography for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-7-dslr-cameras-enhancing-real-time-online-interactions/"><u>[Updated] Top 7 DSLR Cameras Enhancing Real-Time Online Interactions</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-iphone-6-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My iPhone 6 After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/laugh-ledger-premium-free-meme-collections-for-2024/"><u>Laugh Ledger Premium, FREE Meme Collections for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/making-ms-driver-fixed-on-older-windows-win-versions-upgrade/"><u>Making MS DRIVER Fixed on Older Windows: Win Versions Upgrade</u></a></li>
+<li><a href="https://network-issues.techidaily.com/master-the-art-of-display-latency-reduction/"><u>Master the Art of Display Latency Reduction</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-viral-videos-creating-engaging-memes-for-fbinsta/"><u>Mastering Viral Videos Creating Engaging Memes for FB/Insta</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-film-apps-showdown-apples-finest-categories/"><u>Prime Film Apps Showdown Apple's Finest Categories</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-g24-power-by-fonelab-android-recover-data/"><u>Recover lost data from G24 Power</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/zipping-to-captions-direct-method-for-srt-file-creation/"><u>Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
 </ul></div>
 

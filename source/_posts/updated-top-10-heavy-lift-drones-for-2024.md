@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Top 10 Heavy Lift Drones for 2024"
-date: 2024-08-08T02:03:13.343Z
-updated: 2024-08-09T02:03:13.343Z
+date: 2024-12-22T23:18:36.391Z
+updated: 2024-12-25T09:43:15.720Z
 tags: 
   - screen-recording
   - ai video
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
 # Best 10 Heavy Lift Drones
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -34,9 +30,6 @@ There is no doubt that people are using drones for art (photography and film mak
 
 With this rising need of consumers needing more than just a [flying camera](https://tools.techidaily.com/wondershare/filmora/download/) at their disposal, the market for heavy lift drones is starting to reveal itself as a well-served market. This means you will need to know what you are looking for, as there will be many options laid out before you.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top 10 Heavy lift drones
 
 Here are the best heavy lifting drones available in 2020, broken into over-10 kg and under-10 kg payloads.
@@ -58,13 +51,18 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
@@ -110,10 +108,11 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
@@ -133,20 +132,21 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 #### 5\. ONYXSTAR HYDRA-12
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -171,4 +171,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-hdr-vs-sdr-a-visual-spectrum-showdown/"><u>[New] In 2024, HDR vs SDR A Visual Spectrum Showdown</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-action-cam-editing-picks/"><u>[New] Ultimate Action Cam Editing Picks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-financial-aspects-of-youtube-promotions/"><u>[Updated] Financial Aspects of YouTube Promotions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-pushing-boundaries-with-iphones-motion-blur-capabilities/"><u>[Updated] In 2024, Pushing Boundaries with iPhone’s Motion-Blur Capabilities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-online-fb-link-exporter-unlock-access-to-8plus-tools-for-2024/"><u>[Updated] Online FB Link Exporter Unlock Access to 8+ Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-picks-premium-webcams-for-quality-podcasting-for-2024/"><u>[Updated] Top Picks Premium Webcams for Quality Podcasting for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-moviemakermag-extreme-review-complete-take-on-androvid-editor/"><u>2024 Approved MovieMakerMag Extreme Review – Complete Take on AndroVid Editor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/crafting-audio-narratives-best-backdrop-tunes/"><u>Crafting Audio Narratives Best Backdrop Tunes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/diagnosing-and-fixing-constant-palworld-breakdowns-on-your-pc-setup/"><u>Diagnosing and Fixing Constant Palworld Breakdowns on Your PC Setup</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/high-tide-gear-surfing-camera-innovations-of-2023-for-2024/"><u>High Tide Gear Surfing Camera Innovations of 2023 for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-get-creative-top-free-mobile-apps-for-adding-video-special-effects/"><u>New 2024 Approved Get Creative Top Free Mobile Apps for Adding Video Special Effects</u></a></li>
+<li><a href="https://win-forum.techidaily.com/significant-user-interface-enhancements-elevate-the-new-version-of-windows-11s-photos-application/"><u>Significant User Interface Enhancements Elevate the New Version of Windows 11'S Photos Application</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/winning-back-your-windows-11-soundscape-noise-issues-corrected/"><u>Winning Back Your Windows 11 Soundscape – Noise Issues Corrected!</u></a></li>
+</ul></div>
 
