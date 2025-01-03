@@ -1,0 +1,109 @@
+---
+title: "[Updated] In 2024, Comparing Google's Flat Cube and Samsung's Headset"
+date: 2024-12-27T16:33:29.091Z
+updated: 2025-01-03T20:04:24.755Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [Updated] In 2024, Comparing Google's Flat Cube and Samsung's Headset"
+excerpt: "This Article Describes [Updated] In 2024, Comparing Google's Flat Cube and Samsung's Headset"
+keywords: "Google Cube Comparison,Samsung VR Headset Review,Flat Vs. Curved Gadgets,Google Flat Design Analysis,Samsung Virtual Reality Trends,Headset Technology Compare,Comparing Device Innovations"
+thumbnail: https://thmb.techidaily.com/a55de6d667ce151e4f6994d9b6a4777fce149eccc985ca7253a27ff290bf8c11.jpg
+---
+
+## Comparing Google's Flat Cube and Samsung's Headset
+
+# Google Cardboard vs. Samsung Gear VR
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+##### Benjamin Arango
+
+ Mar 27, 2024• Proven solutions
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Overview of Google Cardboard and Gear VR
+
+ Google’s Cardboard VR is one of the Google’s side projects, the projects that are not considered important and limited resources are given to them. This side project became an instant success for Google and has attracted customers all around the world costing only 20$ this is one of the cheapest headsets anyone can get in the market. The best thing about Google cardboard is that the design is open source and anyone can make one at home just by following few clear instructions. Google’s vision of technology to everyone is working and cardboard is one step towards their main goal.
+
+ The Samsung Gear VR is the product that comes when you combine the expertise of the best Virtual Reality Company and the best smart phone brand in the world. Samsung Gear VR is a combined collaboration between Samsung and Oculus. This Virtual reality headset is made for only Samsung phones and retails around 100$ which is almost 5 times more than the Google cardboard. Gear VR is packed with functionality it has a very firm phone stand inside of which you can easily put any phone. It connects to your phone through the charging port and as soon as you connect the phone it starts the VR software in it. You can also control the volume and the zoom through this headset. You can also play many games on it through the Oculus app which is present on the app store for Gear VR only.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Samsung Gear VR
+
+ Samsung just partnered with Oculus to bring you the Samsung Gear VR headset in 2014 and now the new Samsung Gear VR introduced with the Galaxy S7 is jam packed with new features that are ready to blow your mind. The new Gear is 19 percent lighter than the previous model so it doesn’t feel like a brick tied to your head. The straps are more elastic and give a better fit than the previous model, the padding around the eyes and nose gives a very comfortable grip. The new VR has a USB type c port you can also switch it micro USB to make it compatible with the older versions of Samsung phones.
+
+ The best part about the new Samsung Gear is the new lens that is clearer and gives a glare free view of the screen. Along with the new lens there are some more features in the Samsung Gear VR, You can plug in headphones in your phone and enjoy the whole VR experience with sound Samsung ahs specially made ports in the headset for it. Samsung has also introduced some buttons to change the volume of the device from the Gear itself. The previous versions had a problem that the lenses tend to mist up thus making you unable to see clearly but in this version the issue has been resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Google Cardboard
+
+ Google has been changing our concepts about technology for quite some time now and they are certainly succeeding in their mission. Google Cardboard is a product started by Google employees as a side project but it certainly became more than a side project. The main selling point of the Cardboard is that it is really cheap and everyone can afford one. Plus you don’t need a high end smart phone to work with cardboard it can work with any android phone. The Google cardboard VR is compatible with multiple phones and is really portable and these are its basic selling points. Other than that there are not many qualities in the headset it is just a cardboard holder that you have to hold with hand with lens in it.
+
+ Google cardboard does not have any volume control options no flaps straps to attach the device directly on your head, the build quality is as poor as it can get. There are many downsides to the Google cardboard but if you look at its price you realize it is a pretty good deal for 20$ you are getting a VR headset who would’ve thought this was possible?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Benjamin Arango
+
+Benjamin Arango is a writer and a lover of all things video.
+
+Follow @Benjamin Arango
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-online-image-enhancement-with-audio/"><u>[New] In 2024, Online Image Enhancement with Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-spiritual-slow-motion-videoworkshop/"><u>[New] In 2024, Spiritual Slow-Motion Videoworkshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-beauty-tips-and-tricks-collection/"><u>[Updated] In 2024, Beauty Tips & Tricks Collection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-become-a-reddit-star-detailed-steps-for-share-success/"><u>[Updated] In 2024, Become a Reddit Star Detailed Steps for Share Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorum-or-discretion-managing-late-family-members-on-fb/"><u>Digital Decorum or Discretion? Managing Late Family Members on FB</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/enabling-auto-hdr-in-windows-11-a-step-by-step-guide-for-2024/"><u>Enabling Auto HDR in Windows 11 A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-reno-8t-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo Reno 8T Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/htc-vive-xr-elite-a-peek-into-virtual-realitys-promising-tomorrow/"><u>HTC Vive XR Elite: A Peek Into Virtual Reality's Promising Tomorrow</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-next-gen-editing-experience-reviewed-magix-video-pro-x/"><u>In 2024, Next-Gen Editing Experience Reviewed Magix Video Pro X</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rating-interactive-features-for-enhanced-viewers-experience-on-youtube-for-2024/"><u>Integrating Interactive Features for Enhanced Viewers' Experience on Youtube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-the-future-here-examining-lenovos-trailblazing-foldable-notebook-x1-fold-review/"><u>Is the Future Here? Examining Lenovo's Trailblazing Foldable Notebook: X1 Fold Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/reimagining-mobile-photoshopping-iphone-x-insights/"><u>Reimagining Mobile Photoshopping IPhone X Insights</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722976764598-the-increasing-globalization-fostered-greater-interdependence-between-nations-leading-to-a-more-harmonized-international-order/"><u>The Increasing Globalization Fostered Greater Interdependence Between Nations Leading to a More Harmonized International Order</u></a></li>
+</ul></div>
+

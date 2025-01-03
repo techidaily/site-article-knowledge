@@ -1,7 +1,7 @@
 ---
 title: "Isolating Visual Snapshots From Videos Using the Windows 10 Photos Tool"
-date: 2024-12-22T05:31:09.117Z
-updated: 2024-12-25T14:45:52.676Z
+date: 2025-01-01T21:11:25.511Z
+updated: 2025-01-03T17:57:29.258Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -66,10 +62,14 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,10 +88,6 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -105,11 +101,15 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,18 +143,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-download-on-the-fly-best-free-tools-for-pinterest-vids-online/"><u>[New] 2024 Approved Download on the Fly Best Free Tools for Pinterest Vids Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-chroma-chronicles-expertise-in-color-crafting-for-2024/"><u>[New] Chroma Chronicles Expertise in Color Crafting for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-best-15-portable-videography-tools/"><u>[New] In 2024, Best 15 Portable Videography Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-transforming-augmented-reality-with-downloaded-free-luts-for-development/"><u>[New] In 2024, Transforming Augmented Reality with Downloaded, Free LUTs for Development</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-secrets-of-professionals-mastering-video-recordingediting-with-adobe-connect-for-2024/"><u>[New] Secrets of Professionals Mastering Video Recording/Editing with Adobe Connect for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-deep-dive-into-3d-color-grading-tools/"><u>[Updated] 2024 Approved Deep Dive Into 3D Color Grading Tools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-here-is-how-asmr-helps-with-sleep-and-best-asmrtist-recommendation/"><u>[Updated] Here Is How ASMR Helps with Sleep & Best ASMRtist Recommendation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unlock-video-editing-mastery-using-lut-filters-in-obs-studio/"><u>[Updated] In 2024, Unlock Video Editing Mastery Using LUT Filters in OBS Studio</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-full-insight-into-vsco-image-editing/"><u>2024 Approved Full Insight Into VSCO Image Editing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-asus-bt500-wireless-bluetooth-50-usb-dongle-driver-for-windows-11-10-and-8/"><u>Download Asus BT500 Wireless Bluetooth 5.0 USB Dongle Driver for Windows 11, 10 & 8</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/get-back-your-sound-troubleshooting-zoom-microphone-problems-for-pc-users/"><u>Get Back Your Sound: Troubleshooting Zoom Microphone Problems for PC Users</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-stellar-vr-gaming-for-a-fantastic-deal/"><u>The Ultimate Guide to the Oculus Quest 2 - Stellar VR Gaming for a Fantastic Deal</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-tecno-spark-10c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-beginners-bonanza-affordable-profitable-channel-options/"><u>[New] 2024 Approved Beginner's Bonanza Affordable, Profitable Channel Options</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-from-monochrome-to-motion-the-ultimate-guide-to-making-videos-with-pixiz/"><u>[New] 2024 Approved From Monochrome to Motion The Ultimate Guide to Making Videos with Pixiz</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unleash-potential-optimizing-short-films-in-marketing/"><u>[New] 2024 Approved Unleash Potential Optimizing Short Films in Marketing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ideas-for-creating-sequences-of-iphone-burst-images/"><u>[New] Ideas for Creating Sequences of iPhone Burst Images</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigating-htc-vive-experience-without-nausea/"><u>[New] In 2024, Navigating HTC Vive Experience Without Nausea</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-ultimate-list-of-top-5-pc-screen-grabbers-ranked-1-5/"><u>[New] In 2024, The Ultimate List of Top 5 PC Screen Grabbers Ranked #1-#5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leading-uav-models-suited-for-gopro-cameras/"><u>[New] Leading UAV Models Suited for GoPro Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leveraging-slug-lines-for-content-engagement-for-2024/"><u>[New] Leveraging Slug Lines for Content Engagement for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-live-broadcast-faceoff-obs-vs-shadowtoolkit/"><u>[Updated] 2024 Approved Live Broadcast Faceoff OBS Vs. ShadowToolkit</u></a></li>
+<li><a href="https://media-tips.techidaily.com/combining-disneyplus-hulu-and-max-a-trifecta-bundle-launching-in-summer/"><u>Combining Disney+, Hulu & Max: A Trifecta Bundle Launching in Summer!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-shutting-down-voice-assistance-on-samsung-tvs/"><u>Guide: Shutting Down Voice Assistance on Samsung TVs</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>How To Unlock Apple iPhone 12 mini Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fix-tips-for-when-your-chrome-browser-fails-to-display-pages/"><u>Quick Fix Tips for When Your Chrome Browser Fails to Display Pages</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/trailblazing-drones-the-best-to-always-behind-you-for-2024/"><u>Trailblazing Drones The Best to Always Behind You for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/visual-storytelling-pro-mastering-the-use-of-luts-in-ae-for-2024/"><u>Visual Storytelling Pro Mastering the Use of LUTs in AE for 2024</u></a></li>
 </ul></div>
 

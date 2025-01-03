@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Guide to Easy Video Cuts on Windows Phones\""
-date: 2024-07-29T01:38:27.794Z
-updated: 2024-07-30T01:38:27.794Z
+date: 2025-01-02T16:26:31.458Z
+updated: 2025-01-03T16:33:28.356Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 
 # How to Trim Video in Windows 10 Photos Easily
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,8 +34,9 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 * [**Part2: How to trim video in Windows 10 with VLC**](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -49,9 +47,6 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 **Step 2**: Tap on the video to access the menu bar. Once the menu bar appears at the top hit the **Edit and Create** \> **Trim**.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
@@ -61,8 +56,9 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to trim video in Windows 10 with VLC
 
 Well, as we promised you in the beginning, it's time for the bonus tip! You have understood how to trim videos in Windows 10 Photos, let's explore VLC's magic. When Windows 10 Photos allows you basic level easy trimming for advanced features you can try [VLC](https://www.videolan.org/). For operating systems other than Windows, such as Fedora, Ubuntu, or Mac you won't be able to use Windows 10 Photos, so VLC is a good option for cross-platform video editing.
@@ -75,25 +71,31 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,4 +120,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-saving-your-focus-a-guide-to-quieting-naysayers-on-google-video-calls/"><u>[New] 2024 Approved Saving Your Focus A Guide to Quieting Naysayers on Google Video Calls</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-dialogue-dynamics-balancing-verisimilitude-and-style/"><u>[New] In 2024, Dialogue Dynamics Balancing Verisimilitude and Style</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-viewing-experience-insights-on-eizos-4kcg318-for-2024/"><u>[New] The Ultimate Viewing Experience – Insights on EIZO’s 4KCG318 for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unlocking-gopros-full-potential/"><u>[New] Unlocking GoPro's Full Potential</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-creative-soundscapes-with-the-magix-music-studio-platinum-for-2024/"><u>[Updated] Creative Soundscapes with the Magix Music Studio Platinum for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-enhance-entertainment-experience-navigating-netflixs-picture-in-picture-functionality-for-2024/"><u>[Updated] Enhance Entertainment Experience Navigating Netflix's Picture-in-Picture Functionality for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-cutting-edge-websites-for-digital-3d-gold-text-art/"><u>[Updated] In 2024, Cutting-Edge Websites for Digital 3D Gold Text Art</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-new-frontier-understanding-ars-role/"><u>[Updated] The New Frontier Understanding AR's Role</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-10-lifelike-photo-editing-apps-on-ios-devices-for-2024/"><u>[Updated] Top 10 Lifelike Photo Editing Apps on iOS Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/accelerated-mp4-conversion-for-fb-media-for-2024/"><u>Accelerated MP4 Conversion for FB Media for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-from-iphone-14-plus-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email From iPhone 14 Plus? Heres the Best Fixes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/premier-fb-video-mp4-downloader-no-ads-no-wait/"><u>Premier FB Video MP4 Downloader - No Ads, No Wait</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/premium-serene-pc-games-catalog-for-2024/"><u>Premium Serene PC Games Catalog for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-rexing-v1-dash-cam-quietly-superior-performance-at-a-budget-friendly-price/"><u>Review of the Rexing V1 Dash Cam: Quietly Superior Performance at a Budget-Friendly Price</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/vr-headset-match-the-top-10-360-degree-videos-on-pc/"><u>VR Headset Match The Top 10 360-Degree Videos on PC</u></a></li>
+</ul></div>
 

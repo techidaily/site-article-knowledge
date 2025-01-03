@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cinema Crafting Excellence  Top 5 Camera Skills to Hone\""
-date: 2024-12-21T14:21:43.844Z
-updated: 2024-12-24T16:23:55.874Z
+date: 2024-12-30T21:36:57.336Z
+updated: 2025-01-03T16:12:01.004Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ Step 2 Now open and close the door to get smooth camera movement.
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY LED Panel
 
 You can create LED Panel at home to add light to a subject. Unfortunately, LED strips do not produce bright light when spread as a straight line. However, we can use cardboard and LED light strips to build a broader, more brilliant light. Follow the steps below to make DIY LED Panel.
@@ -63,10 +67,6 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -84,10 +84,6 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -134,7 +130,7 @@ There is a GIF attached below to understand the steps visually.
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
@@ -156,16 +152,12 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -186,11 +178,11 @@ Here is a video showing how to record reveal movement.
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 180° Presentation Movement
@@ -212,7 +204,11 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -234,6 +230,10 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -271,17 +271,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-mastering-the-art-of-video-from-still-photos-through-pixiz-techniques/"><u>[New] 2024 Approved Mastering the Art of Video From Still Photos Through Pixiz Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-optimal-drone-choices-available-immediately/"><u>[New] 2024 Approved Optimal Drone Choices Available Immediately</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-professional-mac-strategies-for-classroom-audio-recording/"><u>[New] 2024 Approved Professional Mac Strategies for Classroom Audio Recording</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-essential-guide-to-top-16-free-video-enthusiasts-for-2024/"><u>[Updated] Essential Guide to Top 16 Free Video Enthusiasts for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-essential-listing-windowsmac-os-x-users-4k-playback-tools-for-2024/"><u>[Updated] Essential Listing Windows/Mac OS X Users - 4K Playback Tools for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-flight-cam-combat-dji-spark-vs-gopro-fury/"><u>[Updated] Flight Cam Combat DJI Spark VS GoPro Fury</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-downloads-brother-hl-l2340dw-driver-software-for-microsoft-windows/"><u>Free Downloads: Brother HL-L2340DW Driver Software for Microsoft Windows</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-to-adding-audio-files-to-inshots-library-for-2024/"><u>Guide to Adding Audio Files to InShot's Library for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-amr-audio-converter-complete-guide-to-amr-files/"><u>New AMR Audio Converter Complete Guide to AMR Files</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-ultimate-tutorial-for-file-deletion-via-command-prompt-on-windows-11/"><u>The Ultimate Tutorial for File Deletion via Command Prompt on Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-laser-engraving-machines-of-2024/"><u>Top Rated Laser Engraving Machines of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-the-i-home-zenergy-a-breakthrough-for-better-morning-wakefulness/"><u>Unveiling The Power Of The I-Home Zenergy: A Breakthrough For Better Morning Wakefulness</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-boost-your-home-cinema-skills-with-these-top-5-tips-for-2024/"><u>[New] Boost Your Home Cinema Skills with These Top 5 Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-premier-20-no-cost-pubg-thumbnail-assemblies-for-2024/"><u>[New] Premier 20 No-Cost PUBG Thumbnail Assemblies for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-how-to-present-ppt-on-google-meet/"><u>[Updated] 2024 Approved How to Present PPT on Google Meet?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-revealing-the-rich-detail-of-your-roblox-journey/"><u>[Updated] 2024 Approved Revealing the Rich Detail of Your Roblox Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-compendium-of-video-camera-classifications/"><u>[Updated] Compendium of Video Camera Classifications</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-decoding-srt-to-subcap-for-filmmakers-for-2024/"><u>[Updated] Decoding SRT to SUBCAP for Filmmakers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-use-picture-in-picture-on-chrome-on-all-platforms/"><u>[Updated] In 2024, How to Use Picture in Picture on Chrome on All Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-swift-circulation-of-playlists-on-youtube/"><u>[Updated] In 2024, Swift Circulation of Playlists on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pinpointing-the-leading-10-invisible-story-enthusiasts-for-2024/"><u>[Updated] Pinpointing the Leading 10 Invisible Story Enthusiasts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-structuring-a-compelling-resume-cv-on-linkedin-for-2024/"><u>[Updated] Structuring a Compelling Resume (CV) on LinkedIn for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-unwinding-utopia-premier-idle-games-for-2024/"><u>[Updated] Unwinding Utopia Premier Idle Games for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-advanced-hdr-image-processing-steps-in-adobe-lightroom/"><u>2024 Approved Advanced HDR Image Processing Steps in Adobe Lightroom</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/creating-temporal-distortions-a-guide-to-movie-magic/"><u>Creating Temporal Distortions A Guide to Movie Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/curated-curation-of-classic-tonal-treasures/"><u>Curated Curation of Classic Tonal Treasures</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-image-uploads-on-instagram-for-2024/"><u>Mastering Image Uploads on Instagram for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-ultimate-obs-playbook-for-twitch-and-youtube-streaming-for-2024/"><u>The Ultimate OBS Playbook for Twitch & YouTube Streaming for 2024</u></a></li>
 </ul></div>
 

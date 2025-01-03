@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10 Essential iPhone Photo Layout Principles for 2024"
-date: 2024-12-24T09:26:12.356Z
-updated: 2024-12-25T07:19:54.774Z
+date: 2025-01-02T21:57:35.877Z
+updated: 2025-01-03T19:42:00.803Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Rule of Thirds
 
  The Rule of Thirds consists of a set of guidelines to assist a photographer correctly position the subject in a particular scene. It is meant to draw the attention of the viewer directly towards the subject. According to this rule, the picture is divided into nine equal grids that break the entire image with two vertical and two horizontal lines into vertical and horizontal thirds. As per the Rule of Thirds, the subject should be placed at the intersecting points of the grids.
@@ -40,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Leading Lines
@@ -49,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Symmetry
 
  For the perfect photo composition with an iPhone, one should understand what all make for the right composition. Photographers divide the frame they want to click into rough patterns and position the subject at the right place to get wonderful shots. Both man-made and natural symmetry and patterns represent eye-catching compositions. You can either take a shot following the symmetric patterns or break them to make the subject stand out by adding focal points and tension.
@@ -60,7 +60,11 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Framing
@@ -69,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Diagonals
 
  Diagonals are an integral aspect of photography composition, as they determine the outcome of a picture you have clicked using your iPhone. Let’s get to know what the role of diagonals in a picture is and how it impacts the visual. As you know the Rules of Thirds is important and it positions the subject of interest at a corner over the grid outlay of a photograph. It sometimes might leave the other corner empty and unbalance the image. Using diagonals, you can position the main subject and diagonally move the less important subjects towards the other end to click the perfectly balanced shot.
@@ -80,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shape
@@ -89,21 +89,25 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Leave Empty Space
 
  You may wonder if I leave too much empty space in my photo contradicts the concept of ‘filling the frame’. But, it brings out the best for your iPhone photography when you have a strong subject in your scene. A clutter free and less distractive environment leads the viewers’ focus towards the main subject. You can think of clicking a giant statue against a clear blue sky, where the sky would act as a perfect background for the statue and render a clean look to the empty space.
 
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Direction of Subject
 
  Like all the photography composition rules, it is important to take note of the direction of the subject in a photograph. This is known as the ‘Rule of Space’ and it leads the viewer towards the subject’s direction of motion. For example, if there is a person walking on the road, then there should be space ahead of him. If there is a person sitting in a bench or rock, he should be clicked facing into the frame, and there should be space in front of him. It will help the viewer’s eyes to go along with the direction he is facing and take notice of the other subjects such as, other people walking in front him, or any pet moving around etc.
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fill Your Frame
 
@@ -118,7 +122,7 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -128,10 +132,6 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -158,22 +158,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-practices-for-reading-youtube-comments/"><u>[New] 2024 Approved Best Practices for Reading YouTube Comments</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enhancing-zoom-video-clarity-user-guide/"><u>[New] 2024 Approved Enhancing Zoom Video Clarity User Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-fps-fanatics-resource-for-fast-controls-and-extensions-for-2024/"><u>[New] FPS Fanatics' Resource for Fast Controls and Extensions for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-innovative-uses-of-b-roll-beyond-traditional-applications/"><u>[New] Innovative Uses of B-Roll Beyond Traditional Applications</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-produce-playful-photoshopped-gifs-via-giphy/"><u>[Updated] 2024 Approved Produce Playful Photoshopped Gifs via Giphy</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-stock-photography-hits-and-heartfelt-tales/"><u>[Updated] 2024 Approved Stock Photography Hits & Heartfelt Tales</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-up-your-game-expert-tips-for-tiktok-editing/"><u>[Updated] Step Up Your Game Expert Tips for TikTok Editing</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-real-time-webcast-applications-for-2024/"><u>[Updated] Top Real-Time Webcast Applications for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-building-brilliance-one-piece-at-a-time/"><u>2024 Approved Building Brilliance One Piece at a Time</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-capturing-the-perfect-snap-on-pexels/"><u>2024 Approved Capturing the Perfect Snap on Pexels</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elegant-endings-selecting-from-free-or-premium-templates/"><u>Elegant Endings Selecting From Free or Premium Templates</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-video-player-face-off-vlc-versus-mpc/"><u>In 2024, Free Video Player Face-Off VLC Versus MPC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools/"><u>In 2024, Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-spots-for-discovering-rich-gold-text-effects/"><u>In 2024, Ultimate Spots for Discovering Rich, Gold Text Effects</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-writers-who-defined-genres-through-exceptional-works/"><u>In 2024, Writers Who Defined Genres Through Exceptional Works</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/masterclass-in-brief-lapses-top-5-for-2024/"><u>Masterclass in Brief Lapses #Top 5 for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-for-techies-securing-your-dream-role-with-expert-resume-strategies/"><u>The Ultimate Guide for Techies: Securing Your Dream Role with Expert Resume Strategies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-live-streaming-software-vs-hardware-which-is-better/"><u>[New] Live Streaming Software Vs Hardware Which Is Better</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-colorful-conga-crow/"><u>[Updated] Colorful Conga Crow</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-forge-an-impeccable-vr-self-representation/"><u>[Updated] In 2024, How to Forge an Impeccable VR Self-Representation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capturing-creativity-mobile-gadgets-ranking-leaders/"><u>Capturing Creativity Mobile Gadgets Ranking Leaders</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/compact-downloads-of-australian-themed-graphics-and-desktops-skins-yl-computing-collection/"><u>Compact Downloads of Australian-Themed Graphics & Desktops Skins: YL Computing Collection</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-digital-marketing-with-the-cookiebot-technology-stack/"><u>Enhance Digital Marketing with the Cookiebot Technology Stack</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-xiaomi-civi-3-disney-100th-anniversary-edition-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Xiaomi Civi 3 Disney 100th Anniversary Edition Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-visual-vibrancy-theory-turned-practice/"><u>In 2024, Visual Vibrancy Theory-Turned-Practice</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/innovative-economical-switch-replicas-for-2024/"><u>Innovative Economical Switch Replicas for 2024</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/step-by-step-guide-restoring-your-revoked-or-expired-professional-license/"><u>Step-by-Step Guide: Restoring Your Revoked or Expired Professional License</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-value-cameras-s-shooting/"><u>Top Value Cameras 'S Shooting</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/topaichatbotmisunderstandings-unraveled-fact-checking-myths-of-top-9-ai-conversational-agents/"><u>TopAIChatbotMisunderstandings Unraveled: Fact-Checking Myths of Top 9 AI Conversational Agents</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-unleash-the-power-of-slow-mo-top-video-editing-software-revealed-for-2024/"><u>Updated Unleash the Power of Slow Mo Top Video Editing Software Revealed for 2024</u></a></li>
 </ul></div>
 

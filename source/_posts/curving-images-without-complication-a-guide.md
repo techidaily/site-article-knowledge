@@ -1,7 +1,7 @@
 ---
 title: "\"Curving Images without Complication  A Guide\""
-date: 2024-12-22T00:25:01.833Z
-updated: 2024-12-24T16:45:55.914Z
+date: 2024-12-30T21:08:54.898Z
+updated: 2025-01-03T16:36:22.461Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -44,7 +40,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -53,22 +49,22 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
@@ -79,19 +75,23 @@ The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,16 +127,20 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-settled-evasive-behavior-of-shorts-content/"><u>[New] 2024 Approved Settled Evasive Behavior of Shorts Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>[New] Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-elevating-your-ar-projects-with-custom-downloadable-luts/"><u>[Updated] 2024 Approved Elevating Your AR Projects with Custom, Downloadable LUTS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-eyelaughs-funny-image-generator/"><u>[Updated] 2024 Approved EyeLaughs Funny Image Generator</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-digital-image-detail-enhancement-with-top-frameer-tools-for-2024/"><u>[Updated] Digital Image Detail Enhancement with Top Frameer Tools for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-passion-to-paycheck-a-strategic-guide-to-attracting-brand-backers-on-instagram/"><u>2024 Approved From Passion to Paycheck A Strategic Guide to Attracting Brand Backers on Instagram</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/experts-guide-to-infinite-space-utilization/"><u>Expert's Guide to Infinite Space Utilization</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-advantages-of-switching-to-macos-11-big-sur/"><u>In 2024, Explore the Advantages of Switching to macOS 11 Big Sur</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-a60s-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel A60s to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/recording-wizardry-5-tactics-for-windows-enthusiasts/"><u>Recording Wizardry 5 Tactics for Windows Enthusiasts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/tender-tracks-ideal-music-to-accompany-a-lifelayer-change-for-2024/"><u>Tender Tracks Ideal Music to Accompany a Lifelayer Change for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-eliminate-background-in-images-with-ease-using-canva/"><u>[New] Eliminate Background in Images with Ease Using Canva</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-direct-gif-to-video-upgrade-no-download-just-click-and-convert/"><u>[Updated] 2024 Approved Direct GIF-to-Video Upgrade No Download, Just Click & Convert</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-bridge-gap-twitter-video-and-chrome-compatibility-for-2024/"><u>[Updated] Bridge Gap Twitter Video and Chrome Compatibility for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-decoding-durecorder-features-and-user-guide-review-for-2024/"><u>[Updated] Decoding DuRecorder Features and User Guide Review for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-echoes-of-excellence-10-strategies-for-superior-sound-quality-for-2024/"><u>[Updated] Echoes of Excellence 10 Strategies for Superior Sound Quality for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dji-aerial-units-baseline-upgraded-ultrahd-experts/"><u>[Updated] In 2024, DJI Aerial Units Baseline, Upgraded, UltraHD Experts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-nows-vr-tech-landscape/"><u>[Updated] Now’s VR Tech Landscape</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/expert-iphone-photography-using-hdr-for-2024/"><u>Expert iPhone Photography Using HDR for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/explore-new-heights-increasing-window-11-icon-size/"><u>Explore New Heights: Increasing Window 11 Icon Size</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlock-youtubes-end-screens-easy-template-ideas-and-tutorials/"><u>In 2024, Unlock YouTube's End Screens Easy Template Ideas & Tutorials</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/innovative-tech-for-your-instant-sharing-needs-on-facebook-for-2024/"><u>Innovative Tech for Your Instant Sharing Needs on Facebook for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/navigating-the-clouds-of-video-editing-best-drones-tools-ranked/"><u>Navigating the Clouds of Video Editing Best Drones Tools Ranked</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-role-of-asmr-in-improving-mental-clarity-for-2024/"><u>The Role of ASMR in Improving Mental Clarity for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-full-potential-saving-and-playing-gifs-on-iphones/"><u>Unlocking Full Potential Saving & Playing GIFs on iPhones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unpacking-the-features-and-shortcomings-of-samsung-image-editor/"><u>Unpacking the Features and Shortcomings of Samsung Image Editor</u></a></li>
 </ul></div>
 

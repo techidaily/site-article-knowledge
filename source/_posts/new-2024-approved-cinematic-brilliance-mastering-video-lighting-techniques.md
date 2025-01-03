@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cinematic Brilliance  Mastering Video Lighting Techniques\""
-date: 2024-12-19T18:50:34.624Z
-updated: 2024-12-24T21:29:09.858Z
+date: 2024-12-28T19:19:16.114Z
+updated: 2025-01-03T17:37:01.444Z
 tags: 
   - screen-recording
   - ai video
@@ -57,25 +57,21 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -84,6 +80,10 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
@@ -103,10 +103,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -114,7 +110,11 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -151,15 +151,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-rankings-leading-gopro-case-models/"><u>[New] 2024 Approved The Ultimate Rankings Leading GoPro Case Models</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleash-potential-discovering-free-onlineoffline-animations/"><u>[Updated] 2024 Approved Unleash Potential Discovering Free Online/Offline Animations</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unleash-your-vision-the-best-360-livestimation-devices/"><u>[Updated] Unleash Your Vision The Best 360° Livestimation Devices</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/5-tutorials-on-how-to-transfer-photos-from-apple-iphone-12-pro-max-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>5 Tutorials on How to Transfer Photos From Apple iPhone 12 Pro Max to New iPhone | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-nokia-c02-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Nokia C02?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-prime-tools-for-gopro-action-footage/"><u>In 2024, Prime Tools for GoPro Action Footage</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mastering-the-art-of-screenshots-best-techniques-to-record-your-screen-on-a-windows-laptop-versions-1011/"><u>Mastering the Art of Screenshots: Best Techniques to Record Your Screen on a Windows Laptop (Versions 10/11)</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/no-audio-with-airpods-on-window-1110-follow-these-steps-for-a-quick-fix/"><u>No Audio with AirPods on Window 11/10? Follow These Steps for a Quick Fix</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/overcoming-blurry-photos-effective-remedies-for-iphone-camera-autofocus-problems/"><u>Overcoming Blurry Photos: Effective Remedies for iPhone Camera Autofocus Problems</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-pick-best-microphone-for-youtube-gurus-for-2024/"><u>Prime Pick Best Microphone for YouTube Gurus for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-merge-visual-media-with-music-tracks-in-premiere-pro/"><u>[New] 2024 Approved Merge Visual Media With Music Tracks in Premiere Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-capturing-time-slowly-tips-for-slow-motion-videos-using-photos-apps/"><u>[New] In 2024, Capturing Time Slowly Tips for Slow-Motion Videos Using Photos Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-high-quality-action-recorders-12-enhanced-with-gps-navigation/"><u>[New] In 2024, High-Quality Action Recorders 12, Enhanced with GPS Navigation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pioneering-the-vr-world-essential-gear-ranked/"><u>[New] Pioneering the VR World Essential Gear Ranked</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-magic-of-time-expansion-a-comprehensive-guide-to-making-beautifully-long-movies-with-still-images-and-online-tools/"><u>[Updated] 2024 Approved The Magic of Time Expansion A Comprehensive Guide to Making Beautifully Long Movies with Still Images & Online Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-deluxe-low-cost-asmr-recording-options-for-enthusiasts/"><u>[Updated] In 2024, Deluxe Low-Cost ASMR Recording Options for Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-reimagine-your-content-with-advanced-number-edits-in-tiktok-for-2024/"><u>[Updated] Reimagine Your Content with Advanced Number Edits in TikTok for 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/diy-penguin-fun-how-to-design-and-share-bing-dwen-dwen-stickers-via-whatsapp/"><u>DIY Penguin Fun: How to Design and Share Bing Dwen Dwen Stickers via WhatsApp</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/dual-dimensions-in-display-the-instagram-guide-to-effortless-image-turns-for-2024/"><u>Dual Dimensions in Display The Instagram Guide to Effortless Image Turns for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/elevating-your-online-presence-a-complete-handbook-for-tiktok-name-change/"><u>Elevating Your Online Presence A Complete Handbook for TikTok Name Change</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-2023-how-to-share-twitter-videos-on-whatsapp/"><u>In 2024, 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-effective-tactics-for-customizing-song-tempo-in-spotify/"><u>In 2024, Effective Tactics for Customizing Song Tempo in Spotify</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-funny-meme-on-macbook/"><u>In 2024, How to Make a Funny Meme on MacBook</u></a></li>
+<li><a href="https://win11.techidaily.com/innovative-approaches-for-temporary-profiles-on-windows/"><u>Innovative Approaches for Temporary Profiles on Windows</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/merging-youtube-soundtracks-to-cinematic-scenes-for-2024/"><u>Merging YouTube Soundtracks to Cinematic Scenes for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-realme-c67-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Realme C67 5G</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/resolving-not-responding-errors-fix-oculus-air-link-issues-in-windows/"><u>Resolving 'Not Responding' Errors: Fix Oculus Air Link Issues in Windows</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unlocking-the-potential-of-sound-in-your-powerpoint-sessions-for-2024/"><u>Unlocking the Potential of Sound in Your PowerPoint Sessions for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Magic of Time Expansion  A Comprehensive Guide to Making Beautifully Long Movies with Still Images & Online Tools\""
-date: 2024-12-21T05:19:26.573Z
-updated: 2024-12-25T01:15:27.191Z
+date: 2025-01-02T16:29:53.004Z
+updated: 2025-01-03T21:19:14.129Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：How to Use Slow Motion in Windows 10
 
 There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
@@ -46,10 +50,14 @@ Navigate to the folder where your video file is located and right click on it. Y
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/slow-motion-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2：Customizing the Slow Motion Effect
 
@@ -61,10 +69,6 @@ Now you can select the beginning and end point using the bottom slider on the Ph
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
 You can even create multiple versions of the file with the slow motion effect applied in different ways. Then you can watch the videos you just created to decide on the best version.
@@ -74,10 +78,6 @@ You can even create multiple versions of the file with the slow motion effect ap
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
 
@@ -98,7 +98,11 @@ The program will let you adjust the video speed to your liking. Then you will ge
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -106,10 +110,6 @@ The program will let you adjust the video speed to your liking. Then you will ge
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -136,16 +136,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-portable-gear-for-travel-cinematography/"><u>[Updated] In 2024, Portable Gear for Travel Cinematography</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-lecture-transcription-at-zero-expense/"><u>[Updated] Lecture Transcription at Zero Expense</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-simplifying-the-task-of-enriching-youtube-plays-with-media/"><u>[Updated] Simplifying the Task of Enriching YouTube Plays with Media</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-zero-shaking-zones-how-to-fix-unstable-gopro-videos-for-2024/"><u>[Updated] Zero Shaking Zones How to Fix Unstable GoPro Videos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/drone-innovation-existing-applications-and-upcoming-potential/"><u>Drone Innovation Existing Applications & Upcoming Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-optimal-pointing-devices-for-enhancing-ipad-productivity/"><u>Expert Review: Optimal Pointing Devices for Enhancing iPad Productivity</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/future-gaming-top-5-psvr-releases-on-the-horizon-for-2024/"><u>Future Gaming Top 5 PSVR Releases on the Horizon for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-your-digital-dialogue-top-5-strategies-for-personalized-ai-commands/"><u>Mastering Your Digital Dialogue: Top 5 Strategies for Personalized AI Commands</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/perfecting-your-photos-from-the-sky-how-to-select-the-right-drone-gimbal-for-2024/"><u>Perfecting Your Photos From the Sky How To Select The Right Drone Gimbal for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-nokia-c12-pro-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Nokia C12 Pro Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/top-5-inspiring-book-tt-showcases-for-2024/"><u>Top 5 Inspiring Book TT Showcases for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-investment-guidelines-for-effective-youtube-campaigns/"><u>[New] 2024 Approved Investment Guidelines for Effective YouTube Campaigns</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-effective-approaches-to-downloading-hectic-tiktok-archives/"><u>[New] Effective Approaches to Downloading Hectic TikTok Archives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-birds-eye-briefing-critique/"><u>[New] In 2024, Bird's Eye Briefing Critique</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ice-skates-and-epochs-a-look-at-beijings-olympic-saga-2022/"><u>[Updated] 2024 Approved Ice Skates & Epochs A Look at Beijing's Olympic Saga, 2022</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-swift-film-techniques-for-at-home-creators/"><u>[Updated] 2024 Approved Swift Film Techniques for At-Home Creators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-beginners-guide-to-av1-codec-for-2024/"><u>[Updated] Beginner's Guide to AV1 Codec for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-elevating-your-facebook-presence-dji-drone-streaming-tips/"><u>[Updated] In 2024, Elevating Your Facebook Presence DJI Drone Streaming Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-insight-into-burst-mode-for-dynamic-photography/"><u>[Updated] In 2024, Insight Into Burst Mode for Dynamic Photography</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-realme-narzo-60-pro-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Realme Narzo 60 Pro 5G PC | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-oppo-reno-8t-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Oppo Reno 8T 5G Phone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-turning-screen-time-into-cash-the-youtube-way/"><u>In 2024, Turning Screen Time Into Cash The YouTube Way</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ultimate-list-leading-vr-biking-rides/"><u>In 2024, Ultimate List Leading VR Biking Rides</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/internet-disconnection-dilemma/"><u>Internet Disconnection Dilemma</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-ten-web-retailers-for-exquisite-wrapped-delights-for-2024/"><u>Top Ten Web Retailers for Exquisite Wrapped Delights for 2024</u></a></li>
 </ul></div>
 

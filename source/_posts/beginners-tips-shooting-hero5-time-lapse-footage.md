@@ -1,7 +1,7 @@
 ---
 title: "\"Beginner's Tips  Shooting Hero5 Time-Lapse Footage\""
-date: 2024-07-29T01:36:54.858Z
-updated: 2024-07-30T01:36:54.858Z
+date: 2024-12-29T19:21:03.284Z
+updated: 2025-01-03T22:21:12.691Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
 # How to Shoot a Time-lapse Video with GoPro Hero5 Black
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -37,6 +34,10 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 
 * [Part 1:Shooting a time lapse video with GoPro Hero5](#part1)
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
@@ -81,9 +82,6 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Making time lapse videos with Wondershare Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a powerful and easy to use software with which you can edit your time lapse videos. The Filmora action cam version is going to make your job a lot more easy. It comes with 2 new tools-
@@ -92,37 +90,40 @@ The Action Cam Tool- this has the capacity of correcting lens distortion and can
 
 The Instant cutter tool on the other hand can be used for trimming and merging videos quickly and easily without damaging its quality. It supports many video formats like  encoded MP4, MTS and mov video which have been shot on phones, HD cameras and Action cams.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
 * Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html)available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -147,4 +148,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-cutting-edge-online-methods-for-supercharging-vhs-artifacts/"><u>[New] 2024 Approved Cutting-Edge Online Methods for Supercharging VHS Artifacts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-deep-dive-into-periscope-its-free-how-to-register/"><u>[New] 2024 Approved Deep Dive Into Periscope It's Free? How To Register</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pinnaclepix-z7-pro-elevate-your-photos-dimensions-for-2024/"><u>[New] PinnaclePix Z7 Pro Elevate Your Photo's Dimensions for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-artists-roadmap-to-professional-growth/"><u>[New] The Artist's Roadmap to Professional Growth</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-comparative-overview-of-googles-ar-stickers-and-its-counterparts-for-2024/"><u>[Updated] Comparative Overview of Google's AR Stickers & Its Counterparts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-sony-a6400-video-not-showing-troubleshooting-guide/"><u>[Updated] Sony A6400 Video Not Showing Troubleshooting Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/expert-techniques-for-clearing-picture-edges/"><u>Expert Techniques for Clearing Picture Edges</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-y100a-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo Y100A to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-itel-p40-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Itel P40 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-crafting-interactive-web-services-using-language-models/"><u>Mastering the Art of Crafting Interactive Web Services Using Language Models</u></a></li>
+<li><a href="https://games-able.techidaily.com/rally-the-friends-unveiling-the-most-exciting-sports-apps-iosandroid/"><u>Rally the Friends: Unveiling the Most Exciting Sports Apps (iOS/Android)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-art-of-gameye-immersive-video-recording/"><u>The Art of GamEye Immersive Video Recording</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-your-home-theater-with-win-1011s-dolby-atmos-sound/"><u>Transform Your Home Theater with Win 10/11'S Dolby Atmos Sound</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-lava-blaze-2-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Lava Blaze 2 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 

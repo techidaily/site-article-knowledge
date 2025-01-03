@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, IPhone Lens Hacks  Capturing Perfect Reflections\""
-date: 2024-12-23T20:16:50.690Z
-updated: 2024-12-24T19:42:55.258Z
+date: 2024-12-29T19:43:09.582Z
+updated: 2025-01-03T22:45:27.465Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips For Perfect Reflective Photography With Your iPhone
@@ -53,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
 ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  A Crystal/Glass Ball
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
@@ -64,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
  Water in a wine glass (turns everything upside down too!)
 
 ![water-reflection](https://images.wondershare.com/filmora/article-images/water-reflection.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\.  Pay Attention to Composition
 
@@ -90,12 +90,16 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Awful
 
 ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Reality and Reflection
 
@@ -108,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 ![reality-and-reflection](https://images.wondershare.com/filmora/article-images/reality-and-reflection.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\.  Texture
@@ -162,10 +166,6 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -191,22 +191,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-crafting-chronological-displacement-effects/"><u>[New] Crafting Chronological Displacement Effects</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/lashglimpse-crafter/"><u>[New] FlashGlimpse Crafter</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-comparative-study-dji-quadcopter-standard-edition/"><u>[New] In 2024, Comparative Study DJI Quadcopter Standard Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-optimal-live-video-distributors-suite/"><u>[New] In 2024, Optimal Live Video Distributors' Suite</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-streamline-your-video-workflow-youtube-to-mpeg-essentials/"><u>[New] Streamline Your Video Workflow YouTube-to-MPEG Essentials</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-anime-youtube-essentials-the-best-20-channels/"><u>[Updated] 2024 Approved Anime YouTube Essentials The Best 20 Channels</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-discover-the-ultimate-5-gaming-webcam-winners-for-streaming/"><u>[Updated] Discover the Ultimate 5 Gaming Webcam Winners for Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elite-cutting-edge-tools-devices-for-apps-for-2024/"><u>[Updated] Elite Cutting-Edge Tools (Devices) for Apps for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-streaming-showdown-which-superior-broadcaster-tool-are-you-for-2024/"><u>[Updated] Streaming Showdown Which Superior Broadcaster Tool Are You for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-swiftly-blur-your-iphone-shots-with-these-4-tricks/"><u>[Updated] Swiftly Blur Your iPhone Shots with These 4 Tricks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unlocking-optimal-flight-the-lipo-selection-saga-for-2024/"><u>[Updated] Unlocking Optimal Flight The LiPo Selection Saga for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-realme-gt-3-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Realme GT 3? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/fixing-dolby-audio-failures-on-your-windows-pc-windows-1110/"><u>Fixing Dolby Audio Failures on Your Windows PC (Windows 11/10)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-dynamic-imagery-achieving-balanced-colors-in-gopro-footage/"><u>In 2024, Dynamic Imagery Achieving Balanced Colors in GoPro Footage</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-guide-to-iphones-macro-and-close-up-photography-tactics/"><u>In 2024, Ultimate Guide to iPhone's Macro & Close-Up Photography Tactics</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-nokia-c110-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Nokia C110 and Browser | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/warzone-on-windows-10-ensuring-your-graphics-card-is-fully-activated-for-gaming/"><u>Warzone on Windows 10: Ensuring Your Graphics Card Is Fully Activated for Gaming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-episode-unveiling-optimized-by-day-and-time-for-2024/"><u>[New] Episode Unveiling Optimized by Day & Time for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-collective-reflections-on-vllo-usage/"><u>[New] In 2024, Collective Reflections on VLLO Usage</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-luxury-makeup-techniques-unveiled/"><u>[New] In 2024, Luxury Makeup Techniques Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-yuneecs-breakthrough-in-high-res-aerial-vision/"><u>[New] In 2024, Yuneec's Breakthrough in High-Res Aerial Vision</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-zoom-mastery-embracing-intricate-screen-images/"><u>[New] In 2024, Zoom Mastery Embracing Intricate Screen Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ey-view-figures-for-earning-living-on-youtube-for-2024/"><u>[New] Key View Figures for Earning Living on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-from-still-shots-to-moving-images-ipads-timelapse-magic/"><u>[Updated] From Still Shots to Moving Images IPad's Timelapse Magic</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-harnessing-youtubes-power-for-personal-image-amplification/"><u>2024 Approved Harnessing YouTube's Power for Personal Image Amplification</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhancing-your-syma-x8c-experience/"><u>Enhancing Your Syma X8C Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-htc-u23-pro-phone-that-is-locked-by-drfone-android/"><u>How to Reset a HTC U23 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-changefake-your-xiaomi-redmi-13c-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Xiaomi Redmi 13C 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-revolutionary-methods-for-breaking-barriers-in-gif-making/"><u>In 2024, Revolutionary Methods for Breaking Barriers in GIF Making</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-complete-manual-for-creating-condensed-youtube-videos/"><u>In 2024, The Complete Manual for Creating Condensed YouTube Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/macbook-pro-vs-ipad-pro-an-in-depth-comparison/"><u>MacBook Pro Vs. IPad Pro: An In-Depth Comparison</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/turning-xmlssattml-files-into-srt-formats-strategies-and-techniques-for-2024/"><u>Turning XML/SSA/TTML Files Into SRT Formats Strategies and Techniques for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"One Frame at a Time  How To Extract Images From Windows 10 Movie Files for 2024\""
-date: 2024-12-19T19:57:18.279Z
-updated: 2024-12-25T11:25:19.637Z
+date: 2024-12-29T17:00:07.474Z
+updated: 2025-01-03T20:00:54.055Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -53,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -65,14 +69,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -81,6 +81,10 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
@@ -88,10 +92,6 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -108,15 +108,15 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,18 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-innovateimages-ai-next-level-editing-excellence/"><u>[New] 2024 Approved InnovateImages AI Next-Level Editing Excellence</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-detailed-audit-unveiling-the-dji-inspire-1/"><u>[New] Detailed Audit Unveiling the DJI Inspire 1</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-entering-the-metaverse-discovering-6-rich-examples-for-2024/"><u>[New] Entering the Metaverse Discovering 6 Rich Examples for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-breaking-boundaries-with-metaverse-humor-a-guide-for-you/"><u>[New] In 2024, Breaking Boundaries with Metaverse Humor A Guide for You</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-unveiling-the-pathway-to-discord-affiliation-a-verification-manual/"><u>[Updated] 2024 Approved Unveiling the Pathway to Discord Affiliation A Verification Manual</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-aggregating-users-experiences-with-vllo/"><u>[Updated] In 2024, Aggregating Users' Experiences with VLLO</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-oculus-illness-prevention-guide-for-2024/"><u>[Updated] Oculus Illness Prevention Guide for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/acquiring-high-clarity-imagery-without-limitations/"><u>Acquiring High-Clarity Imagery without Limitations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-harmonizing-vision-and-voice-the-ultimate-guide/"><u>In 2024, Harmonizing Vision and Voice The Ultimate Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-guide-to-convert-srt-to-txt-in-minutes/"><u>In 2024, Ultimate Guide to Convert SRT to TXT in Minutes</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-filmmakers-pathway-to-youtube-success-with-professional-360-video-edits-for-2024/"><u>The Filmmaker's Pathway to YouTube Success with Professional 360 Video Edits for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125957-9781609254315-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key to the Tarot | Free Book</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-the-potential-of-virtual-collaboration-starting-zoom-calls-on-android/"><u>[New] 2024 Approved Unlocking the Potential of Virtual Collaboration Starting Zoom Calls on Android</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-five-star-sierra-video-processing-tools/"><u>[New] In 2024, Five-Star Sierra Video Processing Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-live-photo-complete-guide-how-to-use-it-on-iphone/"><u>[Updated] Live Photo Complete Guide How to Use It on iPhone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-techniques-for-downloading-converting-and-saving-vids-on-twitter-as-mp3s-for-2024/"><u>[Updated] Techniques for Downloading, Converting, and Saving Vids on Twitter as MP3s for 2024</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/can-file-restoration-assist-in-retrieving-deleted-information-insights-from-yl-computings-expertise/"><u>Can File Restoration Assist in Retrieving Deleted Information: Insights From YL Computing's Expertise</u></a></li>
+<li><a href="https://some-tips.techidaily.com/customized-marketing-with-automated-cookiebot-solutions/"><u>Customized Marketing with Automated Cookiebot Solutions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-tecno-spark-go-2023-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Tecno Spark Go (2023) Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-disseminating-wirecast-insights-and-alternatives/"><u>In 2024, Disseminating WireCast Insights and Alternatives</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-samsung-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Samsung Pattern Lock Screen</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-top-tier-extended-reality-experience-makers/"><u>In 2024, Top-Tier Extended Reality Experience Makers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-xiaomi-redmi-a2plus-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Xiaomi Redmi A2+ ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/reconfiguring-your-macs-command-keys-a-step-by-step-guide/"><u>Reconfiguring Your Mac's Command Keys: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

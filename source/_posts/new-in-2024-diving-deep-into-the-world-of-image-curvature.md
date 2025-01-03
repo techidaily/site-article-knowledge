@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Diving Deep Into the World of Image Curvature"
-date: 2024-12-20T11:08:06.626Z
-updated: 2024-12-25T05:51:25.741Z
+date: 2025-01-01T19:52:55.996Z
+updated: 2025-01-03T17:42:42.539Z
 tags: 
   - screen-recording
   - ai video
@@ -46,7 +46,7 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
@@ -56,28 +56,24 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -90,7 +86,11 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,17 +127,17 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-essential-design-tools-top-10-vector-graphics-making-and-editing-apps/"><u>[New] In 2024, Essential Design Tools Top 10 Vector Graphics Making & Editing Apps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-quick-start-making-professional-gifs-for-2024/"><u>[New] Quick Start Making Professional GIFs for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-decisive-captures-combatting-disarray/"><u>[Updated] Decisive Captures Combatting Disarray</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-uncovering-illegal-gain-from-false-subscriber-sales/"><u>[Updated] In 2024, Uncovering Illegal Gain From False Subscriber Sales</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-pros-guide-to-conquering-photovideo-importers-in-win11-for-2024/"><u>[Updated] The Pro's Guide to Conquering Photo/Video Importers in Win11 for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/cinematic-speed-top-cameras-for-slow-motion-videography-for-2024/"><u>Cinematic Speed Top Cameras for Slow Motion Videography for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/comprehensive-fs-view-strategies-for-premiere-pro-for-2024/"><u>Comprehensive FS View Strategies for Premiere Pro for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-google-pixel-8-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Google Pixel 8 Get Deleted Pictures Back with Ease and Safety?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-pros-and-cons-of-virtual-reality/"><u>In 2024, Pros and Cons of Virtual Reality</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/kingston-sd-3/"><u>Kingston SDメモリカード復元策: 信頼性と速さを追求した3つの選び方</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-15-pro-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From iPhone 15 Pro</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-y78t-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo Y78t Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-redefining-visual-standards-hdr-vs-standard-sdr/"><u>[New] 2024 Approved Redefining Visual Standards HDR Vs. Standard SDR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-comprehensive-analysis-of-video-editing-powerdirector-pro-suite-review-for-2024/"><u>[Updated] Comprehensive Analysis of Video Editing PowerDirector Pro Suite Review for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-following-review-creative-options/"><u>[Updated] Following Review Creative Options</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-quick-steps-to-record-and-share-your-skyrim-quests-for-2024/"><u>[Updated] Quick Steps to Record and Share Your Skyrim Quests for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-soundbite-strategies-transform-your-voice-records/"><u>[Updated] Soundbite Strategies Transform Your Voice Records</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/budgetclouds-vault-spaceful-large-data-sanctuary/"><u>BudgetCloud's Vault Spaceful Large Data Sanctuary</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-ultimate-selection-of-crypto-chatgpt-addons-a-buyers-guide/"><u>Discover the Ultimate Selection of Crypto ChatGPT Addons: A Buyer's Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-xsplit-expertise-centralized-downloads-and-views/"><u>In 2024, XSplit Expertise Centralized Downloads & Views</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/leading-apps-for-flawless-android-screenshots-and-recording/"><u>Leading Apps for Flawless Android Screenshots & Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-online-earnings-youtubes-money-matrix/"><u>The Art of Online Earnings YouTube's Money Matrix</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-the-ultimate-guide-to-computer-hardware/"><u>Tom's Tech Hub: The Ultimate Guide to Computer Hardware</u></a></li>
 </ul></div>
 

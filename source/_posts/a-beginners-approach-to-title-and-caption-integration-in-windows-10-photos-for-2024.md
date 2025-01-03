@@ -1,7 +1,7 @@
 ---
 title: "A Beginner's Approach to Title and Caption Integration in Windows 10 Photos for 2024"
-date: 2024-07-29T01:37:40.899Z
-updated: 2024-07-30T01:37:40.899Z
+date: 2024-12-29T17:44:07.183Z
+updated: 2025-01-03T21:07:25.196Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -40,26 +44,21 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Firstly, divide your videos into sections. Add section titles to the background video or image. Use relevant image for each section and add a section header. If you do not have any relevant image, search from the web by clicking on add Photos/videos.
 * Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -75,23 +74,26 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -121,4 +123,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-10-ultimate-websites-for-stunning-hdr-skies/"><u>[New] 10 Ultimate Websites for Stunning HDR Skies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-online-sources-for-high-quality-vector-illustrations/"><u>[New] In 2024, Top Online Sources for High-Quality Vector Illustrations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-innovative-visionaries-choice-top-10-graphics-creation-apps/"><u>[Updated] Innovative Visionaries' Choice Top 10 Graphics Creation Apps</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-scripting-striking-film-epilogues/"><u>[Updated] Scripting Striking Film Epilogues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-dive-into-fixes-for-your-troublesome-instagram-video/"><u>2024 Approved Dive Into Fixes for Your Troublesome Instagram Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/guide-to-choosing-best-free-srt-translators-online/"><u>Guide to Choosing Best FREE SRT Translators Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-chromebook-11-reviewed-the-optimal-companion-for-academic-success-professional-efficiency-and-fun/"><u>HP Chromebook 11 Reviewed: The Optimal Companion for Academic Success, Professional Efficiency & Fun</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-pulse-finder-your-free-online-music-buddy/"><u>The Pulse Finder – Your Free, Online Music Buddy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-of-promotional-marketing-deciphering-the-role-of-hashtags-on-fb/"><u>The Puzzle of Promotional Marketing: Deciphering the Role of #Hashtags on FB</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/total-exploration-of-vsco-photography-functions-for-2024/"><u>Total Exploration of VSCO Photography Functions for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-top-rated-ultralight-laptop-perfect-for-telecommuters-zdnet-insights/"><u>Ultimate Guide: Top Rated Ultralight Laptop Perfect for Telecommuters | ZDNet Insights</u></a></li>
+</ul></div>
 
