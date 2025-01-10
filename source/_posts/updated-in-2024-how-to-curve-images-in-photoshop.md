@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Curve Images in Photoshop"
-date: 2024-12-29T22:00:43.838Z
-updated: 2025-01-03T22:48:08.921Z
+date: 2025-01-08T17:28:42.597Z
+updated: 2025-01-10T17:44:26.633Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -42,6 +38,10 @@ To keep things simple, let's start with a white canvas. Let's open a new documen
 After creating the new document, open the image that you want to curve. You may do so by going to File > Open in the menu bar or pressing Ctrl+O or Command+O on your keyboard. Once the image is open, go to Edit in the menu bar and select Place Embedded from the drop-down menu that appears. Select your image and click Place. The image will be placed on the canvas. If the document's size does not match that of the image, you will see a transformation box surrounding the image.
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3Warp the Image
 
@@ -56,7 +56,7 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
@@ -67,21 +67,21 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
@@ -90,7 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,14 +127,22 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-capturing-skype-audiovideo-windows-and-mac-tips-for-2024/"><u>[New] Capturing Skype Audio/Video Windows & Mac Tips for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-practices-selecting-among-top-9-free-logo-designers/"><u>[New] In 2024, Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-personalizing-ps-sound-the-complete-guide-for-gamers/"><u>[New] Personalizing PS Sound The Complete Guide for Gamers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-compreited-list-of-top-8-gaming-monitors-5k/"><u>[Updated] A Compreited List of Top 8 Gaming Monitors, 5K</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unveiling-the-art-of-flipping-photo-shades-for-2024/"><u>[Updated] Unveiling the Art of Flipping Photo Shades for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-samsung-galaxy-xcover-6-pro-tactical-edition-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Samsung Galaxy XCover 6 Pro Tactical Edition Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/best-iphone-models-for-an-enhanced-mobile-gaming-experience/"><u>Best iPhone Models for an Enhanced Mobile Gaming Experience</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-poco-f5-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Poco F5 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/open-markets-close-plans-strategy-inception-for-2024/"><u>Open Markets, Close Plans Strategy Inception for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-discovering-the-best-uses-for-nikon-d7500/"><u>[New] In 2024, Discovering the Best Uses for Nikon D7500</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-list-8-ranked-android-video-tile-maker-options-freepaid-for-2024/"><u>[New] The Ultimate List #8 Ranked Android Video Tile Maker Options (Free/Paid) for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-monitor-selection-mastery-ultrawide-versus-uhd-4k/"><u>[Updated] 2024 Approved Monitor Selection Mastery UltraWide Versus UHD 4K</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-plain-story-formulation/"><u>[Updated] 2024 Approved Plain Story Formulation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-simplify-your-remote-meetings-integrating-skype-and-zoom/"><u>[Updated] In 2024, Simplify Your Remote Meetings Integrating Skype and Zoom</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-make-your-own-meme/"><u>[Updated] Make Your Own Meme</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-powerful-book-trailer-examples/"><u>[Updated] Powerful Book Trailer Examples</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gif/"><u>直接在線 GIF 編輯：如何即時變更任何影片成為動畫 - 無須付費版</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ednosuced-eating-disorder-not-otherwise-specifiedunspecified-feeding-or-eating-disorder/"><u>EDNOS/UCED = Eating Disorder Not Otherwise Specified/Unspecified Feeding or Eating Disorder;</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/essential-tips-for-repairing-media-mishaps/"><u>Essential Tips for Repairing Media Mishaps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-idea-to-air-writing-a-podcast-with-the-help-of-chatgpt-unveiled/"><u>From Idea to Air: Writing a Podcast with the Help of ChatGPT Unveiled</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/online-amv-mp3-converter-free-download-and-use-with-movavi/"><u>Online AMV MP3 Converter - Free Download & Use with Movavi</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/photoshops-power-shifting-hues-at-your-fingertips-for-2024/"><u>Photoshop's Power Shifting Hues at Your Fingertips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-applications-transforming-vtuber-voices-on-the-fly/"><u>Prime Applications Transforming VTuber Voices on the Fly</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/terminate-chatgpt-connection-now/"><u>Terminate ChatGPT Connection Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-guide-to-earning-money-on-reddit-for-beginners-for-2024/"><u>The Ultimate Guide to Earning Money on Reddit for Beginners for 2024</u></a></li>
 </ul></div>
 

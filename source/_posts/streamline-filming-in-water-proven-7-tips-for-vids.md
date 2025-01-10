@@ -1,7 +1,7 @@
 ---
 title: "\"Streamline Filming in Water  Proven 7 Tips for Vids\""
-date: 2024-12-30T17:29:42.905Z
-updated: 2025-01-03T19:53:18.191Z
+date: 2025-01-03T16:29:41.114Z
+updated: 2025-01-10T17:25:44.430Z
 tags: 
   - screen-recording
   - ai video
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Lighting is important
@@ -70,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -82,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
@@ -91,11 +91,19 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -117,15 +125,7 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,20 +152,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-beyond-illusory-boundaries-understanding-the-spectrum-vr-ar-and-mr/"><u>[New] 2024 Approved Beyond Illusory Boundaries Understanding the Spectrum (VR, AR, & MR)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-delving-into-the-nuances-of-touch-based-navigation/"><u>[New] 2024 Approved Delving Into the Nuances of Touch-Based Navigation</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-photobooth-lags-steadying-the-playback-journey/"><u>[New] 2024 Approved Photobooth Lags Steadying the Playback Journey</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-explore-best-gopro-cases-rated-1-10/"><u>[New] In 2024, Explore Best GoPro Cases Rated #1-10</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-complete-guide-to-capturing-ps4-games-via-obs/"><u>[Updated] 2024 Approved Complete Guide to Capturing PS4 Games via OBS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-peak-of-data-preservation-cloud-service-guide/"><u>[Updated] 2024 Approved The Peak of Data Preservation Cloud Service Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-visual-vividity-techniques-in-hue-adjustment/"><u>[Updated] In 2024, Visual Vividity Techniques in Hue Adjustment</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-next-level-game-monitoring-software-beyond-the-fbx-standard-for-2024/"><u>[Updated] Next Level Game Monitoring Software Beyond the FBX Standard for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-premier-comedy-photo-stylist-tool/"><u>[Updated] Premier Comedy Photo Stylist Tool</u></a></li>
-<li><a href="https://some-tips.techidaily.com/1726227573560-tsmpeg-movavi/"><u>網路直接免費轉換TS到MPEG影片-Movavi 轉檔器</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-streaming-profitably-understanding-youtube-updates/"><u>In 2024, Streaming Profitably Understanding YouTube Updates</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-nokia-xr21-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Nokia XR21.</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-windows-amoled-screen-problems-a-guide-with-5-key-methods/"><u>Solving Windows Amoled Screen Problems: A Guide with 5 Key Methods</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/upgrade-your-setup-with-the-behringer-cmd-studio-4a-the-latest-pcdj-supported-dj-controller/"><u>Upgrade Your Setup with the Behringer CMD STUDIO #4A - The Latest PCDJ Supported DJ Controller</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/your-gateway-to-perfect-entries-everywhere/"><u>Your Gateway to Perfect Entries, Everywhere</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-evaluating-djis-phantom-3-features/"><u>[New] Evaluating DJI's Phantom 3 Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-max-360-or-hero-11-a-comparative-look-at-gopro-cameras-footage/"><u>[New] In 2024, Max 360 or Hero 11? A Comparative Look at GoPro Cameras' Footage</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-the-world-of-time-stamps-in-youtube-links-desktopmobile/"><u>[New] In 2024, Navigating the World of Time Stamps in YouTube Links (Desktop/Mobile)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfect-your-images-with-polarr-a-complete-photography-resource/"><u>[New] Perfect Your Images with Polarr A Complete Photography Resource</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-solution-pack-6-best-apps-for-signature-erasure-for-2024/"><u>[New] Ultimate Solution Pack - 6 Best Apps for Signature Erasure for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-essence-of-mixed-reality-explored/"><u>[Updated] 2024 Approved The Essence of Mixed Reality Explored</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-budget-no-more-top-5-free-visual-effect-sites-for-2024/"><u>[Updated] Budget No More! Top 5 FREE Visual Effect Sites for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exploring-remote-desktop-capabilities-within-zoom-on-win11/"><u>[Updated] Exploring Remote Desktop Capabilities Within Zoom on Win11</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-get-hooked-on-ez-grabber-a-step-by-step-downloading-guide/"><u>[Updated] Get Hooked on EZ Grabber A Step-by-Step Downloading Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-visionaryzoom-7-x-perfect-photo-amplification-for-2024/"><u>[Updated] VisionaryZoom 7-X Perfect Photo Amplification for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-earnings-on-youtube-the-crucial-number-of-video-views-for-money/"><u>2024 Approved Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-advanced-8-visual-boosts-for-online-broadcasts/"><u>In 2024, Advanced 8 Visual Boosts for Online Broadcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-making-your-mark-strategies-for-monthly-growth-on-instagram/"><u>In 2024, Making Your Mark Strategies for Monthly Growth on Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-strategies-for-adjusting-music-tempo-on-spotify-app/"><u>In 2024, Strategies for Adjusting Music Tempo on Spotify App</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-repair-damaged-pdf-v16-files-by-stellar-guide/"><u>Quickly Repair Damaged PDF v1.6 Files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamlining-the-acquisition-of-background-visual-content/"><u>Streamlining the Acquisition of Background Visual Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/video-recorder-disentangler/"><u>Video Recorder Disentangler</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/your-portal-to-creative-inspiration-mastering-pexels-for-2024/"><u>Your Portal to Creative Inspiration Mastering Pexels for 2024</u></a></li>
 </ul></div>
 

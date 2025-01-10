@@ -1,7 +1,7 @@
 ---
 title: "The Filmmaker's Almanac of Cinematic Mastery in '24 for 2024"
-date: 2024-12-28T21:10:42.177Z
-updated: 2025-01-03T17:52:35.004Z
+date: 2025-01-06T16:31:38.857Z
+updated: 2025-01-10T17:08:45.009Z
 tags: 
   - screen-recording
   - ai video
@@ -39,19 +39,15 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
-Step 2 Now open and close the door to get smooth camera movement.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Step 2 Now open and close the door to get smooth camera movement.
 
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -70,6 +66,10 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY Light Flag
 
@@ -90,7 +90,7 @@ Let us see how it looks;
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Black Wrap
@@ -116,7 +116,11 @@ Here is a GIF attached for a better understanding of the steps.
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Light Reflector
@@ -137,13 +141,13 @@ There is a GIF attached below to understand the steps visually.
 
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
 
@@ -162,10 +166,6 @@ Step 3 Use this diffuser to reduce the intensity of light.
 For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
@@ -190,7 +190,7 @@ Here is a video showing how to record reveal movement.
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 180° Presentation Movement
@@ -212,7 +212,7 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -271,20 +271,18 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-a-step-by-step-guide-to-professional-gopro-footage/"><u>[New] 2024 Approved A Step-by-Step Guide to Professional Gopro Footage</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-clear-your-twitter-timeline-fast-topunfollowtools-revealed/"><u>[New] 2024 Approved Clear Your Twitter Timeline Fast #TopUnfollowTools Revealed</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-rapid-route-to-reclaimed-reddit-articles/"><u>[New] 2024 Approved Rapid Route to Reclaimed Reddit Articles</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-essentials-of-sims-4-gameplay-recording/"><u>[New] 2024 Approved The Essentials of Sims 4 Gameplay Recording</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-chromes-new-soundscape-the-foremost-apps-for-voice-change-exploration-for-2024/"><u>[Updated] Chrome’s New Soundscape The Foremost Apps for Voice Change Exploration for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crafting-visual-brilliance-mastering-luts-in-ae-for-2024/"><u>[Updated] Crafting Visual Brilliance Mastering LUTs in AE for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-ghostly-pause-recorder-tutorial/"><u>[Updated] Ghostly Pause Recorder Tutorial</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-lens-lineup-leaders-a-comprehensive-1-10-list/"><u>[Updated] In 2024, Lens Lineup Leaders A Comprehensive #1-10 List</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-journey-through-the-past-with-these-leading-gba-console-emulators-for-windows-computers-for-2024/"><u>[Updated] Journey Through the Past With These Leading GBA Console Emulators for Windows Computers for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-pinnacle-20-anime-songs-to-start-with/"><u>[Updated] Pinnacle 20 Anime Songs to Start With</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-your-macs-screen-in-hd-zero-price/"><u>[Updated] Your Mac's Screen in HD - Zero Price</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-your-path-to-uninterrupted-mobile-experience-with-these-7-apps/"><u>[Updated] Your Path to Uninterrupted Mobile Experience with These 7 Apps</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-from-zero-to-hero-master-lip-syncing-with-these-5-amazing-apps/"><u>New In 2024, From Zero to Hero Master Lip Syncing with These 5 Amazing Apps</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/phased-opening-visuals/"><u>Phased Opening Visuals</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unraveling-the-mystery-of-stalled-instagram-videos/"><u>Unraveling the Mystery of Stalled Instagram Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-editorial-powerhouses-free-for-web-enthusiasts-for-2024/"><u>[New] Editorial Powerhouses Free for Web Enthusiasts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-conversion-wizardry-zip-to-subrip-transformation/"><u>[Updated] 2024 Approved Conversion Wizardry ZIP to SubRip Transformation</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-unending-enter-password-interruptions-in-windows/"><u>Avoiding Unending Enter Password Interruptions in Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/days-gone-review/"><u>Days Gone Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-vivo-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Vivo</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/dive-into-fun-snapchats-world-of-cartoon-lenses-for-2024/"><u>Dive Into Fun Snapchat's World of Cartoon Lenses for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fast-solutions-resolving-issues-with-widget-functionality-on-ios-devices/"><u>Fast Solutions: Resolving Issues with Widget Functionality on iOS Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/how-to-select-and-download-the-right-audio-for-your-video-for-2024/"><u>How to Select and Download the Right Audio for Your Video for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-picsarts-full-spectrum-exploration/"><u>In 2024, PicsArt's Full Spectrum Exploration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-slumber-screen-chronicles-evaluations/"><u>In 2024, Slumber Screen Chronicles Evaluations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/nix-youtube-snippet-playback-on-all-devices/"><u>Nix YouTube Snippet Playback on All Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamlined-iphones-how-to-grab-your-favorite-podcasts-for-2024/"><u>Streamlined iPhones How to Grab Your Favorite Podcasts for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-resolving-iphone-personal-hotspot-issues/"><u>Troubleshooting Guide: Resolving iPhone Personal Hotspot Issues</u></a></li>
 </ul></div>
 

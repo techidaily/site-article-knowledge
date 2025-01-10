@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, IPhone Lens Magic  The Ultimate 10 Composition Techniques\""
-date: 2025-01-02T17:49:44.249Z
-updated: 2025-01-03T20:45:37.798Z
+date: 2025-01-04T16:17:02.850Z
+updated: 2025-01-10T16:25:10.894Z
 tags: 
   - screen-recording
   - ai video
@@ -39,15 +39,15 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Leading Lines
 
  Leading lines add depth and scale to an image by leading the eyes into an image. When you want to capture a road running between two rows of trees, a suspended wooden bridge vanishing at a distant point, leading lines make sure that the picture is taken in such a way that the viewer’s eyes would follow your direction (here, the way you guide them along the rows of trees or the bridge vanishing in the horizon). Leading lines create a great impact on the photographs that you click with your iPhone and don’t let the observer wander away from your subject. The leading lines can be diagonal, straight, zigzag, curvy, or radial.
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Symmetry
 
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Framing
@@ -65,19 +65,19 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Diagonals
 
  Diagonals are an integral aspect of photography composition, as they determine the outcome of a picture you have clicked using your iPhone. Let’s get to know what the role of diagonals in a picture is and how it impacts the visual. As you know the Rules of Thirds is important and it positions the subject of interest at a corner over the grid outlay of a photograph. It sometimes might leave the other corner empty and unbalance the image. Using diagonals, you can position the main subject and diagonally move the less important subjects towards the other end to click the perfectly balanced shot.
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Shape
 
@@ -86,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Leave Empty Space
@@ -101,15 +101,15 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fill Your Frame
 
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Break the Rules
 
@@ -118,7 +118,7 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -130,7 +130,7 @@ thumbnail: https://thmb.techidaily.com/354d3de8b2ab7d7a38cbcbf902765f2fb1bfbf3c8
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -158,21 +158,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-best-picture-preview-compilation/"><u>[New] Best Picture Preview Compilation</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-comprehensive-list-of-ios-compatible-ps2-games/"><u>[New] Comprehensive List of iOS-Compatible PS2 Games</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-encyclopedia-of-hands-on-detection/"><u>[New] The Encyclopedia of Hands-On Detection</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-vocal-variation-at-your-fingertips-free-software-to-transform-your-voice/"><u>[New] Vocal Variation at Your Fingertips Free Software to Transform Your Voice</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-bring-your-video-to-life-with-cropping-adding-and-tweaking-audio-in-canva/"><u>[Updated] 2024 Approved Bring Your Video to Life with Cropping, Adding, & Tweaking Audio in Canva</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-dangerous-depths-top-10-roguelite-showdowns/"><u>[Updated] 2024 Approved Dangerous Depths Top 10 Roguelite Showdowns</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-leading-av-creators-digital-edition-list/"><u>[Updated] 2024 Approved Leading AV Creators Digital Edition List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-nextgen-hexacopters-the-definitive-ten-for-2024/"><u>[Updated] NextGen Hexacopters The Definitive Ten for 2024</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/1-mp4avihevch2657/"><u>1. 最適化動画変換ツール一覧 - MP4/AVI/HEVC(H265)を無料で切り替えるソフト7ページ</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-mystery-of-downloading-youtube-srt-files-easily/"><u>2024 Approved Unlocking the Mystery of Downloading YouTube SRT Files Easily</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/cutting-edge-collection-no-cost-ae-template-suite/"><u>Cutting-Edge Collection No-Cost AE Template Suite</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/linked-insight-merging-instagram-and-tiktok-for-2024/"><u>Linked Insight Merging Instagram & TikTok for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/stay-ahead-of-the-curve-top-gadget-picks-by-toms-hardware-professionals/"><u>Stay Ahead of the Curve: Top Gadget Picks by Tom's Hardware Professionals</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/why-the-new-iphone-16s-innovative-capabilities-make-it-time-for-an-update-insights-from-zdnet/"><u>Why The New iPhone 16'S Innovative Capabilities Make It Time for an Update - Insights From ZDNet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-rapidly-increase-views-effective-growth-hacks-for-channels/"><u>[New] 2024 Approved Rapidly Increase Views Effective Growth Hacks for Channels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-holistic-mobility-inspection-study/"><u>[New] Holistic Mobility Inspection Study</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-commence-your-filmmaking-adventure-with-xps-toolkit-for-2024/"><u>[Updated] Commence Your Filmmaking Adventure with XP's Toolkit for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[Updated] In 2024, Beat Buzzers Up-and-Coming Background Scores For YT Shorts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-expert-strategies-for-seamless-green-screening-in-kinemaster/"><u>[Updated] In 2024, Expert Strategies for Seamless Green Screening in KineMaster</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-curve-images-in-photoshop/"><u>[Updated] In 2024, How to Curve Images in Photoshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-supreme-speakers-showcase-selector/"><u>[Updated] In 2024, Supreme Speakers' Showcase Selector</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-visualizing-the-future-virtual-realities-explored/"><u>[Updated] In 2024, Visualizing the Future Virtual Realities Explored</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-guide-to-full-periscope-capabilities/"><u>[Updated] Step-by-Step Guide to Full Periscope Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vs-paid-gaming-entrances-top-12-insights-for-youtube-gamers/"><u>Free vs Paid Gaming Entrances Top 12 Insights for YouTube Gamers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-fostering-connection-through-respectful-engagement/"><u>In 2024, Fostering Connection Through Respectful Engagement</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/innovative-investigation-vll-on-app-standards-for-2024/"><u>Innovative Investigation VLL on App Standards for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/optimizing-unused-scenes-a-filmmakers-approach/"><u>Optimizing Unused Scenes A Filmmaker's Approach</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-all-in-one-guide-to-using-the-powerful-samsung-galaxy-tab-s5e-with-android-os/"><u>The All-in-One Guide to Using the Powerful Samsung Galaxy Tab S5e with Android OS</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-rotating-images-on-win11/"><u>The Ultimate Guide to Rotating Images on Win11</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The User Interface of the Syma X8C Drone"
-date: 2024-12-28T16:23:44.034Z
-updated: 2025-01-03T22:30:43.194Z
+date: 2025-01-08T17:40:00.101Z
+updated: 2025-01-10T17:12:21.782Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X8C
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
@@ -103,7 +103,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -112,11 +112,11 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
- A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 ## Conclusion
 
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,16 +153,14 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-is-picku-the-ultimate-answer-to-enhancing-your-android-photos/"><u>[New] In 2024, Is PickU the Ultimate Answer to Enhancing Your Android Photos?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-visualize-images-mastering-photo-editing-tools-for-2024/"><u>[New] Visualize Images Mastering Photo Editing Tools for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-complete-guide-about-video-resolution-for-beginners-for-2024/"><u>[Updated] A Complete Guide About Video Resolution for Beginners for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-revolutionary-screen-technology-elite-4k-options-for-mac-enthusiasts/"><u>[Updated] In 2024, Revolutionary Screen Technology Elite 4K Options for Mac Enthusiasts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-snap-and-save-securely-downloading-vids-from-twitter/"><u>2024 Approved Snap & Save Securely Downloading Vids From Twitter</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diagnosing-and-resolving-failed-installation-of-windows-10-updates-efficiently/"><u>Diagnosing and Resolving Failed Installation of Windows 10 Updates Efficiently</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-comprehensive-pathway-to-load-moviemaker-6/"><u>In 2024, Comprehensive Pathway to Load Moviemaker 6</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-oppo-k11-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Oppo K11 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-the-ultimate-combo-for-your-yi-4k-adventures/"><u>In 2024, The Ultimate Combo for Your YI 4K Adventures</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-continuous-audio-during-youtube-freezes-tips-for-chrome-and-firefox/"><u>Troubleshooting Continuous Audio During YouTube Freezes – Tips for Chrome & Firefox</u></a></li>
-<li><a href="https://win11.techidaily.com/unmasking-invisible-hardware-on-pcs/"><u>Unmasking Invisible Hardware on PCs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-arctic-athleticism-winter-olympics-spotlight-on-snowboard-cross-stars-for-2024/"><u>[New] Arctic Athleticism Winter Olympics Spotlight on Snowboard Cross Stars for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-inside-the-mindset-of-a-photographer-polarrs-editing-techniques-for-2024/"><u>[New] Inside the Mindset of a Photographer Polarr’s Editing Techniques for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-huawei-p10-a-deep-dive-into-its-artificial-intelligence-capabilities-for-2024/"><u>[New] The Huawei P10 A Deep Dive Into Its Artificial Intelligence Capabilities for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-underground-favorites-in-the-world-of-memes/"><u>[New] Unveiling Underground Favorites in the World of Memes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-live-integration-with-cable-tv/"><u>In 2024, FB Live Integration with Cable TV</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfect-ringtone-repository-excellent-sources-for-2024/"><u>Perfect Ringtone Repository Excellent Sources for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/rallying-retired-video-content/"><u>Rallying Retired Video Content</u></a></li>
+<li><a href="https://windows11.techidaily.com/resetting-dns-cache-a-quick-tutorial-for-windows-users/"><u>Resetting DNS Cache: A Quick Tutorial for Windows Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/why-is-my-sony-a6400-not-showing-any-videos/"><u>Why Is My Sony A6400 Not Showing Any Videos?</u></a></li>
 </ul></div>
 

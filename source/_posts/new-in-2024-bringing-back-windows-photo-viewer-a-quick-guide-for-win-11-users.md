@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Bringing Back Windows Photo Viewer  A Quick Guide for Win 11 Users\""
-date: 2024-12-31T20:11:35.506Z
-updated: 2025-01-03T18:25:50.348Z
+date: 2025-01-07T16:09:43.884Z
+updated: 2025-01-10T16:33:42.379Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -65,10 +61,14 @@ Here is why they want to restore Windows Photo Viewer –
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -79,7 +79,7 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
@@ -87,7 +87,7 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -105,7 +105,7 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
@@ -145,20 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-capturing-instantly-with-iphone-timelapse-techniques-for-2024/"><u>[New] Capturing Instantly with iPhone Timelapse Techniques for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-create-powerful-biz-decks-with-no-cost-templates/"><u>[New] Create Powerful Biz Decks with No-Cost Templates</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-optimize-space-compelling-selection-of-20-top-free-cloud-storages-up-to-1tb-for-2024/"><u>[New] Optimize Space Compelling Selection of 20 Top FREE Cloud Storages (Up To 1TB) for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-powerful-strategies-for-optimizing-gratuitous-timer-use/"><u>[New] Powerful Strategies for Optimizing Gratuitous Timer Use</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-rated-free-tools-for-high-res-youtube-cover-extraction/"><u>[New] Top-Rated Free Tools for High-Res YouTube Cover Extraction</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-efficiently-manipulate-iphone-images-to-your-desired-scale/"><u>[Updated] 2024 Approved Efficiently Manipulate iPhone Images to Your Desired Scale</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-comprehensively-guide-to-collecting-visual-backgrounds-for-2024/"><u>[Updated] Comprehensively Guide to Collecting Visual Backgrounds for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-macos-sierra-tools-for-optimized-video-transformation/"><u>Best macOS Sierra Tools for Optimized Video Transformation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-broken-iphone-15-pro-screen-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Data from Broken iPhone 15 Pro Screen | Stellar</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-gionee-f3-pro-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Gionee F3 Pro Phone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-navigating-color-grading-a-look-at-luts-significance/"><u>In 2024, Navigating Color Grading A Look at LUT's Significance</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone 8 Plus</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/jpgpng-images-transformation-iphones-pdf-creation-guide-for-2024/"><u>JPG/PNG Images Transformation IPhone's PDF Creation Guide for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/up-to-8-discount-on-new-apple-m3-macbook-pro-in-prime-day-offerings-at-amazon-shop-now/"><u>Up to 8% Discount on New Apple M3 MacBook Pro in Prime Day Offerings at Amazon - Shop Now!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/your-journey-into-the-world-of-funny-metaverse-images-for-2024/"><u>Your Journey Into the World of Funny Metaverse Images for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-recording-audio-for-impactful-ppts-and-presentations/"><u>[New] 2024 Approved Recording Audio For Impactful PPTs & Presentations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-decadal-meme-construction-breakthroughs/"><u>[New] Decadal Meme Construction Breakthroughs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-hand-tracked-futures-visionary-technologies-for-2024/"><u>[New] Hand-Tracked Futures Visionary Technologies for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-canva-10-best-practices-unveiled/"><u>[New] In 2024, Mastering Canva 10 Best Practices Unveiled</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-step-by-step-funimate-video-retrieval-for-2024/"><u>[New] Step-by-Step Funimate Video Retrieval for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-exploring-affordable-virtual-reality-gear-from-china/"><u>[Updated] 2024 Approved Exploring Affordable Virtual Reality Gear From China</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-implementing-cross-browser-compatibility-in-web-development/"><u>[Updated] 2024 Approved Implementing Cross-Browser Compatibility in Web Development</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-bridging-the-gap-reactivating-your-obs-cam/"><u>[Updated] Bridging the Gap Reactivating Your OBS Cam</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-2023s-enhanced-sony-s3700-overview/"><u>[Updated] Unveiling 2023'S Enhanced Sony S3700 Overview</u></a></li>
+<li><a href="https://blog-min.techidaily.com/wmam4a4/"><u>「WMAからM4Aへの無料変換プログラム:最高のオススメ4つ」</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/6-ways-to-use-chatgpt-for-remote-and-freelance-work/"><u>6 Ways to Use ChatGPT for Remote and Freelance Work</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-how-to-record-streaming-audio-online/"><u>In 2024, How to Record Streaming Audio Online</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-in-search-of-perfection-the-top-10-live-streamers/"><u>In 2024, In Search of Perfection The Top 10 Live Streamers</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-list-of-video-maker-apps-with-music-for-mobile-devices/"><u>New The Ultimate List of Video Maker Apps with Music for Mobile Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-top-5-iphone-podcast-apps-guide/"><u>The Ultimate Top 5 iPhone Podcast Apps Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/video-innovators-showcase-15-leading-youtube-unboxing-sites/"><u>Video Innovators Showcase 15 Leading YouTube Unboxing Sites</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/what-are-the-best-sites-to-download-tamil-ringtones-and-how-to-cut-a-son/"><u>What Are the Best Sites to Download Tamil Ringtones & How to Cut a Son</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Comprehensive Look at Yi's 4K Action Capabilities for 2024"
-date: 2025-01-01T20:48:58.131Z
-updated: 2025-01-03T17:57:30.348Z
+date: 2025-01-05T16:49:30.298Z
+updated: 2025-01-10T17:37:16.778Z
 tags: 
   - screen-recording
   - ai video
@@ -115,7 +115,7 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,7 +125,7 @@ Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolutio
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,19 +153,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-affordable-shutterbug-gear-for-dynamic-action-scenes/"><u>[New] Affordable Shutterbug Gear for Dynamic Action Scenes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-cinematographers-codex-top-shot-tips-for-the-year-2024-filmography/"><u>[New] The Cinematographer’s Codex Top Shot Tips for the Year 2024 Filmography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-tips-for-youtube-thumbnail-size-aspect-ratio-included/"><u>[New] Tips for YouTube Thumbnail Size [Aspect Ratio Included]</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beef-up-your-cgi-with-these-8-online-repositories-of-free-green-screens-and-clips/"><u>[Updated] 2024 Approved Beef up Your CGI with These 8 Online Repositories of FREE Green Screens and Clips</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/affordable-accessories-get-your-apple-watch-sported-in-style-with-discounted-powerband-at-just-40-now-available/"><u>Affordable Accessories: Get Your Apple Watch Sported in Style with Discounted PowerBand at Just $40 - Now Available!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/essential-macos-big-sur-11-editing-apps-roundup/"><u>Essential MacOS Big Sur 11 Editing Apps Roundup</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/filmoras-pathway-to-convert-video-avi-files-into-image-gif-for-2024/"><u>Filmora’s Pathway to Convert Video (AVI) Files Into Image (GIF) for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-erase-apple-iphone-15-plus-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Apple iPhone 15 Plus Data Permanently | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-mix-fold-3-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Mix Fold 3? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-artisanaiphotostudio-seamless-image-magic/"><u>In 2024, ArtisanAiPhotoStudio Seamless Image Magic</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-precision-guide-for-subtitles-insertion-in-mp4-files/"><u>In 2024, Precision Guide for Subtitles Insertion in MP4 Files</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-efficacy-of-social-media-authenticity-validation/"><u>In 2024, The Efficacy of Social Media Authenticity Validation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/price-benchmarking-top-value-in-cloud-services-for-2024/"><u>Price Benchmarking Top Value in Cloud Services for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-oneplus-ace-2v-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in OnePlus Ace 2V for Streaming | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-perfect-color-balancing-for-free-leveraging-luts-within-obs-studio-environment/"><u>[New] 2024 Approved Perfect Color Balancing for Free Leveraging LUTs Within OBS Studio Environment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-step-up-your-income-game-with-these-13-unbeatable-reddit-tactics/"><u>[New] In 2024, Step Up Your Income Game with These 13 Unbeatable Reddit Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-playlist-power-instagrams-musical-edge-for-2024/"><u>[New] Playlist Power Instagram's Musical Edge for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-your-pathway-to-virtual-video-landscape-on-iphone-for-2024/"><u>[New] Your Pathway to Virtual Video Landscape on iPhone for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-add-music-to-powerpoint/"><u>[Updated] 2024 Approved Add Music to PowerPoint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-in-depth-exploration-of-final-cut-pros-powerful-tools-and-features/"><u>[Updated] 2024 Approved In-Depth Exploration of Final Cut Pro’s Powerful Tools and Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-art-of-float-engaging-with-netflixs-picture-in-picture/"><u>[Updated] In 2024, The Art of Float Engaging with Netflix's Picture-in-Picture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-fresh-take-on-smart-casting-chromecast-with-google-tv-reviewed/"><u>A Fresh Take on Smart Casting: Chromecast with Google TV Reviewed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/guide-permanently-adding-subtitles-using-vlc-media-player/"><u>Guide: Permanently Adding Subtitles Using VLC Media Player</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-successfully-reinstall-your-sound-drivers-realtek-for-optimal-performance-in-windows-1011/"><u>How to Successfully Reinstall Your Sound Drivers (Realtek) for Optimal Performance in Windows 10/11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/sequence-your-superhero-experience-the-ultimate-guide-to-viewing-superman-films-chronologically/"><u>Sequence Your Superhero Experience: The Ultimate Guide to Viewing 'Superman' Films Chronologically</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/visual-vanguard-revived-radeon/"><u>Visual Vanguard Revived Radeon</u></a></li>
 </ul></div>
 
