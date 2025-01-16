@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate SD Compatibility with Sony A7S II\""
-date: 2024-08-08T02:01:49.813Z
-updated: 2024-08-09T02:01:49.813Z
+date: 2025-01-12T17:03:42.333Z
+updated: 2025-01-16T00:58:57.289Z
 tags: 
   - screen-recording
   - ai video
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -43,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -83,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -123,10 +113,11 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -151,6 +142,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-quick-click-quest-the-art-of-facebook-id-reconnaissance/"><u>[New] 2024 Approved Quick Click Quest The Art of Facebook ID Reconnaissance</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-enhance-creativity-and-quality-in-live-video-recording-using-logitech-cam-for-2024/"><u>[New] Enhance Creativity and Quality in Live Video Recording Using Logitech Cam for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigate-effortlessly-inshots-role-in-video-crafting-on-devices/"><u>[New] In 2024, Navigate Effortlessly Inshot's Role in Video Crafting on Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tepwise-strategies-for-enhancing-yt-game-coverage-through-effective-hashing/"><u>[New] Stepwise Strategies for Enhancing YT Game Coverage Through Effective Hashing</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-tips-for-enjoying-virtual-realms-on-your-ipad-pro-for-2024/"><u>[New] Tips for Enjoying Virtual Realms on Your iPad Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ultimate-guide-optimal-sub-to-srt-conversion-with-top-8-tools-for-2024/"><u>[New] Ultimate Guide Optimal Sub to Srt Conversion with Top 8 Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-enhance-your-skills-with-the-top-10-drawing-apps-on-android-platform/"><u>[Updated] 2024 Approved Enhance Your Skills with the Top 10 Drawing Apps on Android Platform</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exclusive-access-to-best-ae-templates-for-2024/"><u>[Updated] Exclusive Access to Best AE Templates for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-from-static-to-spinning-mastering-photo-effects-in-illustrator/"><u>[Updated] From Static to Spinning Mastering Photo Effects in Illustrator</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-itel-p40plus-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Itel P40+?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-poco-f5-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Poco F5 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/punchy-prowess-vs-online-influence-for-2024/"><u>Punchy Prowess Vs Online Influence for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-3d-gold-text-effect-sites-on-the-web/"><u>Top 3D Gold Text Effect Sites on the Web</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-best-mp4-to-mp3-conversion-software-for-windows-and-mac-for-2024/"><u>Updated The Best MP4 to MP3 Conversion Software for Windows and Mac for 2024</u></a></li>
+</ul></div>
 

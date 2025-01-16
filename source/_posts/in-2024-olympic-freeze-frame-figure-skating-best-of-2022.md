@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Olympic Freeze-Frame  Figure Skating Best of 2022\""
-date: 2025-01-08T16:23:01.251Z
-updated: 2025-01-10T16:43:02.703Z
+date: 2025-01-13T09:27:45.223Z
+updated: 2025-01-16T02:23:10.158Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
@@ -52,7 +56,7 @@ Nathan Chen successful triumph has been four years in the making and it is a per
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
@@ -60,18 +64,18 @@ Even though Nathan Chen finished first for men's short program of the team event
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
-Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -94,7 +98,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -108,10 +112,6 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,17 +136,24 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-srgb-advantages-over-regular-rgb-for-2024/"><u>[New] Srgb Advantages Over Regular Rgb for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[Updated] In 2024, Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-future-of-videos-assessing-av1s-edge-over-vp9/"><u>[Updated] The Future of Videos Assessing AV1's Edge over VP9</u></a></li>
-<li><a href="https://facebook.techidaily.com/decline-the-update-and-you-keep-full-access-to-your-whatsapp/"><u>Decline the Update, and You Keep Full Access to Your WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-amazon-and-10k-groups-are-at-odds-over-admins/"><u>How Amazon and 10K Groups Are at Odds Over Admins</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-sound-trouble-with-dota-2-on-pc-mic-not-working/"><u>How to Resolve Sound Trouble with Dota 2 on PC (Mic Not Working)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-infinix-hot-30i-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Infinix Hot 30i to PC? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-handheld-gyro-stabilization-upgrade/"><u>In 2024, Handheld Gyro Stabilization Upgrade</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-approaches-to-modify-user-numbers-in-tiktok-for-2024/"><u>Innovative Approaches to Modify User Numbers in TikTok for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/prime-7-video-software-for-mac-for-2024/"><u>Prime 7 Video Software for Mac for 2024</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/securely-transfer-data-top-2-methods-for-backing-up-your-windows-11-system-to-a-synology-storage-server/"><u>Securely Transfer Data: Top 2 Methods for Backing Up Your Windows 11 System to a Synology Storage Server</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlocking-the-secrets-of-a-captivating-end-episode-note/"><u>Unlocking the Secrets of a Captivating End-Episode Note</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unveiling-ultra-details-in-minecraft-games/"><u>[New] 2024 Approved Unveiling Ultra Details in Minecraft Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-lurkers-to-leaders-top-30-strategies-for-facebook-pros-for-2024/"><u>[New] From Lurkers to Leaders Top 30 Strategies for Facebook Pros for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-insta-photo-carousel-magic/"><u>[New] In 2024, Insta-Photo Carousel Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-is-this-a-bug-or-intentional-edit-on-instagram/"><u>[New] In 2024, Is This a Bug or Intentional Edit on Instagram?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-the-ways-for-fee-free-pictorial-clips/"><u>[New] In 2024, Navigating the Ways for Fee-Free Pictorial Clips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-symbolizing-success-crafting-effective-podcast-logos/"><u>[Updated] 2024 Approved Symbolizing Success Crafting Effective Podcast Logos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-craft-professional-scenes-access-these-top-8-free-green-screen-backdrops-sites-for-2024/"><u>[Updated] Craft Professional Scenes - Access These Top 8 Free Green Screen Backdrops Sites for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-elevating-your-photos-using-photoshops-radial-toolkit-for-2024/"><u>[Updated] Elevating Your Photos Using Photoshop's Radial Toolkit for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-elevate-your-presentation-power-with-30-creative-videos/"><u>[Updated] In 2024, Elevate Your Presentation Power with 30 Creative Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-evaluating-the-superiority-of-splitcams-recording/"><u>[Updated] In 2024, Evaluating the Superiority of SplitCam's Recording</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-from-rewind-to-save-incorporating-80s-vhs-in-todays-cinematic-edits/"><u>[Updated] In 2024, From Rewind to Save Incorporating 80S VHS in Today's Cinematic Edits</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximizing-your-reach-with-youtube-shorts-templates/"><u>[Updated] Maximizing Your Reach with YouTube Shorts Templates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-complete-windows-10-hacks-playbook/"><u>2024 Approved The Complete Windows 10 Hacks Playbook</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904189-9781088203477-gewinnen-sie-taglich-die-schlachten-des-lebens-1243-plan/"><u>Gewinnen Sie täglich die Schlachten des Lebens 12.4.3 Plan | Free Book</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-dji-mavic-pro-vs-gopro-karma/"><u>In 2024, Dji Mavic Pro Vs GoPro Karma</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-who-takes-the-lead-in-live-action-footage-hero-4-or-x1000v/"><u>In 2024, Who Takes The Lead In Live-Action Footage, Hero 4 or X1000V?</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-the-ultimate-guide-to-mobile-vlog-editing-top-10-apps/"><u>New 2024 Approved The Ultimate Guide to Mobile Vlog Editing Top 10 Apps</u></a></li>
+<li><a href="https://win11.techidaily.com/reinstating-basic-battery-power-schemes-win-11/"><u>Reinstating Basic Battery Power Schemes (Win 11)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unmatched-storytelling-education-1-8-spotlight/"><u>Unmatched Storytelling Education #1-#8 Spotlight</u></a></li>
 </ul></div>
 

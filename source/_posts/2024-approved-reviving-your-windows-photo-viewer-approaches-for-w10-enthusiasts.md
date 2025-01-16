@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Reviving Your Windows Photo Viewer  Approaches for W10 Enthusiasts\""
-date: 2024-08-22T14:25:04.063Z
-updated: 2024-08-23T14:25:04.063Z
+date: 2025-01-15T03:33:46.575Z
+updated: 2025-01-15T20:09:55.773Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,10 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -69,9 +73,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -87,32 +88,33 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,8 +138,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-innovating-through-virtual-experiences/"><u>[New] 2024 Approved Innovating Through Virtual Experiences</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-macbook-webcam-filming-made-simple/"><u>[New] 2024 Approved MacBook Webcam Filming Made Simple</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-ultimate-guide-the-leading-10-live-streaming-networks/"><u>[New] 2024 Approved Ultimate Guide The Leading 10 Live Streaming Networks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-inside-the-dji-phantom-3-pro-advantages-for-2024/"><u>[New] Inside the DJI Phantom 3 Pro Advantages for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-maze-of-stock-visual-acquisition/"><u>[New] Navigating the Maze of Stock Visual Acquisition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-uniting-visuals-a-pc-and-web-overlay-method/"><u>[New] Uniting Visuals A PC & Web Overlay Method</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>[Updated] 2024 Approved Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-deciphering-your-affection-filmoras-top-10-features/"><u>[Updated] Deciphering Your Affection Filmora’s Top 10 Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-explore-and-expand-top-7-services-turning-your-digital-creations-into-crypto-assets/"><u>[Updated] In 2024, Explore and Expand Top 7 Services Turning Your Digital Creations Into Crypto Assets</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-top-10-timeless-family-adventures-on-screen-this-season/"><u>[Updated] Top 10 Timeless Family Adventures on Screen This Season</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-streamline-your-youtube-thumbnail-process/"><u>2024 Approved Streamline Your YouTube Thumbnail Process</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-audio-glitches-within-the-game-resident-evil-village-guide/"><u>Fixing Audio Glitches Within the Game: Resident Evil Village Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722960327166-get-your-toshiba-devices-bluetooth-software-here/"><u>Get Your Toshiba Device's Bluetooth Software Here!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/secrets-to-captivating-audiences-in-real-time-broadcasting/"><u>Secrets to Captivating Audiences in Real-Time Broadcasting</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-how-to-repair-non-functional-volume-controls/"><u>Troubleshooting iPhone: How to Repair Non-Functional Volume Controls</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-slow-launches-in-star-wars-battlefront-ii-on-personal-computers/"><u>Troubleshooting Slow Launches in Star Wars: Battlefront II on Personal Computers</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlock-the-power-of-online-connectivity-with-facebook-twitter-instagram-and-youtube/"><u>Unlock the Power of Online Connectivity with Facebook, Twitter, Instagram & Youtube</u></a></li>
+</ul></div>
 

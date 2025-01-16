@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Polished Portraits  How to Use iPhone for Crisp Cuts\""
-date: 2024-08-15T07:04:02.400Z
-updated: 2024-08-16T07:04:02.400Z
+date: 2025-01-09T17:29:38.804Z
+updated: 2025-01-15T17:40:34.453Z
 tags: 
   - screen-recording
   - ai video
@@ -34,13 +34,18 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 
 ![](https://images.wondershare.com/filmora/article-images/crop-photo-on-iphone.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you've launched the Photos app, select the photo from your camera roll or any other photo album on your iPhone and double tap on it to display it in full screen. Click on the Adjustments icon that is located next to the trash bin at the bottom of your screen, and after the new window opens, tap on the crop icon.
 
  The crop menu will open and you'll be offered to choose whether you want to crop your photo manually or if you want to utilize a preset. Presets allow you to automatically convert your pictures into a square or 9:16 aspect ratio, so you can just tap on the option that you find the most helpful at the moment. Once the image is cropped simply click on the Done icon to save the changes you've made to your photo.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Photo cropping apps for iPhone
 
  iPhone owners who'd like to have access to superb photo cropping options and a plethora of powerful photo editing tools should try using some of the apps listed below.
@@ -48,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 #### 1\. Cropic
 
 ![](https://images.wondershare.com/filmora/article-images/cropic.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Despite the fact that Cropic can be downloaded for free, the Pro version of the app must be purchased if you'd like to exploit the full potential of this remarkable image cropping tool. However, even the free version of Cropic will allow you to post entire photos and videos to Instagram, while a large selection of Canvas options will enable you to create beautiful backgrounds for images you cropped with this app. Using the Design Layout feature will enable you to scale, rotate or flip videos and photos effortlessly, but the app's lack of other photo editing options makes it less powerful than some of its competitors
@@ -57,25 +63,23 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 #### 2\. Pixelmator
 
 ![](https://images.wondershare.com/filmora/article-images/pixelmator-app.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
  Each iPhone owner who decides to purchase this app will get their money's worth because Pixelmator is one of the most powerful photo editing apps currently available on the App Store. Besides offering remarkable cropping options Pixelmator allows its users to remove unwanted objects with professional tools such as the Repair or Clone tool. In addition to professional photo editing tools, the app also provides painting and graphic design features that can be used to create new images or enhance the photos you've taken with your iPhone. This seemingly flawless app is easy to use and it will allow even the inexperienced photo editors to produce breathtaking images.
 
 #### 3\. Snapseed
 
 ![](https://images.wondershare.com/filmora/article-images/snapseed.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Whether you want to crop your photos to standard sizes or freely, Snapseed will deliver all the tools to need to crop a photo in any way you want. The app can be downloaded for free, and it offers a plethora of photo editing features that can be used to create sparkling photos that attract a lot of attention on social media. Rotating images, applying filters or using the Healing tool to remove objects or people from your photos is a simple process that won't take too much of your time. Experienced photographers, as well as the iPhone users who are just looking for a way to enhance a selfie, will have a lot of fun using Snapseed.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -101,8 +105,16 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-easy-methods-for-windows-fish-voice-alteration-for-2024/"><u>[New] Easy Methods for Windows Fish Voice Alteration for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-the-craft-of-macro-video-production-techniques/"><u>[New] In 2024, Mastering the Craft of Macro Video Production Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-sculpting-digital-landscapes-with-windows-10s-latest-features/"><u>[New] In 2024, Sculpting Digital Landscapes with Windows 10'S Latest Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-capture-action-the-complete-technique-for-adding-motion-blur-in-photos/"><u>[Updated] Capture Action The Complete Technique for Adding Motion Blur in Photos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-ultimate-android-gaming-experience-kinemaster-reviewed/"><u>[Updated] In 2024, The Ultimate Android Gaming Experience - KineMaster Reviewed</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-manipulate-your-instagram-storys-playback-velocity-for-2024/"><u>How to Manipulate Your Instagram Story's Playback Velocity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-simplified-image-editing-getting-rid-of-background-in-one-click/"><u>In 2024, Simplified Image Editing Getting Rid of Background in One Click</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211347268-9781528799263-love-spells-a-grimoire-of-ancient-charms-lore-and-ceremonies/"><u>Love Spells - A Grimoire of Ancient Charms, Lore, and Ceremonies | Free Book</u></a></li>
+<li><a href="https://techtrends.techidaily.com/sports-enthusiasts-guide-to-free-live-game-streams-top-picks/"><u>Sports Enthusiasts' Guide to Free Live Game Streams - Top Picks</u></a></li>
+</ul></div>
 

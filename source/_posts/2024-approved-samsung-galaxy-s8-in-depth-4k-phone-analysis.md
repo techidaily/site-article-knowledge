@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Samsung Galaxy S8  In-Depth 4K Phone Analysis\""
-date: 2024-08-15T07:01:35.315Z
-updated: 2024-08-16T07:01:35.315Z
+date: 2025-01-11T23:10:19.906Z
+updated: 2025-01-16T05:29:53.761Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 
 [Check at Amazon](https://www.amazon.com/gp/product/B06Y14T5YW/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B06Y14T5YW&linkId=01db8297751893b9921ba30138d3f180)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy S8 Pros and cons
 
 **Pros:**
@@ -48,9 +52,6 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 * One of the most expensive phones on the market
 * The Bixby feature is largely pointless.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Section 1: Samsung Galaxy S8 Hardware Design
 
 #### 1.Samsung Galaxy S8 Design
@@ -89,6 +90,10 @@ To make connectivity even better the S8 is equipped with Bluetooth five which im
 
 The phone comes with a very durable design that is created to be waterproof. With the full certification on waterproofing this is maybe not a device that you would use for diving but it can stand up to light rain, splashing and other situations. The majority of the device is made out of an aluminum instruction with the front of the device being constructed out of Gorilla Glass 5\. The weight and the durability of this device is not something to question as it can deliver the best in performance throughout a standard day.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Section 2: Samsung Galaxy S8 Features and Performance
 
 #### 1. Samsung Galaxy S8 Camera Performance
@@ -101,12 +106,16 @@ If you want to edit your 4K video footage on Galaxy S8, or you want to make vide
 
 [![Download filmora](https://images.wondershare.com/filmora/guide/google_play.jpg) ](https://play.google.com/store/apps/details?id=com.wondershare.filmorago)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 However, if you are looking for a more advanced video editing tool to make a video on your PC, you should not miss [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Watch the video before to check how to make a video with Filmora.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2. Samsung Galaxy S8 Audio Performance
@@ -126,9 +135,6 @@ It can handle plenty of demanding applications but it's very important to use th
 #### 4. Samsung Galaxy S8 Security Performance
 
 ![samsung-s8-security-performance](https://images.wondershare.com/filmora/article-images/samsung-s8-security-performance.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 The S8 has some of the most advanced biometric security available on any smart phone, it has facial recognition, iris recognition as well as a fingerprint scanner all on board. One of the only problems that comes with using these biometrics is that you can end up with a device that consistently needs your permission to unlock and access various applications. Setting up the features is relatively easy and can be done at the start during Samsung set up. Most people end up turning off the iris recognition, facial recognition and opt for fingerprint scanning only as of the much more discreet way to unlock the phone.
 
@@ -138,16 +144,14 @@ The S8 has some of the most advanced biometric security available on any smart p
 
 The Samsung S8 is one of the best new devices for using with the Samsung deX accessory as well as the gear 360\. For the future of Samsung VR, the screen without a bevel as well as the HD format that this device can deliver offers a considerable advantage in the market. This is a device that has been well optimized for the future of VR.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Section 3: Samsung Galaxy S8 Onboard Software
 
 The device comes with a touchwiz UI which is very similar to other Samsung application experiences. The menus are all extremely easy-to-use and the home button and menu buttons on the back really assist with navigation throughout the phone.
 
 ![samsung-s8-bixby](https://images.wondershare.com/filmora/article-images/samsung-s8-bixby.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Bixby is one of the latest highlighted features which is somewhat similar to the brand voice for Samsung. Bixby is an assistant at similar to the Google Assistant, Siri and more. Currently Bixby really just delivers a number of different alerts and reminders. The one feature that is fairly interested is the Bixby vision which can examine items in a store and help you comparison shop as well as the ongoing reminders and calendar updates. The current version of Bixby is pretty light but Samsung hopes to eventually include actions like the ability for Bixby to handle uploading all of your photos to social media or even sending out texts and alerts. Currently however Bixby is a fairly light app that you won’t likely use often.
@@ -157,9 +161,6 @@ Bixby is one of the latest highlighted features which is somewhat similar to the
 This is currently one of the best android smart phones available on the market. Although it commands one of the highest price tags it's also one of the most beautiful from a design perspective. If you are a fan of Samsung phones and you're looking for an upgrade or you are looking for one of the best phones that you could switch over to from an iphone, this could be just the phone you are looking for.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -184,8 +185,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-photographers-guide-top-editing-and-writing-apps/"><u>[New] Photographer's Guide Top Editing & Writing Apps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-tech-equality-checked-expert-analysis/"><u>[New] Tech Equality Checked Expert Analysis</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-zoom-on-windows-11-a-step-by-step-guide/"><u>[Updated] 2024 Approved Mastering Zoom on Windows 11 A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-digital-dimension-state-of-the-art-vr/"><u>[Updated] 2024 Approved The Digital Dimension State-of-the-Art VR</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-saving-pictures-from-videos-in-windows-10-photos-for-2024/"><u>[Updated] Saving Pictures From Videos in Windows 10 Photos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gauging-true-worth-of-chatgpt-pro/"><u>Gauging True Worth of ChatGPT Pro</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-overcome-error-code-0x80073cf9-and-successfully-use-windows-11-store-again/"><u>How to Overcome Error Code 0X80073CF9 & Successfully Use Windows 11 Store Again</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-oppo-reno-8t-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-follower-shedding-insight/"><u>In 2024, Instagram Follower Shedding Insight</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-pushing-the-limits-advanced-strategies-for-google-podcasting/"><u>In 2024, Pushing the Limits Advanced Strategies for Google Podcasting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-vlc-media-player-for-efficient-video-format-changes/"><u>Mastering VLC Media Player for Efficient Video Format Changes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/optimal-frame-rate-mastery-through-controller-tweaks/"><u>Optimal Frame Rate Mastery Through Controller Tweaks</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Gliding Heroes  The 2022 Winter Games\""
-date: 2025-01-07T17:41:40.985Z
-updated: 2025-01-10T17:11:15.014Z
+date: 2025-01-09T18:09:20.262Z
+updated: 2025-01-15T19:07:17.378Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter O
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -43,6 +39,10 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
@@ -50,6 +50,10 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -64,7 +68,7 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
@@ -90,7 +94,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -100,7 +104,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -108,10 +112,6 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,20 +136,21 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-a-complete-treatise-on-adobes-cloud-and-its-competitors-for-2024/"><u>[New] A Complete Treatise on Adobe's Cloud & Its Competitors for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-audience-experience-top-cameras-to-capture-live-music-for-2024/"><u>[New] Audience Experience Top Cameras to Capture Live Music for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-ignite-your-networking-join-the-1k-club-on-instagram-regularly/"><u>[New] Ignite Your Networking Join the 1K Club on Instagram Regularly</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-vfx-wizards-windows-8-for-2024/"><u>[New] VFX Wizards Windows 8 for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-high-end-streaming-gear-for-professionals/"><u>[Updated] 2024 Approved High-End Streaming Gear for Professionals</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-picart-anonymizer-swiftly-hide-identities/"><u>[Updated] In 2024, PicArt Anonymizer Swiftly Hide Identities</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-premium-twelve-full-frame-video-tech-lists/"><u>[Updated] Premium Twelve Full Frame Video Tech Lists</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-huawei-p60-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Huawei P60 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unleashing-the-power-of-hashtags-for-instagram-success/"><u>2024 Approved Unleashing the Power of Hashtags for Instagram Success</u></a></li>
-<li><a href="https://win-web.techidaily.com/comment-localiser-un-document-microsoft-word-perdant-sur-windows-quil-soit-enregistre-ou-non/"><u>Comment Localiser Un Document Microsoft Word Perdant Sur Windows, Qu'il Soit Enregistré Ou Non</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-nokia-c22-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia C22 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-headquarters-of-virtual-reality-entertainment/"><u>In 2024, Headquarters of Virtual Reality Entertainment</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-8-plus-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 8 Plus when Phone is Broken?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/reinstall-your-drivers-with-device-manager-in-windows-7-by-drivereasy-guide/"><u>Reinstall your drivers with Device Manager in Windows 7</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unique-choir-compositions-as-your-smartphone-tones-for-2024/"><u>Unique Choir Compositions as Your Smartphone Tones for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-cameras-for-frame-by-frame-puppetry/"><u>[New] 2024 Approved Best Cameras for Frame-by-Frame Puppetry</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-cutting-edge-platforms-for-digital-transformation-into-nft-tokens-for-2024/"><u>[New] Cutting-Edge Platforms for Digital Transformation Into NFT Tokens for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-eagle-eye-expedition-the-ultimate-guide-to-fps-game-selection-for-2024/"><u>[New] Eagle-Eye Expedition - The Ultimate Guide to FPS Game Selection for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevating-camera-experience-mavic-pro-review-for-2024/"><u>[New] Elevating Camera Experience - Mavic Pro Review for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-searching-for-monetary-rewards-of-review-vlogs/"><u>[Updated] 2024 Approved Searching for Monetary Rewards of Review Vlogs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dive-deep-into-smooth-aquatic-footage-top-tips-unveiled-for-2024/"><u>[Updated] Dive Deep Into Smooth Aquatic Footage Top Tips Unveiled for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-essential-guide-to-best-10-no-cost-srt-converters-for-2024/"><u>[Updated] Essential Guide to Best 10 No-Cost Srt Converters for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-how-to-transform-viewers-criticism-into-content-enhancement-for-2024/"><u>[Updated] How to Transform Viewers' Criticism Into Content Enhancement for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-mastering-photo-editing-inserting-dates-in-images/"><u>[Updated] In 2024, Mastering Photo Editing Inserting Dates in Images</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-unveiling-the-best-practices-in-downloading-vimeo-videos/"><u>[Updated] In 2024, Unveiling the Best Practices in Downloading Vimeo Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-identifying-top-economical-iosandroid-live-streaming-tools/"><u>2024 Approved Identifying Top Economical iOS/Android Live Streaming Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/breaking-barriers-easily-uninstall-applications-in-win-11/"><u>Breaking Barriers: Easily Uninstall Applications in Win 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/express-yourself-accessibility-available-for-free/"><u>Express Yourself, Accessibility Available for Free</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-enhancing-collaboration-with-snap-camera-techniques/"><u>In 2024, Enhancing Collaboration with Snap Camera Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-digital-innovators-in-av-media-crafting/"><u>In 2024, Top Digital Innovators in Av Media Crafting</u></a></li>
+<li><a href="https://discover-community.techidaily.com/top-frequently-asked-questions-about-handbrakes-gpu-powered-video-transcoding/"><u>Top Frequently Asked Questions About HandBrake's GPU-Powered Video Transcoding</u></a></li>
 </ul></div>
 

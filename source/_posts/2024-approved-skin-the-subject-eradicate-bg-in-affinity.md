@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Skin the Subject, Eradicate Bg in Affinity\""
-date: 2024-08-15T07:04:23.571Z
-updated: 2024-08-16T07:04:23.571Z
+date: 2025-01-13T23:18:50.729Z
+updated: 2025-01-16T04:25:46.045Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -35,16 +39,10 @@ Step1 In the first step, install the [Affinity Designer](https://affinity.serif.
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
@@ -88,11 +86,12 @@ Step5 In this last step, you must deselect the outline around your subject. For 
 Finally, click **"File"** and select the **"Export"** option from the drop-down menu. Then, in the Export Settings menu, choose PNG and click **"Export"** to save your file on your PC.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -101,8 +100,9 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -122,8 +122,9 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -141,8 +142,9 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -193,8 +195,23 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-exploring-lgs-ultra-hd-tech-27ud68-monitor-deep-dive/"><u>[New] 2024 Approved Exploring LG's Ultra HD Tech 27UD68 Monitor Deep Dive</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-video-and-photography-makers-who-mix-sounds/"><u>[New] Essential Video & Photography Makers Who Mix Sounds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/83127763-new-in-2024-unlock-brand-potential-access-50-banners-at-no-cost/"><u>[New] In 2024, Unlock Brand Potential - Access 50 Banners at No Cost</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-xsplit-reviews-in-depth-game-split-analysis-for-2024/"><u>[New] XSplit Reviews In-Depth Game Split Analysis for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-academy-for-storytellers-top-8-recommendations-for-2024/"><u>[Updated] Best Academy for Storytellers – [Top 8 Recommendations] for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-easy-entrance-to-follow-creating-a-user-friendly-subscribe-link-for-2024/"><u>[Updated] Easy Entrance to Follow Creating a User-Friendly Subscribe Link for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-gain-massive-viewership-with-a-small-financial-investment/"><u>[Updated] Gain Massive Viewership with a Small Financial Investment</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchats-money-making-opportunities-exposed/"><u>[Updated] Snapchat's Money-Making Opportunities Exposed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unbeatable-online-headline-builder-for-2024/"><u>[Updated] Unbeatable Online Headline Builder for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-zte-blade-a73-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked ZTE Blade A73 5G Phone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-motorola-g54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/developing-persuasive-podcast-thumbnails/"><u>Developing Persuasive Podcast Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-views-the-power-of-synergistic-youtube-content-partnerships/"><u>Elevate Views The Power of Synergistic YouTube Content Partnerships</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-z2-masterpiece-review-a-smart-tech-journey/"><u>In 2024, Z2 Masterpiece Review A Smart Tech Journey</u></a></li>
+<li><a href="https://blog-min.techidaily.com/sobresaliente-tecnicas-para-desbloquear-contenidos-de-disney-y-extraer-dvds-con-exito/"><u>Sobresaliente Técnicas Para Desbloquear Contenidos De Disney Y Extraer DVDs Con Éxito</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/troubleshooting-scanner-hardware-issues-fixing-error-messages-with-yl-computings-guide/"><u>Troubleshooting Scanner Hardware Issues: Fixing Error Messages with YL Computing's Guide</u></a></li>
+</ul></div>
 
