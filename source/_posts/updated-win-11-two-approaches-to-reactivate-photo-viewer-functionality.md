@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Win 11  Two Approaches to Reactivate Photo Viewer Functionality\""
-date: 2025-01-15T02:46:02.727Z
-updated: 2025-01-15T17:50:43.905Z
+date: 2025-01-21T10:41:57.499Z
+updated: 2025-01-22T05:41:11.921Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Stay tuned to learn more!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why you prefer Windows Photo Viewer
@@ -66,10 +66,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -81,6 +77,10 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,16 +96,12 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -114,10 +110,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,24 +145,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-soundstage-networking/"><u>[New] 2024 Approved Best Soundstage Networking</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-sonic-pixels-turning-sound-into-visual-storytelling/"><u>[New] 2024 Approved Sonic Pixels Turning Sound Into Visual Storytelling</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>[New] 2024 Approved The Ultimate Guide Key Drone Upgrades & Supplies</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-achieve-clean-canvases-the-picart-backdrop-removal-art-for-2024/"><u>[New] Achieve Clean Canvases The PicArt Backdrop Removal Art for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] In 2024, Crafting Professional Content on YouTube via Enhancements</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-fine-tuning-windows-photos-app-incorporate-filters-and-sync-music-streaming/"><u>[Updated] 2024 Approved Fine-Tuning Windows Photos App Incorporate Filters & Sync Music Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-prime-10-sticker-adding-tools-for-iphone-and-android-photos/"><u>[Updated] 2024 Approved Prime 10 Sticker-Adding Tools for iPhone and Android Photos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-win-at-watching-basketball-top-15-ways-to-stream-nba-games/"><u>[Updated] 2024 Approved Win at Watching Basketball Top 15 Ways to Stream NBA Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-enhancing-your-roblox-experience-close-up-techniques-for-2024/"><u>[Updated] Enhancing Your Roblox Experience Close-Up Techniques for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-essential-mobile-games-for-leisurely-indulgence-for-2024/"><u>[Updated] Essential Mobile Games for Leisurely Indulgence for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-cut-the-haze-sharpen-your-photos-with-topeditstools/"><u>[Updated] In 2024, Cut the Haze, Sharpen Your Photos with #TopEditsTools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-simplified-steps-capturing-breathtaking-time-lapses-on-black-hero5/"><u>[Updated] In 2024, Simplified Steps Capturing Breathtaking Time-Lapses on Black Hero5</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-end-to-end-guide-to-picsart/"><u>[Updated] The End-to-End Guide to PicsArt</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-verdicts-in-camcorders-which-superiorly-captures-sports/"><u>[Updated] Ultimate Verdicts in Camcorders Which Superiorly Captures Sports?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-asus-rog-phone-8-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Asus ROG Phone 8 in Minutes | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-s17-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo S17 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-free-mp4-video-editor-roundup-top-10-options/"><u>New Free MP4 Video Editor Roundup Top 10 Options</u></a></li>
-<li><a href="https://discover-able.techidaily.com/reparatur-und-wiederherstellung-von-windows-11881-systemen-fur-nicht-kompatible-hardware-konfigurationen/"><u>Reparatur Und Wiederherstellung Von Windows 11/8/8.1-Systemen Für Nicht Kompatible Hardware-Konfigurationen</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/revive-your-videos-top-mp4-and-avi-file-fixer-software/"><u>Revive Your Videos: Top MP4 and AVI File Fixer Software</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-acknowledgement-roundup-free-and-paid-template-haven/"><u>[New] Acknowledgement Roundup Free & Paid Template Haven</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-auditory-interpretation-accessible-at-no-expense/"><u>[New] Auditory Interpretation Accessible at No Expense</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-converting-twitter-video-lyrics-to-custom-gif-animations/"><u>[Updated] 2024 Approved Converting Twitter Video Lyrics to Custom GIF Animations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-disabling-and-erasing-your-old-unused-linkedin-profile/"><u>2024 Approved Disabling and Erasing Your Old, Unused LinkedIn Profile</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dissecting-the-technical-aspects-of-vivavideo/"><u>2024 Approved Dissecting the Technical Aspects of VivaVideo</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-explore-best-free-cloud-storage-services-accessible-up-to-1tb/"><u>2024 Approved Explore Best Free Cloud Storage Services - Accessible Up to 1TB</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-perfecting-the-fisheye-lens-for-immersive-views/"><u>2024 Approved Perfecting the Fisheye Lens for Immersive Views</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/complete-visual-storytellers-guide-to-vsco-app/"><u>Complete Visual Storyteller's Guide to VSCO App</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/convert-your-favorite-mix-tapes-and-playlists-into-multiple-formats-mp3-wav-aac/"><u>Convert Your Favorite Mix Tapes and Playlists Into Multiple Formats: MP3, WAV, AAC</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-no-more-wobbles-the-top-10-free-online-video-stabilizers-for-2024/"><u>New No More Wobbles The Top 10 Free Online Video Stabilizers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-english-mastery-with-top-9-tips-by-a-dedicated-esl-educator/"><u>Unlock Your Potential in English Mastery with Top 9 Tips by a Dedicated ESL Educator</u></a></li>
+<li><a href="https://win-unique.techidaily.com/unveiling-chromes-latest-speed-boost-for-windows-users-yet-theres-a-twist-to-consider-insights-by-zdnet/"><u>Unveiling Chrome's Latest Speed Boost for Windows Users, Yet There's a Twist to Consider | Insights by ZDNET</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Multitask Views  How to Control Picture in Picture on iPhones\""
-date: 2025-01-14T06:59:58.145Z
-updated: 2025-01-15T16:14:23.384Z
+date: 2025-01-20T02:48:30.038Z
+updated: 2025-01-21T22:54:01.796Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
 3. As the video plays, tap on the **Share icon** then scroll to the right end of the list of sharing options for platforms and Apps. Tap the **More icon** at the right end.
@@ -57,14 +53,26 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
 ![download scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Go to YouTube again and start any video. Tap the **Share icon**, scroll to the right and tap the **More icon**, go ahead and tap the YouTube PIP. And on the burner that pops up at the top of the screen of your phone, tap **OK**.
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
 
@@ -77,10 +85,6 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 3. Go to **“** **Settings > General Settings”**
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
@@ -107,7 +111,7 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### PIP on Mac
@@ -128,11 +132,7 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,22 +169,14 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-create-captivating-sports-videography/"><u>[New] 2024 Approved Create Captivating Sports Videography</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-essential-iphone-and-android-video-editor-choices/"><u>[New] In 2024, Essential iPhone & Android Video Editor Choices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-shifting-from-spotify-playlists-to-customized-youtube-music-catalogs/"><u>[New] In 2024, Shifting From Spotify Playlists to Customized YouTube Music Catalogs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-guide-to-mobile-image-mastery/"><u>[New] In 2024, The Ultimate Guide to Mobile Image Mastery</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-visionary-chip-uninterrupted-editing-on-the-newest-tech/"><u>[New] In 2024, Visionary Chip Uninterrupted Editing on the Newest Tech</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-revisiting-video-broadcast-choices-post-wirecast-for-2024/"><u>[New] Revisiting Video Broadcast Choices Post-Wirecast for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-perfect-online-shopping-picks-for-one-of-a-kind-box-packaging/"><u>[Updated] In 2024, Perfect Online Shopping Picks for One-of-a-Kind Box Packaging</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pioneering-ig-video-influence-crafting-an-excellent-marketing-plan/"><u>[Updated] Pioneering IG Video Influence Crafting an Excellent Marketing Plan</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-speaker-change-tech-for-internet-showbiz-pros/"><u>[Updated] Ultimate Speaker Change Tech for Internet Showbiz Pros</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/entertainment-unlocked-apk-of-funimate-explained/"><u>Entertainment Unlocked APK of Funimate Explained</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-vivo-y78plus-t1-edition-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Vivo Y78+ (T1) Edition to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-leading-livestream-tech-for-gaming-enthusiasts/"><u>In 2024, Leading Livestream Tech For Gaming Enthusiasts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-navigating-online-marketplaces-for-yt-channel-sales/"><u>In 2024, Navigating Online Marketplaces for YT Channel Sales</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/scouting-the-best-cameras-for-aspiring-muso-videographers-for-2024/"><u>Scouting the Best Cameras for Aspiring Muso Videographers for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transformar-snd-a-lineal-libre-de-costo-con-movavi-guia-completa/"><u>Transformar SND a Lineal Libre De Costo Con Movavi - Guía Completa</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-begin-your-editing-journey-adopting-movie-maker-for-w11-for-2024/"><u>[New] Begin Your Editing Journey Adopting Movie Maker for W11 for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-beginners-guide-to-editing-content-on-windows-11/"><u>[New] The Beginner's Guide to Editing Content on Windows 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-creative-collection-of-swaying-text-styles/"><u>[Updated] Creative Collection of Swaying Text Styles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-select-your-perfect-outro-soundtrack-online-for-free/"><u>[Updated] Select Your Perfect Outro Soundtrack Online For Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-supreme-narrative-designers-den/"><u>[Updated] Supreme Narrative Designer's Den</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-telegram-edge-advanced-tactics-for-effective-promotion-for-2024/"><u>[Updated] The Telegram Edge Advanced Tactics for Effective Promotion for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweettube-downloader-streamline-youtube-and-twitvid-transfer-for-2024/"><u>[Updated] TweetTube Downloader Streamline YouTube & TwitVid Transfer for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-5-high-performance-hdds-built-for-xbox-use/"><u>In 2024, 5 High-Performance HDDs Built for Xbox Use</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/transferring-data-seamlessly-a-guide-for-synchronizing-dual-systems-by-yl-software/"><u>Transferring Data Seamlessly: A Guide for Synchronizing Dual Systems by YL Software</u></a></li>
 </ul></div>
 

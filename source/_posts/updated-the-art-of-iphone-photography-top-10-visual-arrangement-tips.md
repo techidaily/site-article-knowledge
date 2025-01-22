@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of iPhone Photography  Top 10 Visual Arrangement Tips\""
-date: 2025-01-09T09:13:30.292Z
-updated: 2025-01-16T02:45:52.666Z
+date: 2025-01-18T12:05:18.832Z
+updated: 2025-01-21T22:44:28.207Z
 tags: 
   - screen-recording
   - ai video
@@ -33,23 +33,11 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Rule of Thirds
 
  The Rule of Thirds consists of a set of guidelines to assist a photographer correctly position the subject in a particular scene. It is meant to draw the attention of the viewer directly towards the subject. According to this rule, the picture is divided into nine equal grids that break the entire image with two vertical and two horizontal lines into vertical and horizontal thirds. As per the Rule of Thirds, the subject should be placed at the intersecting points of the grids.
 
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Leading Lines
 
@@ -58,7 +46,11 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Symmetry
@@ -67,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
@@ -74,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Diagonals
@@ -83,11 +79,19 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shape
 
  Speaking of shape in photography composition sounds odd? ‘Rule of Thirds’ and ‘Leading Lines’ are not the only rules that make a photo composition. Line, shape, texture, form, space, color, and pattern also play a key role to make your iPhone photography a real treasure. Shape defines the two dimensional view of the subject and the entire scene as well. A well defined subject with a silhouette and backlighting or a black and white picture looks more appealing than a color picture where the shape of the subject or other objects is not prominent. Forms and shapes play an integral role in photography.
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Leave Empty Space
 
@@ -96,7 +100,7 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Direction of Subject
@@ -106,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fill Your Frame
@@ -120,10 +124,6 @@ thumbnail: https://thmb.techidaily.com/02857e9a5729a034df5799d80242303ce172ee694
  Lastly, we would say that forget and break all the rules. Make use of the above mentioned rules in photography, but don’t let your heart stick to it. Explore, experiment and let your imaginations fly high to capture whatever you want and however you can that fills your soul. Photography is a passion and you must enjoy it.
 
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclsion
 
@@ -158,20 +158,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-groundwork-for-av1-mastery/"><u>[New] 2024 Approved Groundwork for AV1 Mastery</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-gamer-gold-grindings-pewdiepies-profit-profile-for-2024/"><u>[New] Gamer Gold Grindings PewDiePie's Profit Profile for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-event-ready-top-dj-templates-download-guide/"><u>[New] In 2024, Event-Ready Top DJ Templates Download Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pioneering-editing-snapseed-for-the-newcomer/"><u>[New] In 2024, Pioneering Editing Snapseed for the Newcomer</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mastering-the-art-of-navigating-telegram-web-applications/"><u>[Updated] 2024 Approved Mastering the Art of Navigating Telegram Web Applications</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-flash-frame-filmmaking-script/"><u>[Updated] Flash Frame Filmmaking Script</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-harnessing-the-power-of-real-time-social-interaction-on-fb-stories-for-2024/"><u>[Updated] Harnessing the Power of Real-Time Social Interaction on FB Stories for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-step-by-step-guide-on-stopping-youtubes-automatic-previews/"><u>[Updated] Step-By-Step Guide on Stopping YouTube's Automatic Previews</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-craft-captivating-facebook-coverage/"><u>2024 Approved Craft Captivating Facebook Coverage</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-route-to-richer-tiktok-bios-a-guide-to-linktree-integration/"><u>2024 Approved The Route to Richer TikTok Bios A Guide to Linktree Integration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-turn-your-instagram-footage-backwards-easily/"><u>2024 Approved Turn Your Instagram Footage Backwards Easily</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-secure-visuals-shaking-off-disruptions/"><u>In 2024, Secure Visuals Shaking Off Disruptions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/leading-wireless-repeaters-for-improved-connectivity-the-2024-guide/"><u>Leading Wireless Repeaters for Improved Connectivity - The 2024 Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-filmmakers-guide-to-using-standardized-color-luts-for-2024/"><u>The Filmmaker's Guide to Using Standardized Color Luts for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-swift-and-simple-method-for-screenshots-on-ios-devices-for-2024/"><u>[New] Swift and Simple Method for Screenshots on IOS Devices for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-achieving-fame-on-instagram-the-top-9-habits-of-stars-and-influencers/"><u>2024 Approved Achieving Fame on Instagram The Top 9 Habits of Stars and Influencers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discover-10-superior-online-photo-background-swappers/"><u>2024 Approved Discover 10 Superior Online Photo Background Swappers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-kinemaster-app-for-android-complete-review/"><u>2024 Approved KineMaster App for Android - Complete Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-curves-transforming-photos-in-ps/"><u>2024 Approved Master Curves Transforming Photos in PS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-art-of-query-tagging-in-instagram-comments/"><u>2024 Approved Mastering the Art of Query Tagging in Instagram Comments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-novices-selection-guide-to-ideal-filming-cameras/"><u>2024 Approved Novice's Selection Guide to Ideal Filming Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-showcasing-excellence-top-20-anime-openings/"><u>2024 Approved Showcasing Excellence Top 20 Anime Openings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-tranquil-tracks-easy-volume-diminution-via-garageband/"><u>2024 Approved Tranquil Tracks Easy Volume Diminution via Garageband</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unparalleled-immersion-with-eizos-high-resolution-4k-display/"><u>2024 Approved Unparalleled Immersion with EIZO’s High-Resolution 4K Display</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/cutting-edge-technology-evaluations-by-toms-hardware-experts/"><u>Cutting-Edge Technology Evaluations by Tom's Hardware Experts</u></a></li>
+<li><a href="https://fox-within.techidaily.com/est-ce-que-vous-avez-besoin-dune-alternative-fiable-au-disk-drill-explorez-nos-solutions-avancees-de-recuperation-de-donnees/"><u>Est-Ce Que Vous Avez Besoin D'une Alternative Fiable Au Disk Drill? Explorez Nos Solutions Avancées De Récupération De Données</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-easytime-timer-solutions-at-zero-cost/"><u>In 2024, Top EasyTime Timer Solutions at Zero Cost</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976029844-linksys-ae2500-easy-driver-download-boost-your-wi-fi-experience-instantly/"><u>Linksys AE2500 Easy Driver Download - Boost Your Wi-Fi Experience Instantly!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mold-your-own-online-giggle-piece/"><u>Mold Your Own Online Giggle Piece</u></a></li>
+<li><a href="https://win-popular.techidaily.com/page-cannot-be-located-error-indication-404-detected/"><u>Page Cannot Be Located – Error Indication 404 Detected</u></a></li>
+<li><a href="https://driver-download.techidaily.com/rapid-download-guide-to-microsofts-ergonomic-keyboard-40amo-driver-setup-hassle-free/"><u>Rapid Download Guide to Microsoft's Ergonomic Keyboard 40Amo Driver Setup – Hassle-Free</u></a></li>
 </ul></div>
 

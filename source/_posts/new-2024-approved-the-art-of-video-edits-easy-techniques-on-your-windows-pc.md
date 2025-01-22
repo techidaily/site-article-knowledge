@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Art of Video Edits  Easy Techniques on Your Windows PC\""
-date: 2025-01-15T00:39:55.392Z
-updated: 2025-01-16T02:04:50.210Z
+date: 2025-01-19T08:17:58.335Z
+updated: 2025-01-22T01:18:39.962Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -54,19 +54,11 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -81,7 +73,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -90,16 +82,24 @@ Here comes the step by step guide to trim video in VLC –
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-photo-vid-mosaic-designer-slideshows-for-sierra/"><u>[New] 2024 Approved Photo-Vid Mosaic Designer Slideshows for Sierra</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-ultimate-list-of-tiktok-phenomena-on-twitter/"><u>[New] 2024 Approved The Ultimate List of TikTok Phenomena on Twitter</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-advanced-editing-guide-for-creating-compelling-360-degree-videos-using-premiere-pro-for-2024/"><u>[New] Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-detailed-razer-kiyo-webcam-insights/"><u>[New] Detailed Razer Kiyo Webcam Insights</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-explaining-the-gopro-burst-mode/"><u>[New] Explaining the GoPro Burst Mode</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-orchestrate-online-albums-photos-pair-with-songs/"><u>[New] In 2024, Orchestrate Online Albums Photos Pair With Songs</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-flavorful-frontier-groundbrenant-title-strategies-for-food-networks/"><u>[Updated] In 2024, Flavorful Frontier Groundbrenant Title Strategies for Food Networks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-transformative-tutorial-turning-vids-on-twitter-into-catchy-animated-memes-gifs/"><u>[Updated] In 2024, Transformative Tutorial Turning Vids on Twitter Into Catchy Animated Memes (GIFs)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/10-ultimate-action-hunting-cameras-ranked-for-2024/"><u>10 Ultimate Action Hunting Cameras Ranked for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-intriguing-world-of-triller-vs-tiktok/"><u>2024 Approved The Intriguing World of Triller vs TikTok</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/best-photo-background-blur-apps-for-iphone-and-android-phones/"><u>Best Photo Background Blur Apps for iPhone and Android Phones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/hype-generator-chief-architect-for-2024/"><u>Hype Generator Chief Architect for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-nubia-z50s-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Nubia Z50S Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-how-to-guide-for-soundless-video-documentation/"><u>[New] 2024 Approved How-To Guide for Soundless Video Documentation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-tech-savvy-approach-to-saving-your-insta-content/"><u>[New] 2024 Approved The Tech-Savvy Approach to Saving Your Insta Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[New] Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-a-comprehensive-guide-downloading-from-instagram-to-iphone/"><u>[Updated] A Comprehensive Guide Downloading From Instagram to iPhone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-aggregate-attention-masterful-telegram-advertising-approaches/"><u>[Updated] Aggregate Attention Masterful Telegram Advertising Approaches</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-find-your-ideal-wedding-timer-on-android-and-ios-platforms-here/"><u>[Updated] Find Your Ideal Wedding Timer on Android & iOS Platforms Here</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-clarity-unleashed-in-depth-review-of-the-hp-z32-x-display/"><u>[Updated] In 2024, Clarity Unleashed In-Depth Review of the HP Z32 X Display</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-blueprint-for-optimizing-data-in-adobes-cloud-realm/"><u>[Updated] The Complete Blueprint for Optimizing Data in Adobe's Cloud Realm</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/generating-podcast-identity-the-top-ai-naming-software/"><u>Generating Podcast Identity The Top AI Naming Software</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-latest-dolby-audio-driver-update-for-windows-108111-systems/"><u>Get Your Latest Dolby Audio Driver Update for Windows 10/8.1/11 Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavi-converti-file-ogg-gratuitamente-in-formato-aiff-online/"><u>Movavi: Converti File OGG Gratuitamente in Formato AIFF Online</u></a></li>
+<li><a href="https://article-files.techidaily.com/portable-gear-for-travel-cinematography-for-2024/"><u>Portable Gear for Travel Cinematography for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-steps-to-fresh-drivers-for-your-amd-ryzen-5-2500u-processor/"><u>Quick Steps to Fresh Drivers for Your AMD Ryzen 5 지구맥스 2500U Processor</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-compact-tablets-comprehensive-reviews-by-tech-specialists/"><u>Top-Rated Compact Tablets : Comprehensive Reviews by Tech Specialists</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/transforming-ordinary-recordings-into-pro-level-with-audacity/"><u>Transforming Ordinary Recordings Into Pro-Level With Audacity</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-nokia-c12-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Nokia C12 | Dr.fone</u></a></li>
 </ul></div>
 

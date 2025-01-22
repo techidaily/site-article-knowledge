@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential Tips for Deactivating an Inactive LinkedIn Profile\""
-date: 2024-08-27T07:08:09.945Z
-updated: 2024-08-28T07:08:09.945Z
+date: 2025-01-17T06:30:09.340Z
+updated: 2025-01-22T01:50:56.025Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/86c324ce76532279df624a7b580daa3d859103088
 * [**Part2: How to Delete LinkedIn Account on PC**](#part2)
 * [**Part3: How To Close Linkedin Account On Android Phone**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Notes You Need To Know
 
  Here are some of the points which you may find important prior to deleting your LinkedIn account. Just remember the following notes so that you are not confused why is your profile appearing in search engines even after closing it or why are you unable to close your premium membership account, and so on.
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/86c324ce76532279df624a7b580daa3d859103088
 
 ![linkedin privacy](https://images.wondershare.com/filmora/article-images/linkedin-privacy.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Next, to "Close your LinkedIn account" find the "Change" option and click on it. You will get a warning if you are a premium member that without canceling the premium membership, you cannot close LinkedIn account. Click on "You’ll need to convert it to a Basic membership" option to reach the membership cancelation page.
 
 ![close linkedin accout](https://images.wondershare.com/filmora/article-images/close-linkedin-account.JPG)
@@ -65,8 +73,9 @@ thumbnail: https://thmb.techidaily.com/86c324ce76532279df624a7b580daa3d859103088
  This automatically deletes LinkedIn account officially but, it takes few more weeks to remove LinkedIn account from the search engines as well.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part3: How To Close Linkedin Account On Android Phone
 
  If you wish to close LinkedIn account on Android phone, there’s nothing to worry about. It is very similar to how you delete LinkedIn account on PC.
@@ -76,27 +85,23 @@ thumbnail: https://thmb.techidaily.com/86c324ce76532279df624a7b580daa3d859103088
 ![linkedin android setting](https://images.wondershare.com/filmora/article-images/linkedin-android-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 2. A message appears if you wish to "continue", so tap on the continue option.Once you click on the continue option, a similar message like the above in delete LinkedIn account from PC appears as to why you wish to close LinkedIn account. Click on any one reason for leaving LinkedIn and then, proceed to tap "Next". It asks for your password to ensure it’s you and for the security of your account and once entering the password is complete, tap "done".
 
 ![linkedin android close account](https://images.wondershare.com/filmora/article-images/linkedin-android-close-account.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
+
 ## Conclusion
 
  LinkedIn is not rigid about deleting the account or losing a user. It is completely up to you and your convenience, if you wish to remove LinkedIn account completely. Whether mobile browser or Android phone or your computer, the process to cancel LinkedIn account is quite simple and does not involve much of any critical steps. Follow the above points to delete LinkedIn account from your PC or Android.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -120,8 +125,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-from-standard-to-supreme-mastering-sdr-to-hdr-video-upgrade/"><u>[New] 2024 Approved From Standard to Supreme Mastering SDR-to-HDR Video Upgrade</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-discovering-bargains-inexpensive-gopro-purchasing-guide-for-2024/"><u>[New] Discovering Bargains Inexpensive GoPro Purchasing Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[New] In 2024, Effortless Online Audio Accessibility Ideal Tools for iPhone & YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enhancing-online-stream-quality-with-a-single-source-approach/"><u>[New] In 2024, Enhancing Online Stream Quality with a Single Source Approach</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-return-crafting-kit/"><u>[New] In 2024, Return Crafting Kit</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfecting-your-personal-palette-a-guide-to-whatsapp-alerts-on-phones-for-2024/"><u>[New] Perfecting Your Personal Palette A Guide to WhatsApp Alerts on Phones for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-immersive-worlds-shaping-future-cinematic-experiences/"><u>[Updated] 2024 Approved Immersive Worlds Shaping Future Cinematic Experiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-key-gear-for-broadcast-engineers-and-directors/"><u>[Updated] In 2024, Key Gear for Broadcast Engineers and Directors</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-methods-for-subtle-audio-softening-with-lumafusion/"><u>[Updated] In 2024, Methods for Subtle Audio Softening with Lumafusion</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-stabilizing-pixels-the-truth-behind-photoshop-shake-for-2024/"><u>[Updated] Stabilizing Pixels The Truth Behind Photoshop Shake for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-selecting-the-right-video-recorder-for-teaching/"><u>2024 Approved Selecting the Right Video Recorder for Teaching</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comprehensive-overview-harnessing-power-of-openais-api/"><u>Comprehensive Overview: Harnessing Power of OpenAI's API</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tless-tutorial-for-top-notch-yt-video-thumbnails-for-2024/"><u>Effortless Tutorial for Top-Notch YT Video Thumbnails for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211326677-9781913738143-hindu-astrology/"><u>Hindu Astrology | Free Book</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-strategies-for-securing-youtubers-as-sponsors/"><u>In 2024, Strategies for Securing YouTubers as Sponsors</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-chatgpts-stream-errors-successfully/"><u>Navigating ChatGPT's Stream Errors Successfully</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/slendersky-stash-affordable-capacious-clouds/"><u>SlenderSky Stash Affordable, Capacious Clouds</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/stepwise-guide-to-windows-11-sound-capture-setup/"><u>Stepwise Guide to Windows 11 Sound Capture Setup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/taking-control-mastering-the-art-of-background-removal-for-2024/"><u>Taking Control Mastering the Art of Background Removal for 2024</u></a></li>
+</ul></div>
 

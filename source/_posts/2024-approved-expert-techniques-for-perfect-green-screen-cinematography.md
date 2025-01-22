@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Expert Techniques for Perfect Green-Screen Cinematography\""
-date: 2024-08-22T14:31:17.370Z
-updated: 2024-08-23T14:31:17.370Z
+date: 2025-01-19T06:29:52.511Z
+updated: 2025-01-22T12:25:43.118Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -54,11 +58,19 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -72,11 +84,19 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
@@ -119,12 +139,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-express-exuberance-create-memetic-content-with-kapwing/"><u>[New] Express Exuberance Create Memetic Content With Kapwing</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-precision-in-capturing-androids-best-techniques/"><u>[New] In 2024, Precision in Capturing Android's Best Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-sportscasting-your-pathway-to-highlight-videos/"><u>[New] In 2024, Sportscasting Your Pathway to Highlight Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-leading-edge-imaging-the-most-excellent-4k-cams/"><u>[New] Leading Edge Imaging The Most Excellent 4K Cams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-srt-subtitle-switch-up-success-strategies-highlighted-for-2024/"><u>[New] SRT Subtitle Switch-Up Success Strategies Highlighted for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-zero-to-hero-your-step-by-step-adventure-in-meme-magic-on-9gag-for-2024/"><u>[New] Zero to Hero Your Step-by-Step Adventure in Meme Magic on 9GAG for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-10-best-portable-dvd-player-for-2024/"><u>[Updated] 10 Best Portable DVD Player for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-craft-engaging-titlescaptions-with-microsofts-photos-app-win-11/"><u>[Updated] In 2024, Craft Engaging Titles/Captions with Microsoft's Photos App (Win 11)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-zoom-recording-essential-tips-for-2024/"><u>[Updated] Mastering Zoom Recording Essential Tips for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-zoom-video-enhancement-playbook/"><u>[Updated] The Ultimate Zoom Video Enhancement Playbook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-infinix-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Infinix</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-top-10-igtv-channels-you-should-start-following-now/"><u>In 2024, Top 10 IGTV Channels You Should Start Following Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/sidestep-personalized-podcast-suggestions-in-spotify-for-2024/"><u>Sidestep Personalized Podcast Suggestions in Spotify for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/solution-guide-fixes-for-monster-hunter-rise-failed-to-load/"><u>Solution Guide: Fixes For 'Monster Hunter Rise Failed To Load'</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/troubleshooting-missing-video-display-on-sony-a6400-for-2024/"><u>Troubleshooting Missing Video Display on Sony A6400 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unmatched-user-experience-the-ultimate-blueprint-of-the-perfect-timing-app/"><u>Unmatched User Experience: The Ultimate Blueprint of the Perfect Timing App</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

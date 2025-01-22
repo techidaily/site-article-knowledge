@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, ARCADE AFFORDABILITY INDEX"
-date: 2025-01-11T16:24:57.615Z
-updated: 2025-01-15T18:24:29.139Z
+date: 2025-01-18T08:21:49.660Z
+updated: 2025-01-22T07:31:19.694Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What’s POT Player?
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 * One can enjoy settings for downloadable as well as user designed skins.
 * Users can access keyboard shortcuts for subtitles, contrast, brightness, volume, zooming and seeking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Pros and Cons of POT Player
 
 ### The Good
@@ -70,13 +74,13 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 * User defined shortcuts makes controlling much easier.
 * It creates minimal loads of memory and CPU.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Bad
 
 * Beginners may find its setup quite difficult with loads of advanced settings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Truth
 
@@ -85,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ## Deep Review of Pot Player
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Adding Files and Managing Playlists
@@ -95,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  The playlist tabs are well designed where users can manage numerous albums; all added controls are later automatically saved to playlists and they are auto loaded for the next time. Albums on its library are managed in alphabetical order and your can also add files from one album to another using add and edit menu. Note that, the drag and drop feature works only within playlists, they cannot work inside a playlist.
 
 ![ pot-add-files](https://images.wondershare.com/filmora/article-images/pot-add-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Playing Audio Files
 
@@ -106,10 +114,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![pot-play-audio ](https://images.wondershare.com/filmora/article-images/pot-play-audio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Playing Video Files
 
  Generally, the video frame appears on left portion of screen and right one stays cluttered with playlist but you can simply close it by pressing the little arrow head on right most corner of screen. In order to bring video to the full screen mode, you need to double click over it. Return back to small window by pressing Esc or double click again.
@@ -119,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![pot-play-video ](https://images.wondershare.com/filmora/article-images/pot-play-video.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -149,18 +149,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-giggles-galore-an-in-depth-look-at-the-goofy-film/"><u>[New] 'Giggles Galore' – An In-Depth Look at The Goofy Film</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-ultimate-resource-compilation-for-media-imagery/"><u>[New] In 2024, Ultimate Resource Compilation for Media Imagery</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>[New] The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-transform-imaging-expertise-in-adobes-high-dynamic-range/"><u>[Updated] Transform Imaging Expertise in Adobe's High Dynamic Range</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-audience-favorites-screenplays-of-varied-genres/"><u>2024 Approved Audience Favorites Screenplays of Varied Genres</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-latest-in-video-compression-technology-with-these-46-new-tools/"><u>2024 Approved Explore the Latest in Video Compression Technology with These 46 New Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-snapchat-soundscapes-full-playback-no-missed-beats/"><u>2024 Approved Snapchat Soundscapes Full Playback, No Missed Beats</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capturing-presentations-effortlessly-a-guide-to-screen-capture/"><u>In 2024, Capturing Presentations Effortlessly A Guide to Screen Capture</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mac-graphics-revolution-top-10-freeware-drawings/"><u>Mac Graphics Revolution Top 10 Freeware Drawings</u></a></li>
-<li><a href="https://windows11.techidaily.com/reviving-default-windows-preferences-post-restart/"><u>Reviving Default Windows Preferences Post-Restart</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-guide-installing-acer-aspire-drivers-on-your-windows-pc/"><u>Ultimate Guide: Installing Acer Aspire Drivers on Your Windows PC</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/virtual-universe-expansion-present-trends-and-future-challenges/"><u>Virtual Universe Expansion Present Trends & Future Challenges</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-from-live-to-legacy-preserving-facebook-events-for-2024/"><u>[New] From Live to Legacy Preserving Facebook Events for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premium-web-resources-curated-alarm-tones/"><u>[New] Premium Web Resources Curated Alarm Tones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-budget-friendly-cloud-strategies-revealed/"><u>2024 Approved Budget-Friendly Cloud Strategies Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-elite-video-capturing-technology-for-podcasts/"><u>2024 Approved Elite Video Capturing Technology for Podcasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-perfect-guide-iosipad-podcast-recording-tips-for-engaging-interviews/"><u>2024 Approved Perfect Guide IOS/iPad Podcast Recording Tips for Engaging Interviews</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-hook-up-guide-scripts-to-seduce-listeners/"><u>2024 Approved The Hook-Up Guide Scripts to Seduce Listeners</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-validity-of-vibration-reduction-in-adobes-world/"><u>2024 Approved The Validity of Vibration Reduction in Adobe's World</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-visionary-creatives-for-backdrops-pixelpioneers-realm/"><u>2024 Approved Visionary Creatives for Backdrops PixelPioneer's Realm</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-visual-media-experience-overview-analysis/"><u>2024 Approved Visual Media Experience Overview Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/amplify-and-transform-changing-your-audible-image-on-ig/"><u>Amplify and Transform Changing Your Audible Image on IG</u></a></li>
+<li><a href="https://win-news.techidaily.com/crossing-brand-barriers-moving-samsung-information-to-other-ssds-a-step-by-step-guide/"><u>Crossing Brand Barriers: Moving Samsung Information to Other SSDs - A Step by Step Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-sony-xperia-10-v-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Sony Xperia 10 V to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/optimize-your-music-files-with-our-mp3-bits-per-second-modifier-tool/"><u>Optimize Your Music Files with Our MP3 Bits Per Second Modifier Tool</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-for-when-your-pc-wont-power-down-from-windows-11/"><u>Troubleshooting Tips for When Your PC Won't Power Down From Windows 11</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ate-youtube-watch-list-highest-watched-in-24-hours/"><u>Ultimate YouTube Watch List Highest-Watched in 24 Hours</u></a></li>
 </ul></div>
 

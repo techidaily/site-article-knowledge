@@ -1,7 +1,7 @@
 ---
 title: "\"Viral Visuals  The Birth and Journey\""
-date: 2025-01-14T22:53:42.786Z
-updated: 2025-01-16T02:46:05.399Z
+date: 2025-01-20T09:51:51.641Z
+updated: 2025-01-21T20:54:42.752Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ So, what are the most popular stock photo memes, and how did they reach this sta
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part1: Hide the Pain Harold
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
@@ -50,11 +46,11 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 ![do stock image modeling](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-3.jpg)
 
-Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
 ## Part2: Distracted Boyfriend
 
@@ -85,10 +81,6 @@ In addition, Antonio Guillem also has a stock image meme where the roles are rev
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
@@ -102,7 +94,7 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
@@ -113,15 +105,15 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -131,10 +123,6 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
@@ -142,7 +130,15 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part5: FAQs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
 
@@ -151,12 +147,16 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -194,18 +194,20 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/xclusive-guide-to-top-youtube-to-webm-conversion-software/"><u>[New] Exclusive Guide to Top YouTube-to-WebM Conversion Software</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-crafting-harmonious-mixes-the-audacity-crossfade-method/"><u>[New] In 2024, Crafting Harmonious Mixes The Audacity Crossfade Method</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/aximizing-profits-from-a-million-viewer-baseline/"><u>[New] Maximizing Profits From a Million-Viewer Baseline</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-galaxy-visionhub-premium-integrated-4k-all-in-one-panels/"><u>[Updated] 2024 Approved Galaxy VisionHub Premium Integrated 4K All-in-One Panels</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-proven-strategies-to-amplify-zoomed-participants-in-google-meet/"><u>[Updated] 2024 Approved Proven Strategies to Amplify Zoomed Participants in Google Meet</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-optimizing-video-capture-with-mov-on-windows-10/"><u>[Updated] In 2024, Optimizing Video Capture with MOV on Windows 10</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-filmmakers-handbook-for-uav-operations-for-2024/"><u>[Updated] The Filmmaker's Handbook for UAV Operations for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-future-of-cloud-storages-top-picks-to-consider/"><u>2024 Approved The Future of Cloud Storages Top Picks to Consider</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-vivo-s18e-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Vivo S18e FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-top-10-digital-storefronts-for-exquisite-presentation-boxes/"><u>In 2024, Top 10 Digital Storefronts for Exquisite Presentation Boxes</u></a></li>
-<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-asus-rog-phone-8-pro-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Asus ROG Phone 8 Pro Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/streamline-your-gmail-messages-with-this-essential-guide-to-organizing-via-labels/"><u>Streamline Your Gmail Messages With This Essential Guide to Organizing via Labels</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/zoom-in-zoom-out-managing-close-up-footage-in-videoleap/"><u>Zoom In, Zoom Out Managing Close-Up Footage in Videoleap</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-through-vr-lenses-30plus-enlightened-metaverse-proverbs/"><u>[New] 2024 Approved Through VR Lenses 30+ Enlightened Metaverse Proverbs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hdr-techniques-for-photoshop-pros-a-step-by-step-guide/"><u>[New] HDR Techniques for Photoshop Pros A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-musical-enhancements-for-social-video-sharing-platforms-fb/"><u>[New] In 2024, Musical Enhancements for Social Video Sharing Platforms (FB)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-facebook-video-maker-how-to-make-facebook-video/"><u>[Updated] In 2024, Facebook Video Maker How to Make Facebook Video</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-detailed-close-ups-made-easy-in-videoleap-editing/"><u>2024 Approved Detailed Close-Ups Made Easy in Videoleap Editing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-filmoras-peers-the-best-slide-show-template-collections/"><u>2024 Approved Filmora's Peers The Best Slide Show Template Collections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-record-professional-audio-in-audacity/"><u>2024 Approved How To Record Professional Audio In Audacity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-impact-of-visual-client-reviews-on-business-image/"><u>2024 Approved Impact of Visual Client Reviews on Business Image</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-video-collection-on-tiktok-efficiently/"><u>2024 Approved Maximizing Video Collection on TikTok Efficiently</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-best-metaverse-vr-headsets-and-wearables/"><u>2024 Approved Unveiling the Best Metaverse VR Headsets & Wearables</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-approaches-to-capture-and-share-compelling-customer-experiences/"><u>Best Approaches to Capture and Share Compelling Customer Experiences</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-your-mobile-film-game-best-9-camera-add-ons-for-vloggers-for-2024/"><u>Boost Your Mobile Film Game Best 9 Camera Add-Ons For Vloggers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-realme-12-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/say-goodbye-to-game-interruptions-easily-fixing-titanfall-2-crash-issues/"><u>Say Goodbye to Game Interruptions: Easily Fixing Titanfall 2 Crash Issues</u></a></li>
 </ul></div>
 

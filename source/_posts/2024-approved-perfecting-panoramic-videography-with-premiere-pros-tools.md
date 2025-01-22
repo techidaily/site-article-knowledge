@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfecting Panoramic Videography with Premiere Pro's Tools\""
-date: 2024-08-22T14:27:39.662Z
-updated: 2024-08-23T14:27:39.662Z
+date: 2025-01-18T10:54:43.523Z
+updated: 2025-01-21T18:58:27.850Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 
 **Related article:** [How to Stitch GoPro Clips into 360 Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Editing 360 degrees videos in Premiere Pro
 
  Consider the following steps when editing 360 degree videos using Premiere Pro from Adobe-:
@@ -42,11 +46,19 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
 
 #### 3. Set the Preview Window to VR Mode
 
 ![Edit 360 videos with Premiere Pro - Enable VR mode](https://images.wondershare.com/filmora/article-images/enable-vr-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After you have established the right settings for your project, the next thing you need to do is to set the preview window into VR Mode. There are two ways to do this and they include-:
 
@@ -69,7 +81,15 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -94,12 +114,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-are-reviews-on-goods-and-services-for-cash/"><u>[New] Are Reviews on Goods & Services for Cash?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-record-a-podcast-on-iphone-or-ipad-best-for-interviews-and-trave/"><u>[New] How To Record a Podcast on iPhone or iPad (Best for Interviews & Trave</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-superior-visual-experience-ranking-the-best-12-html5-players/"><u>[New] In 2024, Superior Visual Experience Ranking the Best 12 HTML5 Players</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-haptic-feedback-and-vr-for-medicine/"><u>[Updated] 2024 Approved Haptic Feedback and VR for Medicine</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-cost-effective-stratosphere-storage-for-large-archives-for-2024/"><u>[Updated] Cost-Effective Stratosphere Storage for Large Archives for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conserving-graphics-in-word-a-comprehensive-tutorial/"><u>Conserving Graphics in Word: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/elevate-note-taking-experience-mematic-for-2024/"><u>Elevate Note-Taking - Experience Mematic for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-poco-x6-pro-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Poco X6 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-echoes-of-yesteryear-a-digital-compilation-of-ringtones/"><u>In 2024, Echoes of Yesteryear A Digital Compilation of Ringtones</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-12-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone 12 Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-rapid-recording-rules-for-iphone-timelapses/"><u>In 2024, Rapid Recording Rules for iPhone Timelapses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/locating-your-own-playlists-on-youtube/"><u>Locating Your Own Playlists on Youtube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oppo-k11-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Oppo K11 5G Location | Dr.fone</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

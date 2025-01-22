@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Your Photography Experience on Windows 11  Filters and Music Playback\""
-date: 2025-01-13T22:04:19.412Z
-updated: 2025-01-16T09:31:12.018Z
+date: 2025-01-15T13:27:15.227Z
+updated: 2025-01-21T18:28:24.791Z
 tags: 
   - screen-recording
   - ai video
@@ -51,7 +51,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
@@ -60,11 +60,11 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -79,18 +79,18 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,17 +127,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-innovative-tech-top-windows-cameras-explored/"><u>[New] In 2024, Innovative Tech Top Windows Cameras Explored</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-natural-and-artificial-blending-lights-in-iphone-photos/"><u>[New] Natural & Artificial Blending Lights in iPhone Photos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-create-a-square-video-for-instagram-in-imovie/"><u>[Updated] 2024 Approved How to Create a Square Video for Instagram in iMovie?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-six-simple-ways-to-ease-vr-headset-nausea/"><u>[Updated] In 2024, Six Simple Ways to Ease VR Headset Nausea</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unraveling-virtual-physical-coexistence-what-is-mixed-reality/"><u>[Updated] Unraveling Virtual-Physical Coexistence What Is Mixed Reality?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-rank-higher-with-youtube-shorts-a-guide-to-making-a-difference/"><u>2024 Approved Rank Higher with YouTube Shorts A Guide to Making a Difference</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-snap-with-precision-essential-camera-angles-for-images/"><u>2024 Approved Snap with Precision Essential Camera Angles for Images</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/best-signature-background-remover-online-6-incredible-tools-for-2024/"><u>Best Signature Background Remover Online - 6 Incredible Tools for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/discover-the-most-valuable-online-spots-for-free-photographs-for-2024/"><u>Discover the Most Valuable Online Spots for Free Photographs for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-time-efficient-ways-to-wipe-out-ssgnature-backdrops/"><u>In 2024, Time-Efficient Ways to Wipe Out Ssgnature Backdrops</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816190-9781616406349-the-poltergeist/"><u>The Poltergeist | Free Book</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-computer-review-your-trusted-source-for-in-depth-hardware-analysis/"><u>Tom's Computer Review: Your Trusted Source for In-Depth Hardware Analysis</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-intro-to-photo-editing-mastering-lunapic-basics/"><u>[New] 2024 Approved Intro to Photo Editing Mastering LunaPic Basics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-jest-engineer-online/"><u>[New] 2024 Approved Jest Engineer Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-creative-teaching-incorporating-youtube-into-your-curriculum/"><u>[New] In 2024, Creative Teaching Incorporating YouTube Into Your Curriculum</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prime-video-recorders-head-on-screen-viewing/"><u>[New] In 2024, Prime Video Recorders Head-On Screen Viewing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-step-further-elite-video-editing-hacks-for-tiktok-for-2024/"><u>[Updated] A Step Further Elite Video Editing Hacks for TikTok for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-become-a-youtube-partner-you-need-10000-views-now-for-2024/"><u>[Updated] How to Become a YouTube Partner - You Need 10,000 Views Now for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-strategies-for-purchasing-clear-visual-content/"><u>[Updated] In 2024, Strategies for Purchasing Clear Visual Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-laugh-loom-robotic-deadlines/"><u>[Updated] Laugh Loom Robotic Deadlines</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-prime-websites-to-acquire-custom-youtube-ringtones/"><u>[Updated] Prime Websites to Acquire Custom YouTube Ringtones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-mac-users-guide-to-utilizing-preview-to-its-maximum-for-2024/"><u>[Updated] The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-way-to-scalp-and-copy-trading-on-mt4-and-mt5-by-mt4copier-guide/"><u>Best way to scalp and Copy Trading on MT4 and MT5</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cam-clash-sj6-legend-versus-yi-4k-visionary/"><u>Cam Clash SJ6 Legend Versus Yi 4K Visionary</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/diy-solutions-to-the-common-problems-with-realteks-rtl8723be-driver/"><u>DIY Solutions to the Common Problems with Realtek's RTL8723BE Driver</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-domain-user-biometric-control-in-windows-11/"><u>Mastering Domain User Biometric Control in Windows 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/sharp-smudge-free-shooting-with-gopro-for-2024/"><u>Sharp, Smudge-Free Shooting with GoPro for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-3-routes-to-unveil-windows-group-policies/"><u>The 3 Routes to Unveil Windows Group Policies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-list-of-top-rated-safe-platforms-for-free-pc-gaming-downloads/"><u>The Ultimate List of Top-Rated Safe Platforms for FREE PC Gaming Downloads!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Import Photos and Videos in Windows 11 (Deepest Secret)"
-date: 2025-01-13T19:33:01.356Z
-updated: 2025-01-15T23:41:09.594Z
+date: 2025-01-15T22:05:51.008Z
+updated: 2025-01-22T08:11:50.255Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Import Photos and Video from a Phone
@@ -50,10 +50,6 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
@@ -63,10 +59,6 @@ Your phone will have settings regarding file transfers when it is connected to a
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 4: Import
 
@@ -85,12 +77,16 @@ Click the Import button on the Photos app and choose the items that you want to 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -102,10 +98,6 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -114,11 +106,19 @@ Connect the camera to your phone and then follow the above steps to import your 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,15 +145,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-beginning-film-making-download-previews/"><u>[Updated] 2024 Approved Beginning Film Making Download Previews</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-astronomy-photographers-website-selection/"><u>[Updated] Astronomy Photographers' Website Selection</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-precision-in-prose-enhancing-narrative-scripts/"><u>[Updated] In 2024, Precision in Prose Enhancing Narrative Scripts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/calculate-the-absolute-deviations-48-28-22-82-38-12/"><u>Calculate the Absolute Deviations: $4.8, 2.8, 2.2, 8.2, 3.8, 1.2$</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/calling-all-digital-gladiators-enter-the-ferocious-arena-at-world-server-throw-off-championships-2024/"><u>Calling All Digital Gladiators: Enter the Ferocious Arena at World Server Throw-Off Championships 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-lenovo-thinkphone-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Lenovo ThinkPhone Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-gaming-setup-check-out-lgs-27uhd68-monitor/"><u>In 2024, The Ultimate Gaming Setup? Check Out LG’s 27UHD68 Monitor</u></a></li>
-<li><a href="https://games-able.techidaily.com/opera-gx-versus-edge-who-will-rule-as-top-gaming-browser/"><u>Opera GX Versus Edge: Who Will Rule as Top Gaming Browser?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-legal-and-safe-methods-of-downloading-youtube-tunes-for-2024/"><u>Three Legal & Safe Methods of Downloading YouTube Tunes for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unmissable-prime-day-2024-over-35-exceptional-tablet-deals-still-available-zdnets-complete-guide/"><u>Unmissable Prime Day 2024: Over 35 Exceptional Tablet Deals Still Available - ZDNET's Complete Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/fficiently-handling-youtube-short-issues-for-2024/"><u>[New] Efficiently Handling YouTube Short Issues for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-how-to-prepare-your-room-and-vr-ready-pc-for-oculus-rift/"><u>[New] How to Prepare Your Room and VR-Ready PC for Oculus Rift</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-synchronizing-soundscapes-a-guide-to-multi-service-moves-for-2024/"><u>[Updated] Synchronizing Soundscapes A Guide to Multi-Service Moves for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dive-into-vlogging-your-first-set-of-tools/"><u>2024 Approved Dive Into Vlogging Your First Set of Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-easy-peasy-memes-step-by-step-in-kinemaster/"><u>2024 Approved Easy-Peasy Memes Step by Step in KineMaster</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-gimbal-selection-tips-for-aerial-photography/"><u>2024 Approved Essential Gimbal Selection Tips for Aerial Photography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-photozoomelite-ultimate-picture-scaler/"><u>2024 Approved PhotoZoomElite Ultimate Picture Scaler</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-superior-drones-10-mastering-visuals-and-videos/"><u>2024 Approved Superior Drones #10 Mastering Visuals & Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-sierra-comprehensive-icloud-drives/"><u>2024 Approved Unlocking Sierra Comprehensive iCloud Drives</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-vivo-v29-pro-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Vivo V29 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/discover-the-ultimate-list-5-leading-gaming-mobile-devices-featured-on-zdnet/"><u>Discover the Ultimate List: 5 Leading Gaming Mobile Devices - Featured on ZDNet</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-lava-yuva-2-pro-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Lava Yuva 2 Pro Through Google Earth?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-picks-for-microsoft-work-apps-on-ios-the-definitive-zdnet-ranking-zdnet/"><u>Top Picks for Microsoft Work Apps on iOS - The Definitive ZDNet Ranking (ZDNet)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-speedy-pics-viewing-tool/"><u>Ultimate Speedy Pics Viewing Tool</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating the World with a Fisheye Lens for 2024"
-date: 2025-01-10T10:15:11.880Z
-updated: 2025-01-15T22:07:54.617Z
+date: 2025-01-17T08:31:13.999Z
+updated: 2025-01-22T01:29:38.602Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
@@ -42,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -50,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -67,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -80,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What's fisheye lenses
@@ -94,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Conclusion
@@ -102,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -128,19 +128,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-advanced-techniques-sending-subtitles-to-instagram-linkedin-for-2024/"><u>[New] Advanced Techniques Sending Subtitles to Instagram, LinkedIn for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-effortless-podcast-livestream-guide/"><u>[New] Effortless Podcast Livestream Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-reaching-into-shared-snippets-of-life-on-messenger-for-2024/"><u>[New] Reaching Into Shared Snippets of Life on Messenger for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-7-proven-techniques-to-skyrocket-your-instagram-profile/"><u>[Updated] 2024 Approved 7 Proven Techniques to Skyrocket Your Instagram Profile</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-path-to-outstanding-interviewer-expertise/"><u>[Updated] In 2024, The Path to Outstanding Interviewer Expertise</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-comprehensive-srt-handbook-for-enthusiasts/"><u>[Updated] The Comprehensive SRT Handbook for Enthusiasts</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/aomei-backupper-proaomei-cloud/"><u>一人歩き用にAOMEI Backupper ProとAOMEI Cloudの購入方法</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/bk-faces-backlash-twice-over-customer-disputes-the-surprising-drama-at-burger-king/"><u>BK Faces Backlash Twice Over Customer Disputes – The Surprising Drama at Burger King</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-money-making-moves-now-with-over-500-subscribers/"><u>In 2024, Money-Making Moves Now With Over 500 Subscribers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-simplifying-google-meet-on-android-devices/"><u>In 2024, Simplifying Google Meet on Android Devices</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-best-android-animal-games/"><u>In 2024, The Ultimate Guide to Best Android Animal Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/live-links-debate-is-software-superior-to-gear-for-2024/"><u>Live Links Debate Is Software Superior to Gear for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/professionals-guide-to-top-10-fcp-tools/"><u>Professional's Guide to Top 10 FCP Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tap-into-the-secrets-of-successful-video-thumbnails-for-youtube-for-2024/"><u>Tap Into the Secrets of Successful Video Thumbnails for YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-hidden-drain-unearthing-deceptive-likes-costs/"><u>[New] The Hidden Drain Unearthing Deceptive Likes' Costs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-assessing-instagrams-selfie-validation/"><u>[Updated] Assessing Instagram's Selfie Validation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-engaging-audiences-full-rotational-cinematography/"><u>2024 Approved Engaging Audiences Full Rotational Cinematography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-garmin-virb-ultra-30-action-camera-review/"><u>2024 Approved Garmin VIRB Ultra 30 Action Camera Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-insider-strategies-free-access-to-professional-imagery/"><u>2024 Approved Insider Strategies Free Access to Professional Imagery</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-maximizing-audience-reach-prime-dissemination-days/"><u>2024 Approved Maximizing Audience Reach Prime Dissemination Days</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-stunning-evaluation-and-different-paths/"><u>2024 Approved Stunning Evaluation & Different Paths</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-visual-prowess-top-5-camera-techniques-for-the-year-filmographys-review-of-24/"><u>2024 Approved Visual Prowess Top 5 Camera Techniques for the Year - Filmography's Review of '24</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-itel-p55plus-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Itel P55+ Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-making-your-voice-heard-in-the-podcast-realm/"><u>In 2024, Making Your Voice Heard in the Podcast Realm</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-honor-x50-gt-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Honor X50 GT.</u></a></li>
 </ul></div>
 

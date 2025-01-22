@@ -1,7 +1,7 @@
 ---
 title: "Refined Lineup of Conversation Starters for Podcasting"
-date: 2025-01-10T10:09:03.442Z
-updated: 2025-01-15T18:06:52.418Z
+date: 2025-01-17T01:20:12.712Z
+updated: 2025-01-22T11:28:42.946Z
 tags: 
   - screen-recording
   - ai video
@@ -27,15 +27,15 @@ This guide is going to reveal how to come up with the best questions so you can 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. 50 Podcast Interview Questions to Get Unique Answers
 
 The best podcast questions to ask guests differ according to your niche and the kind of guests you interview. Questions depend on whether you're interviewing a celebrity, a businessperson, an expert in his field, an author, a producer, or your friends and family members.
 
 ![podcast questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The best way is to divide your questions into different categories.
 
@@ -44,6 +44,10 @@ The best way is to divide your questions into different categories.
 Icebreaker questions are used to begin an interview or meeting. These are personal questions to learn more about one another quickly. For example, the prompt might be "share your name, role, and what you usually do during the weekend." These questions aim to have fun, create points of connection between guests, and build confidence in speaking in front of the group.
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are some icebreaker questions that you can ask to start an interview.
 
@@ -106,6 +110,10 @@ You can ask questions from the comparison questions given below.
 14. In which weather do you feel comfortable, summer or winter?
 15. What do you prefer to eat, pizza or a burger?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Great Closing Questions
 
 When we move on to this type of question, typically, it's time to end the show. Closing interview questions are questions the hosts might ask at the end of the podcast to wrap things up. The following question can be asked to conclude the podcast on a happy note.
@@ -125,10 +133,6 @@ When we move on to this type of question, typically, it's time to end the show. 
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
 
 Asking better questions on a podcast requires preparation beforehand. Here are some tips for you to come up with better questions:
@@ -140,10 +144,6 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
@@ -151,24 +151,16 @@ You can get the best information from the person you are interviewing if you do 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What happened next?
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -187,6 +179,10 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -198,12 +194,16 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Avoid questions that might offend your guest.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Take Your Content to the Next Level and Gets Shared
 
@@ -241,19 +241,22 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-transform-your-copy-with-strategic-slug-line-usage/"><u>[New] 2024 Approved Transform Your Copy with Strategic Slug Line Usage</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-drone-gear-10-crucial-add-ons-and-replacements/"><u>[New] Drone Gear 10 Crucial Add-Ons and Replacements</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ailing-the-desktopmobile-youtube-speed-control/"><u>[New] Nailing the Desktop/Mobile YouTube Speed Control</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-simplifying-the-process-of-creating-time-lapses-with-gopro-for-2024/"><u>[New] Simplifying the Process of Creating Time Lapses with GoPro for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-10-open-source-video-player-for-linux-windows-and-mac-for-2024/"><u>[Updated] 10 Open Source Video Player for Linux, Windows and Mac for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-art-of-vivid-visuals-on-your-computer-with-windows-hdr-for-2024/"><u>[Updated] The Art of Vivid Visuals on Your Computer with Windows HDR for 2024</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/1-quick-guide-how-to-save-your-favorite-blip-tv-episodes-on-mac-and-pc/"><u>1. Quick Guide: How to Save Your Favorite Blip TV Episodes on Mac & PC</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-f5-5g-phone-without-password-by-drfone-android/"><u>How To Unlock Poco F5 5G Phone Without Password?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-8-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot iPhone 8 Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-gopro-showdown-full-review-and-ratings/"><u>In 2024, GoPro Showdown Full Review and Ratings</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solutions-when-your-iphone-calendar-is-not-showing-events/"><u>Solutions When Your iPhone Calendar Is Not Showing Events</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/eginners-guide-to-camera-lenses-in-filmmaking-and-vlogging-for-2024/"><u>The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-value-metas-latest-offer-on-the-512gb-quest-3-top-virtual-reality-bargain-at-moment/"><u>Unbeatable Value: Meta's Latest Offer on the 512GB Quest 3 - Top Virtual Reality Bargain at Moment</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winx-dvd-digiarty-software-inc/"><u>WinX DVDオフィシャルサポート サイト - DigiArty Software, Inc.による公式：[正当なもの]</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-tips-and-tricks-for-professional-audio-in-audacity-for-2024/"><u>[New] Tips and Tricks for Professional Audio in Audacity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-customize-and-captivate-thumbnail-magic-for-shorts/"><u>[Updated] In 2024, Customize & Captivate Thumbnail Magic for Shorts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-productivity-boosters-while-binge-listening-to-podcasts-for-2024/"><u>[Updated] Productivity Boosters While Binge-Listening to Podcasts for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-in-depth-look-at-best-videographer-selection/"><u>2024 Approved In-Depth Look at Best Videographer Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-masterful-way-to-add-a-hyperlink-to-enhance-your-tiktok-profile/"><u>2024 Approved Masterful Way to Add a Hyperlink to Enhance Your TikTok Profile</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-olyx-zones-the-creme-de-la-snowspeedcross/"><u>2024 Approved OlyX-Zones The Crème De La Snowspeedcross</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-pushing-the-envelope-in-display-technology-detailed-examination-of-benq-bl2711u/"><u>2024 Approved Pushing the Envelope in Display Technology Detailed Examination of BenQ BL2711U</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-blueprint-of-successful-video-endorsements/"><u>2024 Approved The Blueprint of Successful Video Endorsements</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-30-webcams-elevating-audio-quality/"><u>2024 Approved Top 30 Webcams Elevating Audio Quality</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-topeight-innovative-4k-blu-ray-player-options/"><u>2024 Approved TopEight Innovative 4K Blu-Ray Player Options</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-win11s-lightning-quick-visualizer/"><u>2024 Approved Win11's Lightning Quick Visualizer</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-solution-to-repair-corrupted-or-missing-msodll-file/"><u>Comprehensive Solution to Repair Corrupted or Missing MSO.DLL File</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/decoding-love-for-filmora-the-editors-prime-traits/"><u>Decoding Love for Filmora The Editor’s Prime Traits</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Pro Max 3 Ways To Unlock</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-ultimate-performance-with-best-video-controller-add-ons/"><u>In 2024, Unlock Ultimate Performance with Best Video Controller Add-Ons</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-y100i-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo Y100i? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722890230190-savor-the-best-in-affordable-high-end-gadgets-top-recommendations-to-try-now/"><u>Savor the Best in Affordable High-End Gadgets – Top Recommendations to Try Now!</u></a></li>
 </ul></div>
 

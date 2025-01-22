@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevate Your Online Presence  Utilizing Color Key Techniques\""
-date: 2024-08-22T14:29:47.018Z
-updated: 2024-08-23T14:29:47.018Z
+date: 2025-01-18T09:26:54.417Z
+updated: 2025-01-21T19:11:02.257Z
 tags: 
   - screen-recording
   - ai video
@@ -46,9 +46,17 @@ If you want to set up a large broadcasting studio the camera you’ll need shoul
 
 ![sony hdc 5500 studio camera](https://images.wondershare.com/filmora/Mac-articles/sony-hdc-5500-studio-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For normal web or twitch streaming a high-quality webcam should be used. It should have good face tracking and great picture quality. **A 1080p resolution** with the capability of 30-60 frames is a bonus. There are some great cameras on the market that you can even land at **under $100**.
 
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Green Screen
 
@@ -60,11 +68,19 @@ For gamers and other streamers like beauty vloggers, twitch anchors, and YouTube
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Lights
 
@@ -75,6 +91,10 @@ If it is a straight background two high-powered lights should be enough. However
 For small setups, the most commonly used set-up is the three-point set-up. It is a formation of a triangle with a key light, fill light, and a backlight to cover the subject or the talent. For a green screen, one light on each side would do the job of providing enough light to keep the screen lit.
 
  ![lighting guide for a green screen](https://images.wondershare.com/filmora/Mac-articles/lighting-guide-for-a-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The two things to remember about lighting are that there is should be no shadow in the background and the green screen should be lit across evenly. It may take some time for you to learn the correct ways but practice and observation will make it perfect.
 
@@ -123,17 +143,26 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exploring-8-youtube-fitness-hacks-that-energize-audiences/"><u>[New] 2024 Approved Exploring 8 YouTube Fitness Hacks That Energize Audiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-intro-to-photo-editing-mastering-lunapic-basics/"><u>[New] 2024 Approved Intro to Photo Editing Mastering LunaPic Basics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-jest-engineer-online/"><u>[New] 2024 Approved Jest Engineer Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-ultimate-roadmap-to-proficiency-in-lut-construction/"><u>[New] 2024 Approved The Ultimate Roadmap to Proficiency in LUT Construction</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-fine-tuning-the-small-scenes-of-minecraft-for-2024/"><u>[New] Fine-Tuning the Small Scenes of Minecraft for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-edit-your-way-to-success-iosandroid-apps-for-youtube-shorts/"><u>[New] In 2024, Edit Your Way to Success IOS/Android Apps for YouTube Shorts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prime-video-recorders-head-on-screen-viewing/"><u>[New] In 2024, Prime Video Recorders Head-On Screen Viewing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-step-further-elite-video-editing-hacks-for-tiktok-for-2024/"><u>[Updated] A Step Further Elite Video Editing Hacks for TikTok for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-creating-an-athletic-channel-on-apple-hardware/"><u>[Updated] In 2024, Creating an Athletic Channel on Apple Hardware</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-interactive-av-media-collective/"><u>[Updated] In 2024, Interactive AV Media Collective</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-strategies-for-purchasing-clear-visual-content/"><u>[Updated] In 2024, Strategies for Purchasing Clear Visual Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-comprehensive-handbook-for-recording-calls/"><u>[Updated] In 2024, The Comprehensive Handbook for Recording Calls</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-laugh-loom-robotic-deadlines/"><u>[Updated] Laugh Loom Robotic Deadlines</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-mac-users-guide-to-utilizing-preview-to-its-maximum-for-2024/"><u>[Updated] The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/sharp-smudge-free-shooting-with-gopro-for-2024/"><u>Sharp, Smudge-Free Shooting with GoPro for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-puzzle-how-microsoft-security-essentials-mssecesexe-affect-your-computers-disk-space/"><u>Solving the Puzzle: How Microsoft Security Essentials (msseces.exe) Affect Your Computer's Disk Space</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/top-desk-features-add-your-favorite-apps-to-the-taskbar/"><u>Top Desk Features: Add Your Favorite Apps to the Taskbar</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-wow-server-lags-essential-steps-to-smooth-gameplay/"><u>Troubleshooting WoW Server Lags: Essential Steps to Smooth Gameplay</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->

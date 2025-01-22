@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  IPhone Photography Boosted by iOS 11 Features\""
-date: 2024-08-27T07:09:01.301Z
-updated: 2024-08-28T07:09:01.301Z
+date: 2025-01-14T22:59:17.774Z
+updated: 2025-01-21T18:24:05.471Z
 tags: 
   - screen-recording
   - ai video
@@ -74,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/7dd47039b908f15adfac56204ff22ad7becb8a002
 
 ![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: 9to5Mac
 
  QR codes are actually quite convenient because they save you the trouble of typing the URL by yourself. The iOS 11 is the first iPhone OS with the ability to read QR codes. All you need to do is open your camera app and point it in the direction of the QR code you want to view, and your iPhone X will do the rest.
@@ -94,13 +98,25 @@ thumbnail: https://thmb.techidaily.com/7dd47039b908f15adfac56204ff22ad7becb8a002
 
 ![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Keeping the moving objects in focus is a major concern regardless of the camera you are using. We were excited about the [dual camera feature in iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/), now the Dual Optical Image Stabilization feature in iOS 11 reduces motion blur and it also decreases the impact the camera shakes have on your photos. iPhone 8's Optical Image Stabilization has been improved on iPhone X and it works alongside the image sensor to ensure that all pictures taken with this device are razor sharp.
 
 #### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8
 
 ![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Post Production Software for iPhone photography
 
@@ -109,6 +125,10 @@ thumbnail: https://thmb.techidaily.com/7dd47039b908f15adfac56204ff22ad7becb8a002
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -133,12 +153,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-essential-tips-for-configuring-and-measuring-facebooks-in-stream-ads/"><u>[New] 2024 Approved Essential Tips for Configuring and Measuring Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-art-of-video-edits-easy-techniques-on-your-windows-pc/"><u>[New] 2024 Approved The Art of Video Edits Easy Techniques on Your Windows PC</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-encouraging-student-participation/"><u>[New] Encouraging Student Participation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-exploring-types-and-methods-of-touchless-technology-for-2024/"><u>[New] Exploring Types and Methods of Touchless Technology for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enhancing-visual-clarity-iphone-zoom-techniques/"><u>[New] In 2024, Enhancing Visual Clarity IPhone Zoom Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-master-recording-techniques-for-your-logitech-webcam-installation/"><u>[New] In 2024, Master Recording Techniques for Your Logitech Webcam Installation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-quantum-hdrs-role-in-modern-photography-trends/"><u>[New] Quantum HDR's Role in Modern Photography Trends</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-understanding-instagrams-video-restriction/"><u>[New] Understanding Instagram's Video Restriction</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unlock-the-potential-of-your-films-with-final-cut-pro/"><u>[New] Unlock the Potential of Your Films with Final Cut Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-revamp-your-chat-audio-experience-with-a-personalized-whatsapp-ringtone/"><u>[Updated] 2024 Approved Revamp Your Chat Audio Experience with a Personalized WhatsApp Ringtone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-make-and-download-your-own-instagram-sound/"><u>[Updated] How to Make & Download Your Own Instagram Sound</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-strategies-for-perfect-screenshots-at-your-fingertips-for-2024/"><u>[Updated] Strategies for Perfect Screenshots at Your Fingertips for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beats-in-the-balance-adding-music-to-whatsapp/"><u>Beats in the Balance Adding Music to WhatsApp</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/creative-stop-motion-cinema-top-15-selections/"><u>Creative Stop-Motion Cinema - Top 15 Selections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-boutonniere-bookmarks-casino-critique/"><u>In 2024, BOUTONNIERE BOOKMARKS Casino Critique</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-elevate-vfx-on-tiktok-videos/"><u>In 2024, Elevate VFX on TikTok Videos</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/rapid-and-simple-setup-for-amd-ryzen-5-2400g-drivers/"><u>Rapid & Simple Setup for AMD Ryzen 5 2400G Drivers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-signing-up-for-chatgpt-telegram-and-whatsapp-without-needing-your-mobile-number/"><u>Step-by-Step Guide: Signing Up for ChatGPT, Telegram & WhatsApp without Needing Your Mobile Number</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-art-of-crafting-winning-giveaway-posts-on-facebook-for-2024/"><u>The Art of Crafting Winning Giveaway Posts on Facebook for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
