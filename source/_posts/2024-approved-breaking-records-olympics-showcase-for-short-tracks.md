@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Breaking Records  Olympics Showcase for Short Tracks\""
-date: 2024-08-27T07:11:41.216Z
-updated: 2024-08-28T07:11:41.216Z
+date: 2025-01-27T02:37:45.592Z
+updated: 2025-01-29T21:35:43.876Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,15 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -40,9 +48,17 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
@@ -61,8 +77,9 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -77,9 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### A Professional Video Editor
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -98,9 +112,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -111,9 +122,6 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -135,8 +143,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-monetary-outcomes-of-podcast-engagement/"><u>[New] 2024 Approved The Monetary Outcomes of Podcast Engagement</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-implementing-seamless-audio-diminishment/"><u>[New] Implementing Seamless Audio Diminishment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-optimal-conclusion-to-vr-journeys-for-2024/"><u>[New] Optimal Conclusion to VR Journeys for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-getting-your-vlogging-started-key-items-and-software/"><u>[Updated] 2024 Approved Getting Your Vlogging Started Key Items & Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-inspiring-imagination-unveiling-top-6-nft-makers-for-artists/"><u>[Updated] 2024 Approved Inspiring Imagination Unveiling Top 6 NFT Makers for Artists</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-access-and-organize-fb-pages-easily-with-top-8-tools-for-2024/"><u>[Updated] Access and Organize FB Pages Easily with Top 8 Tools for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-navigate-10-top-free-web-explorers-for-remote-collaboration/"><u>[Updated] In 2024, Navigate 10 Top Free Web Explorers for Remote Collaboration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-panoramic-lenses-vs-depth-filled-images/"><u>[Updated] In 2024, Panoramic Lenses vs Depth-Filled Images</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlock-the-potential-of-your-iphone-with-top-podcast-tips/"><u>[Updated] Unlock the Potential of Your iPhone with Top Podcast Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-instantaneous-video-downloader-selection-guide/"><u>2024 Approved Instantaneous Video Downloader Selection Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/detailed-studio-assessment-xvideo-studio-journey-for-2024/"><u>Detailed Studio Assessment XVideo Studio Journey for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/discover-the-hidden-gems-ios-17s-top-ten-upgrades-revealed/"><u>Discover the Hidden Gems: IOS 17'S Top Ten Upgrades Revealed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-note-30-vip-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Note 30 VIP</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-avoid-common-pitfalls-with-proper-use-of-youtube-tags/"><u>In 2024, Avoid Common Pitfalls with Proper Use of YouTube Tags</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-bridging-devices-move-images-and-videos-from-pc/"><u>In 2024, Bridging Devices Move Images & Videos From PC</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/smartphone-tools-for-perfecting-your-pronunciation-for-2024/"><u>Smartphone Tools for Perfecting Your Pronunciation for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-xiaomi-13t-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Xiaomi 13T Pro Android SIM Unlock APK</u></a></li>
+</ul></div>
 

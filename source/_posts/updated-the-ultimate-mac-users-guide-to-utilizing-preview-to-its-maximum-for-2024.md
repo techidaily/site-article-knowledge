@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum for 2024"
-date: 2025-01-14T22:44:58.771Z
-updated: 2025-01-21T23:19:22.397Z
+date: 2025-01-25T22:52:45.106Z
+updated: 2025-01-29T17:01:39.973Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -55,6 +59,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,10 +76,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -88,10 +92,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -122,7 +122,7 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -142,7 +142,7 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -208,7 +208,7 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -236,19 +236,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-videovisionary-pro8/"><u>[New] 2024 Approved VideoVisionary Pro8</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-selection-of-top-free-srt-translators-key-insights-revealed/"><u>[New] In 2024, Mastering Selection of Top Free SRT Translators – Key Insights Revealed</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ultimate-no-fuss-techniques-for-valorant-sessions/"><u>2024 Approved Ultimate No-Fuss Techniques for Valorant Sessions</u></a></li>
-<li><a href="https://some-tips.techidaily.com/discover-the-leading-macos-applications-for-2e23-expert-picks-from-zdnet/"><u>Discover the Leading macOS Applications for 2E23 - Expert Picks From ZDNet</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/explore-top-rated-minneapolis-seo-experts-unleash-your-brands-potential-with-seo-powersuite/"><u>Explore Top-Rated Minneapolis SEO Experts - Unleash Your Brand's Potential with SEO PowerSuite</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-illuminating-brilliance-photoshops-best-hdr-methods/"><u>In 2024, Illuminating Brilliance Photoshop's Best HDR Methods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-premiere-pros-best-practices-free-template-samples/"><u>In 2024, Premiere Pro's Best Practices FREE Template Samples</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-vivo-v29-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Vivo V29 Pro FRP Bypass</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/mastering-macs-preview-app-an-in-depth-tutorial-for-users-for-2024/"><u>Mastering Mac's Preview App An In-Depth Tutorial for Users for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722903036548-navigating-your-way-through-buying-a-dash-cam-consider-these-9-key-points-first/"><u>Navigating Your Way Through Buying a Dash Cam? Consider These 9 Key Points First!</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/phones-to-cameras-diy-setup-guide-for-mobile-video-recording-for-2024/"><u>Phones to Cameras DIY Setup Guide for Mobile Video Recording for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/premier-10-layouts-ae-text-edition/"><u>Premier 10 Layouts AE Text Edition</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/seamless-soundscape-design-with-expert-crossfading-techniques-audacity-for-2024/"><u>Seamless Soundscape Design with Expert Crossfading Techniques (Audacity) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-creator-studio-vs-youtube-studio-beta-which-one-is-better-in-2024/"><u>YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-income-patterns-in-the-podcast-industry/"><u>[New] 2024 Approved Income Patterns in the Podcast Industry</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-expert-choices-best-mics-enhancing-4k-video-quality/"><u>[New] In 2024, Expert Choices Best Mics Enhancing 4K Video Quality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-craft-a-compelling-narrative-with-your-igtv-video-titles-and-texts-for-2024/"><u>[Updated] Craft a Compelling Narrative with Your IGTV Video Titles & Texts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-essential-guide-for-newcomers-on-av1/"><u>[Updated] In 2024, The Essential Guide for Newcomers on AV1</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-magix-paintbox-assessment-the-reveal-for-2024/"><u>[Updated] MAGIX Paintbox Assessment The Reveal for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-spellbinding-tones-validity-of-the-vocal-transformation-app-questioned-check-out-more/"><u>[Updated] Spellbinding Tones Validity of the Vocal Transformation App Questioned - Check Out More</u></a></li>
+<li><a href="https://fox-that.techidaily.com/correcting-the-error-of-iphones-being-ignored-by-itunesfinder-get-expert-guidance-now/"><u>Correcting the Error of iPhones Being Ignored by iTunes/Finder – Get Expert Guidance Now</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-dive-deep-into-durability-gopro-hero5-vs-hero5-session/"><u>In 2024, Dive Deep Into Durability GoPro Hero5 vs Hero5 Session</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-making-classroom-content-video-editing-insights/"><u>In 2024, Making Classroom Content Video Editing Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-handset-hack-for-youtube-filmmakers/"><u>In 2024, The Ultimate Handset Hack for YouTube Filmmakers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/interactive-lessons-expert-video-editing-for-classroom-for-2024/"><u>Interactive Lessons Expert Video Editing for Classroom for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-essential-fcpx-add-ons-top-10-free-and-paid-plugins-you-need/"><u>Updated Essential FCPX Add-Ons Top 10 Free and Paid Plugins You Need</u></a></li>
 </ul></div>
 

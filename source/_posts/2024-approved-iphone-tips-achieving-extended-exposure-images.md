@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  IPhone Tips  Achieving Extended Exposure Images\""
-date: 2024-08-31T11:33:35.351Z
-updated: 2024-09-01T11:33:35.351Z
+date: 2025-01-24T01:01:40.443Z
+updated: 2025-01-30T01:12:57.639Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/f5b8e36c4ebd6a9ca109693d88c7c440e68928a27
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: imore
 
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
@@ -53,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/f5b8e36c4ebd6a9ca109693d88c7c440e68928a27
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Not a user of iOS 11?
 
  If you don't have iOS 11 yet (or can't get it for your model), there is a way around this. Some developers have produced apps which mimic the extended shutter speed of Live Photos. This is achieved by combining multiple exposures of the same photograph, and then stitching them together with an overlain effect to create a simulated long exposure image.
@@ -64,6 +64,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -84,15 +88,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image resource: WallDevil
 
 * **Motion blur:** To give the sense of something really moving fast, a motion blur can be a captivating effect. From vehicles on the city street to a galloping horse, allowing the moving object to blur whilst everything else around it stays in focus can add a dose of drama to your shots.
@@ -100,8 +105,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
@@ -109,15 +115,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -126,9 +130,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -152,8 +153,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-logic-pros-approach-to-softening-audio-tracks-gradually/"><u>[New] 2024 Approved Logic Pro's Approach to Softening Audio Tracks Gradually</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-breakthrough-strategies-for-effective-fb-health-promotion-for-2024/"><u>[New] Breakthrough Strategies for Effective FB Health Promotion for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-inside-the-world-of-funimate-gamers/"><u>[New] In 2024, Inside the World of Funimate Gamers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-seamless-sharing-strategies-insta-tik-tok-integration/"><u>[New] Seamless Sharing Strategies Insta-Tik Tok Integration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-mirthful-mastery-no-pay-all-smiles/"><u>[Updated] 2024 Approved Mirthful Mastery No Pay, All Smiles</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-comprehensive-review-of-powerdirector-pro-suite/"><u>2024 Approved Comprehensive Review of PowerDirector Pro Suite</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effective-fixes-overcoming-hurdles-in-family-sharing-of-subscriptions/"><u>Effective Fixes: Overcoming Hurdles in Family Sharing of Subscriptions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-cod-warzone-glitch-expert-advice-on-overcoming-dev-error-6328/"><u>Fixing Cod Warzone Glitch: Expert Advice on Overcoming Dev Error #6328</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-samsung-galaxy-a05s-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Samsung Galaxy A05s To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/how-to-enhance-your-graphics-performance-can-you-add-more-ram-to-a-graphics-card-expert-advice-from-yl-software/"><u>How to Enhance Your Graphics Performance: Can You Add More RAM to a Graphics Card? – Expert Advice From YL Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-virtual-reality-cinema-experiences/"><u>In 2024, Essential Virtual Reality Cinema Experiences</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-premiere-elements-not-for-you-try-these-10-exceptional-alternatives-instead-for-2024/"><u>New Premiere Elements Not for You? Try These 10 Exceptional Alternatives Instead for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transformative-file-conversion-your-quick-srt-to-text-txt-guide/"><u>Transformative File Conversion Your Quick SRT to Text (TXT) Guide</u></a></li>
+</ul></div>
 

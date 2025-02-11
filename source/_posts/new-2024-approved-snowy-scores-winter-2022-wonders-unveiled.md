@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Snowy Scores  Winter 2022 Wonders Unveiled\""
-date: 2025-01-15T19:27:07.229Z
-updated: 2025-01-21T21:05:03.093Z
+date: 2025-01-26T21:58:55.724Z
+updated: 2025-01-29T19:24:05.043Z
 tags: 
   - screen-recording
   - ai video
@@ -29,23 +29,31 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Nathan Chen Breaks World Record
 
 Nathan Chen of the United States set a world-record score in men's figure skating short program held at Beijing Olympics. Chen scored 113.97 at Capital Indoor Stadium in Beijing. Four years after his dreams were shattered, Chen has not only come back stronger in his performance but managed to break the world record.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
@@ -54,10 +62,6 @@ Chen won the gold medal in men's figure skating with a combined score of 332.60 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -68,13 +72,13 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
@@ -101,20 +105,20 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
@@ -122,10 +126,6 @@ He showed the sign directly to the cameras after he finished his run at Beijing 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
@@ -156,24 +156,22 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-bypassing-costs-your-step-by-step-to-fcp/"><u>[New] 2024 Approved Bypassing Costs Your Step-by-Step to FCP</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-enhancing-your-multimedia-interaction-with-vlc-mac-for-2024/"><u>[New] Enhancing Your Multimedia Interaction with VLC (Mac) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-5-leading-apps-to-create-professional-youtube-intros/"><u>[Updated] 2024 Approved 5 Leading Apps to Create Professional YouTube Intros</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-accessing-trendsetting-background-images-for-tiktok/"><u>[Updated] Accessing Trendsetting Background Images for TikTok</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-decoding-excellence-a-hdr-camera-buyers-almanac-for-2024/"><u>[Updated] Decoding Excellence A HDR Camera Buyer's Almanac for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-capturing-movie-scenes-as-single-image-snapshots-windows-10/"><u>[Updated] In 2024, Capturing Movie Scenes as Single Image Snapshots (Windows 10)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unraveling-youtube-subtitles-srt-a-triad-of-steps/"><u>[Updated] Unraveling YouTube Subtitles (SRT) A Triad of Steps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-unveiling-8-leading-cost-effective-open-source-video-solutions/"><u>[Updated] Unveiling 8 Leading Cost-Effective Open Source Video Solutions</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-windowsmac-tutorials-for-skype-audio-and-video-archive/"><u>[Updated] Windows/Mac Tutorials for Skype Audio & Video Archive</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-digital-gameplay-logging-for-console-games-on-computer/"><u>2024 Approved Digital Gameplay Logging for Console Games on Computer</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/as-sete-melhores-tecnicas-para-comprimir-filmes-mov-de-graca-em-portugues/"><u>As Sete Melhores Técnicas Para Comprimir Filmes MOV De Graça Em Português</u></a></li>
-<li><a href="https://fox-info.techidaily.com/best-entry-level-camera-reviews-2024-for-beginners/"><u>Best Entry-Level Camera Reviews 2024 | for Beginners</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-honor-play-7t-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Honor Play 7T FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/grasping-video-clarity-the-first-lessons-on-hd-for-2024/"><u>Grasping Video Clarity The First Lessons on HD for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-a-compreayer-study-of-magix-image-suite/"><u>In 2024, A Compreayer Study of MAGIX Image Suite</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-ace-2-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus Ace 2 Pro to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-sensory-cinema-the-vr-experience/"><u>In 2024, Sensory Cinema The VR Experience</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/lost-in-icloud-discover-why-your-photos-wont-restore-and-solutions-for-successful-retrieval/"><u>Lost in iCloud? Discover Why Your Photos Won’t Restore & Solutions for Successful Retrieval</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/reinstating-focus-in-photos-a-comprehensive-guide-to-top-10-online-enhancers/"><u>Reinstating Focus in Photos A Comprehensive Guide to Top 10 Online Enhancers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags-for-2024/"><u>[New] Elevate Reach Optimal Strategies for Crafting YouTube Titles & Tags for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-exploring-digital-marketing-frontiers-the-metaverse-for-2024/"><u>[New] Exploring Digital Marketing Frontiers The Metaverse for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-breaking-barriers-in-drone-longevity-top-10/"><u>[New] In 2024, Breaking Barriers in Drone Longevity (Top 10)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-audio-change-apps-for-virtual-performers/"><u>[New] In 2024, Leading Audio Change Apps for Virtual Performers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-unlock-advanced-techniques-to-record-and-edit-videos-on-adobe-connect/"><u>[New] In 2024, Unlock Advanced Techniques to Record & Edit Videos on Adobe Connect</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-utilizing-b-footage-an-essential-filmmaking-skill/"><u>[New] Utilizing B-Footage An Essential Filmmaking Skill</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-aesthetic-assembly-android-and-ios-video-sets-for-insta/"><u>[Updated] In 2024, Aesthetic Assembly Android & iOS Video Sets for Insta</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-airborne-warriors-meet-dji-mavic-2-and-hero5-black/"><u>[Updated] In 2024, Airborne Warriors Meet DJi Mavic 2 & HERO5 Black</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-instilling-illusions-blur-wonders-in-adobes-visual-staging-tools-for-2024/"><u>[Updated] Instilling Illusions Blur Wonders in Adobe's Visual Staging Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-steady-shot-enhancer-for-traveling-filmmakers/"><u>[Updated] Steady Shot Enhancer for Traveling Filmmakers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/beyond-standard-recording-a-comprehensive-review-of-the-highly-enjoyable-ddpai-mini3-camera/"><u>Beyond Standard Recording: A Comprehensive Review of The Highly Enjoyable Ddpai Mini3 Camera</u></a></li>
+<li><a href="https://games-able.techidaily.com/core-5-benefits-embracing-nostalgic-gaming-units/"><u>Core 5 Benefits: Embracing Nostalgic Gaming Units</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-successful-youtube-sponsorship-deals/"><u>In 2024, Crafting Successful YouTube Sponsorship Deals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-next-level-3d-watching-ultimate-guide-to-blu-ray-players/"><u>In 2024, Next-Level 3D Watching Ultimate Guide to Blu-Ray Players</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/laughter-lab-steps-to-simple-sharp-memes-for-2024/"><u>Laughter Lab Steps to Simple, Sharp Memes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-video-converters-for-tweeting-videos-for-2024/"><u>Premier Video Converters for Tweeting Videos for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/simple-guide-how-to-quickly-install-and-update-microsoft-drivers-on-windows-10-8-and-7/"><u>Simple Guide: How to Quickly Install and Update Microsoft Drivers on Windows 10, 8, and 7</u></a></li>
 </ul></div>
 

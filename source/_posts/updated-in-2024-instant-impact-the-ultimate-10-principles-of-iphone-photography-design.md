@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Instant Impact  The Ultimate 10 Principles of iPhone Photography Design\""
-date: 2025-01-20T21:42:56.512Z
-updated: 2025-01-21T20:30:17.602Z
+date: 2025-01-26T23:12:51.799Z
+updated: 2025-01-29T18:15:31.571Z
 tags: 
   - screen-recording
   - ai video
@@ -33,15 +33,19 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Rule of Thirds
 
  The Rule of Thirds consists of a set of guidelines to assist a photographer correctly position the subject in a particular scene. It is meant to draw the attention of the viewer directly towards the subject. According to this rule, the picture is divided into nine equal grids that break the entire image with two vertical and two horizontal lines into vertical and horizontal thirds. As per the Rule of Thirds, the subject should be placed at the intersecting points of the grids.
 
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Leading Lines
 
@@ -55,19 +59,15 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
 
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Diagonals
 
@@ -76,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shape
@@ -86,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Leave Empty Space
@@ -102,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fill Your Frame
@@ -111,10 +111,6 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Break the Rules
 
  Lastly, we would say that forget and break all the rules. Make use of the above mentioned rules in photography, but don’t let your heart stick to it. Explore, experiment and let your imaginations fly high to capture whatever you want and however you can that fills your soul. Photography is a passion and you must enjoy it.
@@ -122,7 +118,7 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -132,6 +128,10 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -158,17 +158,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sonic-update-for-whatsapp-statues/"><u>[New] 2024 Approved Sonic Update for WhatsApp Statues</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-essential-procedures-instilling-stopwatch-capabilities-in-broadcast-encoders/"><u>[New] In 2024, Essential Procedures Instilling Stopwatch Capabilities in Broadcast Encoders</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-clicks-to-cash-how-jake-paul-leveraged-youtube/"><u>[Updated] 2024 Approved From Clicks to Cash How Jake Paul Leveraged YouTube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-best-xsplit-alternatives-for-streaming/"><u>[Updated] Best Xsplit Alternatives for Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-photographic-precision-optimal-websites-and-tools-for-frame-upgrades/"><u>[Updated] Photographic Precision Optimal Websites and Tools for Frame Upgrades</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-7-camcorders-for-extreme-weather-and-splashes-review/"><u>[Updated] Top 7 Camcorders for Extreme Weather and Splashes Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-quantum-hdr-principles/"><u>2024 Approved Mastering Quantum HDR Principles</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-starting-with-hauls-a-step-by-step-editing-manual/"><u>2024 Approved Starting with Hauls A Step-by-Step Editing Manual</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/mical-audio-devices-for-vloggers-on-a-budget/"><u>Economical Audio Devices for Vloggers on a Budget</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-tecno-spark-go-2023-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Tecno Spark Go (2023) Phone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-fcp-transition-guide-3-simple-yet-effective-techniques/"><u>Updated In 2024, FCP Transition Guide 3 Simple Yet Effective Techniques</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/zdnet-explores-dells-cutting-edge-gaming-laptop-ultraportability-meets-workplace-efficiency-in-their-latest-offering/"><u>ZDNet Explores Dell's Cutting-Edge Gaming Laptop: Ultraportability Meets Workplace Efficiency in Their Latest Offering</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-ultimate-5-choice-of-online-meeting-recorder-gadgets/"><u>[New] 2024 Approved Ultimate 5 Choice of Online Meeting Recorder Gadgets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-auditory-data-extraction-and-analysis/"><u>[New] Auditory Data Extraction & Analysis</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-discovering-the-syma-x5c-the-premier-drone-for-rookies/"><u>[New] Discovering the Syma X5C The Premier Drone for Rookies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-elite-virtual-storage-service-ranking-for-2024/"><u>[New] Elite Virtual Storage Service Ranking for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-tips-for-professional-gopro-videography-for-2024/"><u>[New] Essential Tips for Professional Gopro Videography for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-chromebook-zoom-techniques-unveiled/"><u>[New] Expert Chromebook Zoom Techniques Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leading-vr-grips-top-8-essential-handsets/"><u>[New] Leading VR Grips Top 8 Essential Handsets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-titles-that-shine-how-to-innovate/"><u>[Updated] 2024 Approved Channel Titles That Shine How to Innovate</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-social-streaming-downloading-videos-and-turning-them-to-audio-for-2024/"><u>[Updated] Social Streaming Downloading Videos & Turning Them to Audio for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/easy-steps-to-master-volume-control-transitions-for-2024/"><u>Easy Steps to Master Volume Control Transitions for 2024</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/elevate-graphics-processing-power-with-yl-software-strategies/"><u>Elevate Graphics Processing Power with YL Software Strategies</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722971728729-hassle-free-downloads-and-updates-for-amds-smbus-driver-do-it-today/"><u>Hassle-Free Downloads & Updates for AMD's Smbus Driver: Do It Today</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-kinemaster-proficiency-unleashed-strategies-features-and-10-online-rivals/"><u>In 2024, KineMaster Proficiency Unleashed Strategies, Features & 10 Online Rivals</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leveraging-video-technology-in-teaching-practices/"><u>Leveraging Video Technology in Teaching Practices</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/limited-time-offer-secure-your-4tb-samsung-t5-ssd-at-half-price-from-amazon-exclusive-deal-revealed/"><u>Limited-Time Offer: Secure Your 4TB Samsung T5 SSD at Half Price From Amazon | Exclusive Deal Revealed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/organic-scenes-essential-free-templates-to-elevate-filmmaking-art-for-2024/"><u>Organic Scenes Essential, Free Templates to Elevate Filmmaking Art for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-art-of-magnification-in-roblox-worlds-for-2024/"><u>The Art of Magnification in Roblox Worlds for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-video-editor-comparing-inshots-features/"><u>Top Video Editor Comparing InShot's Features</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Lecture Transcription at Zero Expense"
-date: 2025-01-18T02:01:57.805Z
-updated: 2025-01-21T17:56:32.497Z
+date: 2025-01-23T17:29:09.516Z
+updated: 2025-01-29T19:30:53.680Z
 tags: 
   - screen-recording
   - ai video
@@ -25,10 +25,6 @@ It's an obvious fact that **speech recognition** has been available for decades.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Speech Recognition?
 
 Computers and smartphones are catching up with human intelligence. Today, you can command your computer, smartphone, or smart speaker. Google Assistant, Microsoft's Cortana, and Amazon Alexa are good examples of how far speech recognition has come. Just give a command, and the voice assistant will be at your service.
@@ -44,6 +40,10 @@ We understand that professional speech-to-text services can cost a few hundreds 
 1. **Google speech recognition**
 
 ![google docs speech recognition](https://images.wondershare.com/filmora/article-images/2022/08/speech-recognition-software-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Founded in September 1998, Google has come a long way to be one of the biggest tech companies. The company features multiple transcription services, including [Google Translate](https://translate.google.com/?sl=ar&tl=en&op=translate&hl=en), which translates audio, documents, and texts between various languages. It supports 133 languages and is free to use on your mobile or PC browser. Just click the microphone icon on Google Translate and begin translating words.
 
@@ -72,20 +72,20 @@ Wondershare Filmora 11 is a powerful video editor for macOS and Windows systems.
 ![filmora speech recognition create project](https://images.wondershare.com/filmora/article-images/2022/08/speech-recognition-software-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To generate subtitles with Filmora 11, run the program on your desktop and create a New Project. After that, click the Import button to browse and load a video or audio from your local storage. Of course, you can drag and drop the media file to save time. Either way, move the uploaded file to the storyboard.
 
 ![filmora speech recognition set language](https://images.wondershare.com/filmora/article-images/2022/08/speech-recognition-software-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Next up, right-click the video and choose Detach Audio. In other words, you'll be separating audio from the video clip. After that, select the audio track on the timeline and click the Speech-to-Text icon to choose the transcription language. You can transcribe the audio in English, French, German, Italian, and other languages.
 
 ![filmora speech recognition edit texts](https://images.wondershare.com/filmora/article-images/2022/08/speech-recognition-software-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now tap "Ok" to encode audio to subtitle texts. If the process is successful, double-tap the text track on the timeline to view and edit the subtitle tracks. You can change the text, layout, size, color, and more. Lastly, export the texts to an SRT file and use it on any video. It's that quick and easy!
 
@@ -102,7 +102,7 @@ AWS Transcribe also includes a few extras that you might find helpful. For examp
 Cost-wise, you'll enjoy up to 60 minutes of free transcription services with an AWS free tier account. After depleting the credits, you can pay for the standard pay-as-you-go rates. All in all, it's an excellent speech recognition service, although it can be an overkill for personal use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Speech Recognition FAQs
@@ -113,13 +113,13 @@ Do you have a lot of unanswered questions about voice recognition? Here are some
 
 It depends! For people without quick typing skills, dictating audio is a no-brainer. TTS programs such as Windows Speech Recognition and Google Docs allow you to dictate texts directly into the document file before editing where necessary. However, it takes a lot of discipline and clarity to dictate texts accurately.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How can I improve the accuracy of speech recognition?
 
 First of all, some speech recognition services are more accurate than others. But the overall text accuracy will depend on the clarity of your voice. While the built-in mic will do fine, investing in a noise-canceling voice input device is better. You should also dictate texts with longer phrases more often. And another thing, avoid using slang and abbreviations.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Is voice recognition technology accurate?
 
@@ -159,17 +159,19 @@ Now you know how speech recognition can be helpful in your documentation work. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-a-complete-guide-to-dynamic-range-and-curves-for-2024/"><u>[New] A Complete Guide to Dynamic Range and Curves for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-cutting-edge-4k-recordings-our-choice-of-the-best/"><u>[New] In 2024, Cutting-Edge 4K Recordings Our Choice of the Best</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-perfecting-your-purses-expertise-in-haul-videography/"><u>[New] In 2024, Perfecting Your Purses Expertise in Haul Videography</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/1716069608993-updated-huawei-mate-and-p-series-phones-activating-built-in-recorders-for-screen-capture-for-2024/"><u>[Updated] Huawei Mate and P Series Phones Activating Built-In Recorders for Screen Capture. For 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/dji-drone-limited-use-color-filters-complimentary/"><u>DJI Drone Limited-Use Color Filters – Complimentary</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/efficiently-change-zip-to-srt-file-format/"><u>Efficiently Change ZIP to SRT File Format</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-tecno-spark-10-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-lava-blaze-curve-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Lava Blaze Curve 5G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722977430713-keep-your-msi-x470-gaming-plus-updated-download-compatible-drivers-today/"><u>Keep Your MSI X470 Gaming Plus Updated - Download Compatible Drivers Today</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-create-stunning-visual-stories-best-online-collage-software/"><u>New 2024 Approved Create Stunning Visual Stories Best Online Collage Software</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/step-by-step-guide-moving-picture-files-across-folders-using-yl-software/"><u>Step-by-Step Guide: Moving Picture Files Across Folders Using YL Software</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unleash-your-videos-convert-fb-content-to-mp4/"><u>Unleash Your Videos Convert FB Content to MP4</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ideal-timekeepers-top-10-androidios-apps-for-your-big-day-for-2024/"><u>[New] Ideal Timekeepers Top 10 Android/iOS Apps for Your Big Day for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-all-you-need-to-know-about-valheim-seeds-and-the-best-valheim-seeds/"><u>[Updated] 2024 Approved All You Need to Know About Valheim Seeds & The Best Valheim Seeds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-top-vr-bike-games-a-compreayers-guide/"><u>[Updated] 2024 Approved TOP VR Bike Games A Compreayer’s Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-become-a-whatsapp-guru-key-tips-and-tricks-uncovered/"><u>[Updated] Become a WhatsApp Guru Key Tips and Tricks Uncovered</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-developing-persuasive-podcast-hooklines-for-2024/"><u>[Updated] Developing Persuasive Podcast Hooklines for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-recording-internet-radios-simplified-tips-and-tricks-for-2024/"><u>[Updated] Recording Internet Radios Simplified Tips and Tricks for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-scrutinizing-hdr-performance-in-luminance-tech/"><u>[Updated] Scrutinizing HDR Performance in Luminance Tech</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-seamless-webp-to-jpg-conversion-techniques/"><u>[Updated] Seamless WebP to JPG Conversion Techniques</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/a-guide-on-efficiently-setting-up-a-dual-boot-system-with-windows-11-and-windows-10/"><u>A Guide on Efficiently Setting Up a Dual Boot System with Windows 11 and Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-designs-the-apple-resemblance-in-motorola-one-for-less-expense/"><u>Comparing Designs: The Apple Resemblance in Motorola One for Less Expense</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/esr-halolock-innovation-unveiled-multi-card-wallet-with-adjustable-support-ideal-for-iphones-insider-report/"><u>ESR HaloLock Innovation Unveiled: Multi-Card Wallet with Adjustable Support, Ideal for iPhones Insider Report</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-reverse-a-video-on-iphone/"><u>In 2024, How to Reverse a Video on iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-mice-you-need-to-try-with-your-ipad-for-seamless-navigation/"><u>Top 5 Mice You Need to Try with Your iPad for Seamless Navigation</u></a></li>
 </ul></div>
 

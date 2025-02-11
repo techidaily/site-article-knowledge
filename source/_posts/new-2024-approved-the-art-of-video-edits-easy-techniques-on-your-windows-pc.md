@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Art of Video Edits  Easy Techniques on Your Windows PC\""
-date: 2025-01-19T08:17:58.335Z
-updated: 2025-01-22T01:18:39.962Z
+date: 2025-01-28T18:00:53.869Z
+updated: 2025-01-30T00:13:58.773Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -54,11 +54,19 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -72,10 +80,6 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -83,7 +87,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,10 +101,6 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,21 +127,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-how-to-guide-for-soundless-video-documentation/"><u>[New] 2024 Approved How-To Guide for Soundless Video Documentation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-tech-savvy-approach-to-saving-your-insta-content/"><u>[New] 2024 Approved The Tech-Savvy Approach to Saving Your Insta Content</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[New] Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-a-comprehensive-guide-downloading-from-instagram-to-iphone/"><u>[Updated] A Comprehensive Guide Downloading From Instagram to iPhone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-aggregate-attention-masterful-telegram-advertising-approaches/"><u>[Updated] Aggregate Attention Masterful Telegram Advertising Approaches</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-find-your-ideal-wedding-timer-on-android-and-ios-platforms-here/"><u>[Updated] Find Your Ideal Wedding Timer on Android & iOS Platforms Here</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-clarity-unleashed-in-depth-review-of-the-hp-z32-x-display/"><u>[Updated] In 2024, Clarity Unleashed In-Depth Review of the HP Z32 X Display</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-complete-blueprint-for-optimizing-data-in-adobes-cloud-realm/"><u>[Updated] The Complete Blueprint for Optimizing Data in Adobe's Cloud Realm</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/generating-podcast-identity-the-top-ai-naming-software/"><u>Generating Podcast Identity The Top AI Naming Software</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-latest-dolby-audio-driver-update-for-windows-108111-systems/"><u>Get Your Latest Dolby Audio Driver Update for Windows 10/8.1/11 Systems</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-converti-file-ogg-gratuitamente-in-formato-aiff-online/"><u>Movavi: Converti File OGG Gratuitamente in Formato AIFF Online</u></a></li>
-<li><a href="https://article-files.techidaily.com/portable-gear-for-travel-cinematography-for-2024/"><u>Portable Gear for Travel Cinematography for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-steps-to-fresh-drivers-for-your-amd-ryzen-5-2500u-processor/"><u>Quick Steps to Fresh Drivers for Your AMD Ryzen 5 지구맥스 2500U Processor</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-rated-compact-tablets-comprehensive-reviews-by-tech-specialists/"><u>Top-Rated Compact Tablets : Comprehensive Reviews by Tech Specialists</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/transforming-ordinary-recordings-into-pro-level-with-audacity/"><u>Transforming Ordinary Recordings Into Pro-Level With Audacity</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-nokia-c12-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-beginners-blueprint-for-financial-gain-in-periscope-for-2024/"><u>[New] Beginner's Blueprint for Financial Gain in Periscope for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-image-clarity-reignited-exclusive-guide-to-top-10-photo-tools-for-2024/"><u>[New] Image Clarity Reignited Exclusive Guide to Top 10 Photo Tools for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-spicing-up-chats-with-gifs-a-complete-snapchat-tutorial/"><u>[New] In 2024, Spicing Up Chats with GIFs A Complete Snapchat Tutorial</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-silent-learners-guide-to-bypassing-edgenuity-videos-effortlessly/"><u>[New] The Silent Learner's Guide to Bypassing Edgenuity Videos Effortlessly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-navigating-soundscape-dilution-via-audacity-tools/"><u>[Updated] 2024 Approved Navigating Soundscape Dilution via Audacity Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-top-10-audio-playback-accelerators-for-phones/"><u>[Updated] 2024 Approved Top 10 Audio Playback Accelerators for Phones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-essential-tips-for-crafting-perfect-drone-video-edits/"><u>[Updated] In 2024, Essential Tips for Crafting Perfect Drone Video Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlock-optimal-video-playback-by-tuning-speed-in-snapchat-for-2024/"><u>[Updated] Unlock Optimal Video Playback by Tuning Speed in Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-guide-to-selecting-a-personalized-video-sharing-app/"><u>2024 Approved The Ultimate Guide to Selecting a Personalized Video Sharing App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/enhance-your-setup-with-our-diy-kit-seamless-pcie-connection-for-mini-pc-to-egpu-outperforming-thunderbolt-4-speeds/"><u>Enhance Your Setup with Our DIY Kit - Seamless PCIe Connection for Mini PC to eGPU Outperforming Thunderbolt 4 Speeds</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-find-x7-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Find X7 using Video Repair Utility?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-resolve-the-opengl32dll-missing-error-on-your-pc/"><u>How To Resolve The 'OpenGL32.dll' MISSING ERROR On Your PC</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-pro-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 Pro Max To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-samsung-galaxy-s23-fe-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Samsung Galaxy S23 FE to Protect Your Individual Information</u></a></li>
+<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/protecting-vital-information-how-a-worldwide-organization-implements-single-sign-on-and-multi-factor-authentication-to-fortify-system-security-explored-on-z31/"><u>Protecting Vital Information: How a Worldwide Organization Implements Single Sign-On and Multi-Factor Authentication to Fortify System Security | Explored on ZDNET</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unveiling-the-top-10-timing-apps-for-weddings-on-smartphones/"><u>Unveiling the Top 10 Timing Apps for Weddings on Smartphones</u></a></li>
 </ul></div>
 
