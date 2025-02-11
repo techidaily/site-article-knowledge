@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Quest for Perfection  Topiary Angles in Mobile Photography\""
-date: 2024-09-04T17:05:43.445Z
-updated: 2024-09-05T17:05:43.445Z
+date: 2025-02-09T22:07:00.856Z
+updated: 2025-02-10T20:43:59.526Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Care Solutions
 
  A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
@@ -58,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![straight-shots-iphone](https://images.wondershare.com/filmora/article-images/straight-shots-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Photography Review
 
  Raising your head up from time to time to see what is directly above you, may not be such a bad idea for any aspiring iPhone photographer because it will enable you to snap a photo from a unique perspective. Forests, skyscrapers or starry skies are all perfect scenery for straight up shots, however, if the scene doesn't have enough light try to avoid holding your iPhone in your hand, because you might end up with a blurry picture.
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![bird-eye-view-shots](https://images.wondershare.com/filmora/article-images/bird-eye-view-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Google
 
  Looking down on a beautiful view impresses everyone, but putting yourself in a position to watch the world from a top of a mountain or even a building requires a certain level of preparation. However, a bird's eye view angle can be captured on any location, and you just need to place yourself above the subject of your photo. This type of shot can be used for portraits, areal shots, and even breathtaking landscapes, but all objects depicted in bird's eye view photos will appear smaller than they actually are.
@@ -84,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![use-frame-photography](https://images.wondershare.com/filmora/article-images/use-frame-photography.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Chris Utano Photography
 
  All photos have a rectangular shape, and depicting the same shape within a photo creates instant dynamics between the shape you captured in a photo and its literal shape. A frame can be literally anything from a window in your room to a crack in the wall or even an old photo frame, and each item you use as a frame will give the photo a special atmosphere.
@@ -93,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 #### 7\.  Use Transparent Objects as Lens Filters
 
 ![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
 
@@ -125,21 +145,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-14-ways-to-make-irresistible-gourmet-vids/"><u>[New] In 2024, 14 Ways to Make Irresistible Gourmet Vids</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-oculus-the-premium-vr-gaming-headset-for-2024/"><u>[New] Mastering Oculus The Premium VR Gaming Headset for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ignite-interest-with-your-own-solo-podcast-series/"><u>[Updated] 2024 Approved Ignite Interest with Your Own Solo Podcast Series</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-complete-review-of-logitechs-advanced-4k-video-camera/"><u>[Updated] In 2024, Complete Review of Logitech's Advanced 4K Video Camera</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dealing-with-unanswered-calls-a-guide-for-iphone-users/"><u>Dealing with Unanswered Calls: A Guide for iPhone Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://win-special.techidaily.com/guide-to-installing-a-printer-on-windows-tips-from-yl-computing/"><u>Guide to Installing a Printer on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-blaze-2-5g-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Blaze 2 5G.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-motorola-edge-40-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Motorola Edge 40 without App | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-uncomplicated-narrative-guide/"><u>In 2024, Uncomplicated Narrative Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-and-android-compared-top-youtube-app-analysis-for-2024/"><u>IPhone & Android Compared Top YouTube App Analysis for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/master-multi-tasking-on-edge-with-picture-in-picture-for-2024/"><u>Master Multi-Tasking on Edge with Picture-in-Picture for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/perceiving-beyond-understanding-ars-impact-for-2024/"><u>Perceiving Beyond Understanding AR's Impact for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-windows-crash-screens-purpose-and-interpretation/"><u>Understanding Windows Crash Screens: Purpose & Interpretation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unlocking-potential-master-dvd-burning-with-your-mac-for-2024/"><u>Unlocking Potential Master DVD Burning with Your Mac for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

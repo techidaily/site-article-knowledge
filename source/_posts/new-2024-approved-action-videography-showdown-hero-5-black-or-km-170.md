@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Action Videography Showdown  Hero 5 Black or KM-170?\""
-date: 2024-08-31T11:39:59.855Z
-updated: 2024-09-01T11:39:59.855Z
+date: 2025-02-09T16:04:35.820Z
+updated: 2025-02-10T19:03:54.648Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,11 @@ The **Nikon Keymission 170 action camera** features dual shutters- separate for 
 There is a notable difference in the performance of GoPro and Nikon when it comes to taking still images. With 12MP resolution (4000X3000 pixel settings) Hero 5 stands much ahead of Keymission 170 giving you the joy of capturing still photos at the resolution of 8.3MP (3840x2160 pixels). Another important convenience with GoPro is that you can take geo tagged photos besides the choice of shooting WDR and RAW photos. Nikon does not feature GPS configuration. You also cannot take RAW photos with Keymission 170.  
 ![hero5 balck keymission170 test](https://images.wondershare.com/hero5-balck-keymission170-test1.jpg)
 2. **Video Quality**  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The video quality output of these cameras is the real point of attraction for all buyers. To all your relaxation, both of them can capture 4K30 (highest resolution) videos. Luckily, the quality of the videos is almost the same.Using the Protune settings on GoPro, you can get better results with sharpening, change ISO limits, take RAW videos with preferred audio settings, adjust the white balance etc. The first time users can use the default settings to capture good high-resolution videos. Keymission allows some limited adjustments with the Pro settings. You can obtain improved video quality by changing the white balance, exposure compensation and other details.  
 **You may also like:**  
 [Get Cool After Effects for Your Video>>](https://www.filmstocks.com/effects-store-upgrade.html)  
@@ -101,6 +106,11 @@ The GoPro works fine for the professionals looking to capture industry standard 
 Field of View (FOV)  
 ![hero5 balck keymission170 fov](https://images.wondershare.com/hero5-black-keymission170-fov.jpg)  
 As the name suggests, the Keymission 170 only offers the standard view of 170 degrees only. The degree is reduced a bit less when you are using the image stabilization feature. With flexible frame rate adjustments and resolution, you can use several FOV options including superview, wide, linear, medium, narrow etc. with GoPro Hero 5 Balck.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Stabilization  
 The video stabilization in Nikon Keymission 170 action camera is more advanced especially when you are using the external Gyrostabilizer.  
 White Balance  
@@ -109,6 +119,11 @@ Low Light Video Capturing
 There are shortcomings with both these cameras when you are shooting under low light availability. Yet, GoPro is a bit advanced to give you good video quality under low light. With Nikon it is preferable to use extra lights if you desire to get bright sharp objects.  
 ![hero5 balck keymission170 low light test](https://images.wondershare.com/hero5-balck-keymission170-low-light-test.jpg)
 3. **Audio Quality**  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Hero 5 Black is very tactically designed with dual microphones – at the rear and front ends. The camera can auto switch microphone during video capturing based on the requirements. To give you better sound quality, the camera swaps to the back microphone during heavy disturbing noise coming from the front direction like biking under heavy wind speed. The **Nikon Keymission 170 action camera** has built in stereo microphone to produce medium quality satisfactory sound capturing.
 
 #### Features
@@ -137,7 +152,15 @@ What’s more, it has all the features you will need to make you feel like a pro
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -162,12 +185,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-how-burst-mode-enhances-gopro-videos/"><u>[New] How Burst Mode Enhances GoPro Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-implementing-invisible-sound-transitions-in-premiere-pro-for-2024/"><u>[New] Implementing Invisible Sound Transitions in Premiere Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enhance-iphone-photos-the-10-must-have-free-apps-for-selfies/"><u>[New] In 2024, Enhance iPhone Photos The 10 Must-Have Free Apps for Selfies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-complete-playbook-for-youtube-beginners/"><u>[New] The Complete Playbook for YouTube Beginners</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-superior-strategies-converting-visual-content-on-pinterest-to-audio/"><u>[Updated] 2024 Approved Superior Strategies Converting Visual Content on Pinterest To Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ultimate-picture-narrative-craft-pro-edition/"><u>[Updated] 2024 Approved Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harness-online-tools-for-free-fb-video-conversion-to-1080p720p-mp4/"><u>[Updated] Harness Online Tools for Free FB Video Conversion to 1080P/720p MP4</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-picks-for-the-best-android-image-correction-tools-5-choices/"><u>2024 Approved Top Picks for the Best Android Image Correction Tools (5 Choices)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elevate-the-listening-experience-with-garageband-edits/"><u>Elevate the Listening Experience with GarageBand Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ideal-webcams-elevating-podcast-production/"><u>In 2024, Ideal Webcams Elevating Podcast Production</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-step-by-step-guide-downloading-apple-podcasts/"><u>In 2024, Step-by-Step Guide Downloading Apple Podcasts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-tecno-spark-go-2024-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Tecno Spark Go (2024) FRP</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-top-tips-for-creating-instagrammable-unboxing-highlights/"><u>In 2024, Top Tips for Creating Instagrammable Unboxing Highlights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-xiaomi-redmi-12-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Xiaomi Redmi 12 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/techniques-faciles-pour-transferer-un-film-en-dvd-vers-votre-mac-sans-perturbation-de-la-qualite-dimage-et-du-son/"><u>Techniques Faciles Pour Transférer Un Film en DVD Vers Votre Mac - Sans Perturbation De La Qualité D'Image Et Du Son</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-infinix-hot-40i-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Infinix Hot 40i Phones</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Your Photography Experience on Windows 11  Filters and Music Playback\""
-date: 2025-01-24T23:38:37.498Z
-updated: 2025-01-30T00:56:36.870Z
+date: 2025-02-08T19:14:26.014Z
+updated: 2025-02-10T22:18:57.155Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,7 +55,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
@@ -61,10 +65,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -79,7 +79,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -87,20 +87,20 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,19 +127,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-expert-choice-8-best-converters-from-sub-to-srt/"><u>[New] 2024 Approved Expert Choice 8 Best Converters From Sub to Srt</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-gameplay-gimmicks-voice-variations-in-free-fire-for-2024/"><u>[New] Gameplay Gimmicks Voice Variations in Free Fire for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-digital-audio-translations-from-srt-to-xmlssa-ttml-etc/"><u>[New] In 2024, Digital Audio Translations From SRT to XML/SSA, TTML, Etc</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision/"><u>[Updated] 2024 Approved Mics & More Discovering the Audio Essential That Matches Your YT Vision</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-video-grabber-tool-decompiler/"><u>[Updated] 2024 Approved Video Grabber Tool Decompiler</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-venturing-into-vector-world-starting-point-and-top-tools/"><u>[Updated] In 2024, Venturing Into Vector World Starting Point and Top Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-essential-iphone-hdr-photography-skills-for-2024/"><u>[Updated] The Essential iPhone HDR Photography Skills for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-unlocking-youtube-success-top-video-strategies-to-explode-views-for-2024/"><u>[Updated] Unlocking YouTube Success Top Video Strategies to Explode Views for 2024</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/comprehensive-tutorial-on-designing-and-implementing-successful-training-initiatives-with-movavi/"><u>Comprehensive Tutorial on Designing & Implementing Successful Training Initiatives with Movavi</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/free-music-for-videos-finding-the-right-sources-for-2024/"><u>Free Music for Videos Finding the Right Sources for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/how-to-add-music-to-instagram-reel/"><u>How to Add Music to Instagram Reel</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-music-from-nokia-g42-5g-by-fonelab-android-recover-music/"><u>How to retrieve erased music from Nokia G42 5G</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/samurais-modern-journey-10-games-similar-to-ghost-of-tsushima-for-2024/"><u>Samurai's Modern Journey 10 Games Similar to Ghost of Tsushima for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlock-the-secret-to-resetting-your-iphone-without-ever-touching-itunes/"><u>Unlock the Secret to Resetting Your iPhone Without Ever Touching iTunes!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-master-the-basics-essential-photo-edits-for-starters/"><u>[New] Master the Basics Essential Photo Edits for Starters</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-how-to-save-photo-from-video-in-windows-11-photos-app/"><u>[Updated] 2024 Approved How to Save Photo From Video in Windows 11 Photos App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-ultimate-smartphone-list-for-optimal-gear-vr-functionality-2-written-by-john-doe-mba-expert-in-strategic-business-planning-and-mar/"><u>[Updated] 2024 Approved The Ultimate Smartphone List for Optimal Gear VR Functionality (2 Written By John Doe, MBA | Expert in Strategic Business Planning and Marketing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-dramatic-lighting-in-hdr-portraits-techniques-and-tips/"><u>[Updated] Dramatic Lighting in HDR Portraits Techniques and Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-bringing-smiles-without-dollars-the-mememakers-way/"><u>[Updated] In 2024, Bringing Smiles without Dollars – The MemeMaker’s Way</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smart-strategies-to-modify-user-numbers-on-tiktok-for-2024/"><u>[Updated] Smart Strategies to Modify User Numbers on TikTok for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-purifying-audio-from-films-and-movies-cost-effective-methods/"><u>2024 Approved Purifying Audio From Films and Movies Cost-Effective Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-xr-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How to Change Your Apple iPhone XR Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-incredible-mobile-photography-and-videography-apps-for-iosandroid/"><u>In 2024, Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-instant-video-creation-uploading-images/"><u>In 2024, Instant Video Creation Uploading Images</u></a></li>
+<li><a href="https://article-files.techidaily.com/stealthy-sound-softening-with-garageband/"><u>Stealthy Sound Softening with Garageband</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-expert-recommended-free-video-splitters-top-5-list/"><u>Updated 2024 Approved Expert-Recommended Free Video Splitters Top 5 List</u></a></li>
+<li><a href="https://win-able.techidaily.com/valheim-initialization-errors-troubleshooting-steps-and-fixes/"><u>Valheim Initialization Errors : Troubleshooting Steps and Fixes</u></a></li>
 </ul></div>
 
