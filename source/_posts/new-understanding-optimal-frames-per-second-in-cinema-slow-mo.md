@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Understanding Optimal Frames Per Second in Cinema Slow-Mo\""
-date: 2024-09-04T17:08:05.707Z
-updated: 2024-09-05T17:08:05.707Z
+date: 2025-02-18T09:50:14.338Z
+updated: 2025-02-20T11:31:40.415Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,14 @@ Best Situation - When you are shooting slow-motion video for any action that is 
 
 ![60 fps slow motion video](https://images.wondershare.com/filmora/article-images/60-fps-for-slow-motion-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. 120 fps
 
 Let us assume that you are shooting at 120 fps and displaying at 30 fps. The video will play 4 times slower than it is in real life. The slow-motion effect will be two times slower than shooting at 60fps. If you shoot slow action at 120 fps, the output will be unusually slow and visually unpleasant. Therefore, you should shoot fast action scenes at 120 fps.
@@ -43,11 +51,9 @@ Best Situation - When you are shooting slow-motion video for fast-paced action a
 ![120 fps slow motion](https://images.wondershare.com/filmora/article-images/120-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. 180 fps
 
 The scenes that are suitable for 120 fps are also suitable for 180 fps. This means you can shoot fast-moving subjects, objects, and elements. Some of the examples are horse riding, subject running, riding a bike, and likewise. But when you shoot at 180 fps, your objective is to show down the action much further.
@@ -58,18 +64,6 @@ Best Situation - When you are shooting slow-motion video for fast moving action 
 
 ![180 fps slow motion](https://images.wondershare.com/filmora/article-images/180-fps-for-slow-motion-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. 240 fps
 
 When you are capturing an action that is too fast for your eyes to see, you should use 240 fps. For example, when you are watching a fast-paced sports event, your eyes cannot capture all movements. When you capture those scenes at 240 fps, the output video will look more comfortable for the eyes. The use of 240 fps is very popular in sports like cricket.
@@ -80,18 +74,6 @@ Best Situation - When you are shooting slow-motion video for action that are too
 
 ![240 fps slow motion video](https://images.wondershare.com/filmora/article-images/240-fps-for-slow-motion-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. 480 fps
 
 If you want super slow motion video, you have to shoot at 480 fps. The 480 frame rate is considered to be the base of super slow motion. There are higher frame rates available for more enhanced super slow-motion videos. When you shoot at 480 fps, the video will play 16 times slower. This is usual in showcasing extremely fast movements.
@@ -103,17 +85,13 @@ Best Situation - When you are shooting extremely fast actions and show in super 
 ![480 fps slow motion](https://images.wondershare.com/filmora/article-images/480-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 There is no definite answer to which is the best frame rate for slow motion. It completely depends on what you are shooting. Yes, it is true that 60 fps is the standard slow motion fps. But 60 fps is only suitable when the action is low as well. Different frame rates are suitable for different scenes. The faster the action you are shooting, the higher should be the frame rate. For smooth super slow motion video, you should consider shooting at 480 fps. Frame rate beyond 480 is suitable for capturing slow-motion explosion videos.
@@ -139,8 +117,26 @@ The shooting frame rate determines how slow your video will look. If you shoot a
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-notable-examples-of-book-trailers/"><u>[New] 2024 Approved Notable Examples of Book Trailers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-sound-of-serenity-windowsmac-adjustments/"><u>[New] 2024 Approved The Sound of Serenity Windows/Mac Adjustments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-delving-into-virtual-realms-a-basic-guide/"><u>[New] Delving Into Virtual Realms A Basic Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-brush-up-your-skills-and-inspire-creativity-top-10-freeware-for-mac/"><u>[New] In 2024, Brush Up Your Skills & Inspire Creativity - Top 10 Freeware for Mac</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-recording-gaming-with-fraps/"><u>[New] In 2024, The Ultimate Guide to Recording Gaming with Fraps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-premium-headsets-for-next-gen-drone-pilots/"><u>[New] Premium Headsets for Next-Gen Drone Pilots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unlock-high-end-visuals-a-practical-guide-for-sdr-to-hdr-transition/"><u>[Updated] 2024 Approved Unlock High-End Visuals A Practical Guide for SDR to HDR Transition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-arc-electrify-powerful-media-player-replacement-for-2024/"><u>[Updated] Arc Electrify Powerful Media Player Replacement for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-data-delivery-guide-top-5-methods-to-get-files-on-your-pc/"><u>[Updated] Data Delivery Guide Top 5 Methods to Get Files on Your PC</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-djivision-fpv-helmet-effectiveness-breakdown/"><u>[Updated] DJiVision FPV Helmet Effectiveness Breakdown</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-inside-look-a-detailed-review-of-the-android-lightroom-app/"><u>[Updated] In 2024, Inside Look A Detailed Review of the Android Lightroom App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-complete-process-of-converting-gifs-into-sticker-form-for-multi-platform-use/"><u>[Updated] In 2024, The Complete Process of Converting GIFs Into Sticker Form for Multi-Platform Use</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprelevant-listings-best-free-tools-to-watch-webm-videos/"><u>2024 Approved Comprelevant Listings Best Free Tools to Watch WebM Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-rotation-producer-series/"><u>2024 Approved Rotation Producer Series</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-play-40c-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor Play 40C without App | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discovering-the-potential-of-next-gen-srt-systems-for-2024/"><u>Discovering the Potential of Next-Gen SRT Systems for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/predicting-a-boom-in-chipset-prices-are-we-ready/"><u>Predicting a Boom in Chipset Prices: Are We Ready?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ear-ahead-social-media-infographic-insights-for-2024/"><u>The Year Ahead Social Media Infographic Insights for 2024</u></a></li>
+</ul></div>
 

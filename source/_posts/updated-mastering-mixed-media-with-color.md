@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Mixed Media with Color"
-date: 2025-02-09T00:25:03.689Z
-updated: 2025-02-10T20:17:04.491Z
+date: 2025-02-18T00:17:08.810Z
+updated: 2025-02-20T12:39:41.584Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -34,7 +38,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -43,10 +47,14 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -54,10 +62,6 @@ As you can see, we have every color available in this wheel and they are arrange
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -68,7 +72,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -84,10 +88,6 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,24 +123,18 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-unseen-enthusiasts-blueprint-for-instagram-live-viewership/"><u>[New] In 2024, The Unseen Enthusiast’s Blueprint for Instagram Live Viewership</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-magnify-memories-unaltered-resolution/"><u>[New] Magnify Memories Unaltered Resolution</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-master-iphone-podcast-downloads-a-comprehensible-approach-for-2024/"><u>[New] Master iPhone Podcast Downloads A Comprehensible Approach for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-navigating-iphone-camera-not-auto-focusing-woes/"><u>[New] Navigating iPhone Camera Not Auto-Focusing Woes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-picture-perfection-apply-filters-to-your-videos-for-2024/"><u>[New] Picture Perfection Apply Filters to Your Videos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-get-started-in-editing-videos-via-windows-11s-movie-maker/"><u>[Updated] 2024 Approved Get Started in Editing Videos via Windows 11'S Movie Maker</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-through-the-fins-pro-techniques-for-taking-superior-gopro-videos-underwater/"><u>[Updated] 2024 Approved Through the Fins Pro Techniques for Taking Superior GoPro Videos Underwater</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-windows-11-audio-recording-techniques/"><u>[Updated] 2024 Approved Windows 11 Audio Recording Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ace-picks-top-ranked-gaming-screens-in-4k/"><u>[Updated] In 2024, Ace Picks Top-Ranked Gaming Screens in 4K</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-flaskful-formula-freaks/"><u>2024 Approved FLASKFUL FORMULA FREAKS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/free-downloader-turn-youtube-audio-into-premium-mp3s/"><u>Best Free Downloader Turn YouTube Audio Into Premium MP3s</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138595112-9781463307011-fantasmas-mito-realidad-o-fantasia/"><u>Fantasmas: Mito, Realidad O Fantasía | Free Book</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-y77t-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo Y77t to Outlook | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-3-ways-to-export-contacts-from-apple-iphone-14-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 3 Ways to Export Contacts from Apple iPhone 14 to Excel CSV & vCard Easily | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-picking-the-top-action-cam-gopro-or-sony-fdr-x1000v/"><u>In 2024, Picking the Top Action Cam GoPro or Sony FDR-X1000V?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-dual-platform-dance-posting-vids-with-twitter-and-tumblr/"><u>In 2024, The Dual-Platform Dance Posting Vids with Twitter & Tumblr</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-monetary-scope-of-mr-beasts-ventures/"><u>In 2024, The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/updated-realtek-bluetooth-drivers-for-windows-11-and-10-free-downloads-available/"><u>Updated Realtek Bluetooth Drivers for Windows 11 and 10 – Free Downloads Available</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-understanding-apples-audio-content-guidelines/"><u>[New] 2024 Approved Understanding Apple’s Audio Content Guidelines</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-superior-vr-equipment-for-drone-flight/"><u>[New] In 2024, Superior VR Equipment for Drone Flight</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveil-the-potential-of-vfx-animated-text-for-free/"><u>[New] In 2024, Unveil the Potential of VFX Animated Text for Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-core-elements-of-virtual-tale-transmission/"><u>[Updated] Core Elements of Virtual Tale Transmission</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-surfings-new-era-top-cam-tech/"><u>[Updated] In 2024, Surfing's New Era - Top Cam Tech</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-avoid-the-fake-out-maintaining-authenticity-in-likes/"><u>2024 Approved Avoid the Fake-Out Maintaining Authenticity in Likes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-cutting-edge-creativity-filmoras-favorite-features-explored/"><u>2024 Approved Cutting Edge Creativity Filmora's Favorite Features Explored</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/amplitude-variation/"><u>Amplitude Variation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-troubleshoot-and-resolve-the-unknown-disc-message-on-your-dvd-player/"><u>How to Troubleshoot and Resolve the 'Unknown Disc' Message on Your DVD Player</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-unveiling-the-most-effective-zoom-recording-tools/"><u>In 2024, Unveiling the Most Effective Zoom Recording Tools</u></a></li>
+<li><a href="https://win-blog.techidaily.com/m4bmkvmovavi/"><u>M4B到MKV无线翻制：使用Movavi转换器获得高效转换</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1582393-9781782792482-shamanic-plant-medicine-ayahuasca/"><u>Shamanic Plant Medicine - Ayahuasca | Free Book</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssence-of-online-video-success-keywords-on-youtube/"><u>The Essence of Online Video Success Keywords on YouTube</u></a></li>
 </ul></div>
 
